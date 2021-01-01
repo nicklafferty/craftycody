@@ -34,8 +34,8 @@ params:
         emoji: 
         subtitle: A crafting blog for DIYs and cute projects
         avatar:
-            local: true
-            src: img/avatar.png
+            local: false
+            src: /img/codybearlogo150.png
 
     article:
         math: false
