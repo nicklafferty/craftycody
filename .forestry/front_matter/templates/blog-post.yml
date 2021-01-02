@@ -27,11 +27,6 @@ fields:
     time_format: 
     display_utc: false
   label: publish_date
-- name: draft
-  type: boolean
-  label: draft
-  description: check to publish
-  default: false
 - name: slug
   type: text
   config:
