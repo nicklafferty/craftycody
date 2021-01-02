@@ -23,7 +23,7 @@ So, let me preface this by saying that I really think this yarn is intended for 
 
 Like I said at the top of this post, this yarn is like crocheting with hair. It’s silky, slippery, thin, and all the fibers separate incredibly easily. It’s a pretty slow process to make anything with it because I had to be rather gentle so as to not pull any unwanted fibers through my stitches. That happened anyway of course.
 
-![](https://itscodybear.files.wordpress.com/2020/04/mvimg_20200410_1143171202259967898312538.jpg?w=663 =455x340)
+!\[\](https://itscodybear.files.wordpress.com/2020/04/mvimg_20200410_1143171202259967898312538.jpg)
 
 This yarn also does not hold its shape very well. It’s super flimsy. When it came time to stuff my projects, it was very difficult to keep their shape as the yarn held no structure. Then, when I finally finished stuffing, all the stitches stretch out and you get those big holes. I hate that. I like a nice, solid piece.
 
@@ -32,11 +32,11 @@ This yarn also does not hold its shape very well. It’s super flimsy. When it c
 
 I wish the color changes would happen more often. I wanted my squid to have a little bit of color variation, but the blue just kept on coming. This is just a personal gripe and not really the yarn’s fault, but still.
 
-![](https://itscodybear.files.wordpress.com/2020/04/mvimg_20200410_113655462736959707846784.jpg?w=663 =338x450)_He still cute tho._
+!\[\](https://itscodybear.files.wordpress.com/2020/04/mvimg_20200410_113655462736959707846784.jpg?w=663 =338x450)_He still cute tho._
 
 I had way too much. This was truly the skein that never ended. I don’t like having too much scrap yarn, because I never know what to do with it. It’s not like you can take that last 200 yards and make a sweater. I kept looking up projects to try and bust through this thing so I could be done with it.
 
-![](https://itscodybear.files.wordpress.com/2020/04/mvimg_20200410_1142425416883140423285259.jpg?w=663 =369x276)_What am I supposed to do with this?_
+!\[\](https://itscodybear.files.wordpress.com/2020/04/mvimg_20200410_1142425416883140423285259.jpg?w=663 =369x276)_What am I supposed to do with this?_
 
 One good thing about it though is that it’s really soft. So that’s nice I guess.
 
