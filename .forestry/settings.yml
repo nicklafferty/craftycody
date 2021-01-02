@@ -5,7 +5,7 @@ admin_path:
 webhook_url: 
 sections:
 - type: directory
-  path: content/crafts
+  path: content/crochet
   label: Crochet
   create: all
   match: "*.md"
