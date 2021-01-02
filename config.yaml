@@ -17,7 +17,8 @@ permalinks:
 
 params:
     mainSections:
-        - blog
+        - crafts
+        - crochet
     featuredImageField: image
     rssFullContent: true
     favicon:
@@ -99,9 +100,9 @@ menu:
           weight: -100
           pre: home
 
-        - identifier: blog
-          name: Blog
-          url: blog
+        - identifier: crafts
+          name: Crafts
+          url: crafts
           weight: -80
           pre: home
 
@@ -111,11 +112,11 @@ menu:
           weight: -90
           pre: user
 
-        - identifier: archives
-          name: Archives
-          url: archives
+        - identifier: crochet
+          name: Crochet
+          url: crochet
           weight: -70
-          pre: archives
+          pre: home
 
         - identifier: search
           name: Search
