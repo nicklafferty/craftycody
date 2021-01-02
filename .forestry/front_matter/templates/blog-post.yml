@@ -48,3 +48,5 @@ fields:
   config:
     maxSize: 64
   label: image
+pages:
+- content/life/4-things-i-ve-learned-with-buying-our-first-house.md
