@@ -1,11 +1,11 @@
 +++
 author = "Cody"
-date = 2019-11-20T00:00:00Z
+date = 2020-09-09T23:00:00Z
 description = "How to make a cute Dollar Tree Christmas Tree."
+image = "/uploads/pxl_20200929_1944131291860996776162107127.jpg"
 slug = "christmas-dollar-tree"
 tags = ["crafts"]
 title = "A very magical Dollar Tree craft 🏰"
-image = "/uploads/pxl_20200929_1944131291860996776162107127.jpg"
 
 +++
 I love Dollar Tree and I love getting craft supplies there to make super cheap, super cute creations. Especially when it’s Disney related.
