@@ -99,6 +99,12 @@ menu:
           weight: -100
           pre: home
 
+        - identifier: blog
+          name: Blog
+          url: blog
+          weight: -80
+          pre: home
+
         - identifier: about
           name: About
           url: about
