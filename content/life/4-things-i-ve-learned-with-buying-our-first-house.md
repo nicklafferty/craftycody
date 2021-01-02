@@ -1,6 +1,5 @@
 +++
 description = "Here's what I've learned about buying your first home."
-draft = true
 image = ""
 publish_date = 2020-06-04T05:00:00Z
 slug = "buying-our-first-house"
