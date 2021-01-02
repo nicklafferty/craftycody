@@ -19,6 +19,7 @@ params:
     mainSections:
         - crafts
         - crochet
+        - life
     featuredImageField: image
     rssFullContent: true
     favicon:
