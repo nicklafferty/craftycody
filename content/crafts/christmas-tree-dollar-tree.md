@@ -1,6 +1,6 @@
 +++
 author = "Cody"
-date = 2020-09-09T23:00:00Z
+date = 2020-09-29T23:00:00Z
 description = "How to make a cute Dollar Tree Christmas Tree."
 image = "/uploads/pxl_20200929_1944131291860996776162107127.jpg"
 slug = "christmas-dollar-tree"
