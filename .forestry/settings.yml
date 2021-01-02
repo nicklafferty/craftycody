@@ -5,8 +5,13 @@ admin_path:
 webhook_url: 
 sections:
 - type: directory
-  path: content/blog
-  label: Blog
+  path: content/crochet
+  label: Crochet
+  create: all
+  match: "*.md"
+- type: directory
+  path: content/crafts
+  label: Crafts
   create: all
   match: "*.md"
 - type: directory
