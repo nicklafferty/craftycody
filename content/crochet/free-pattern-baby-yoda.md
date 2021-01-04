@@ -9,7 +9,7 @@ title = "Free pattern: Baby Yoda!"
 +++
 I have a [PDF of this pattern for sale in my store ](https://codyscraftcorner.square.site/product/-digital-pattern-only-baby-yoda-crochet-pattern/4?cs=true)if you’d like to donate to the yarn fund!
 
-Over the weekend, I made some modifications to my [corgi puppercino](https://itscodybear.wordpress.com/2019/12/29/merry-christmas-here-is-a-free-pattern/) pattern I posted a couple of weeks ago. Everyone loves free patterns so whenever the Mandalorian (cue space flute) comes back you can cuddle with this little guy. Works up quickly and turns out pretty cute!
+Over the weekend, I made some modifications to my [corgi puppercino](https://craftycody.com/crochet/corgi-free-crochet-pattern/) pattern I posted a couple of weeks ago. Everyone loves free patterns so whenever the Mandalorian (cue space flute) comes back you can cuddle with this little guy. Works up quickly and turns out pretty cute!
 
 ![](/uploads/baby-yoda-crochet-outside.jpg)
 
