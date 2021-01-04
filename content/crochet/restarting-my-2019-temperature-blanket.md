@@ -1,6 +1,5 @@
 +++
 description = "I really need to get this thing done."
-draft = true
 image = "/uploads/crochet-hexagons.jpg"
 publish_date = 2020-01-15T06:00:00Z
 slug = "2019-temp-blanket"
