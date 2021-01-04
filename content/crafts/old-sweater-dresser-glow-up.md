@@ -1,7 +1,7 @@
 +++
 description = "Giving some TLC to an old dresser."
 image = "/uploads/green-dresser-done.jpg"
-publish_date = 2020-04-22T05:00:00Z
+date = 2020-04-22T05:00:00Z
 slug = "updated-sweater-dresser"
 tags = ["furniture", "upcycle"]
 title = "Old Sweater Dresser Glow-Up"

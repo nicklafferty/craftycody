@@ -1,7 +1,7 @@
 +++
 description = "I really need to get this thing done."
 image = "/uploads/crochet-hexagons.jpg"
-publish_date = 2020-01-15T06:00:00Z
+date = 2020-01-15T06:00:00Z
 slug = "2019-temp-blanket"
 tags = ["crochet"]
 title = "Restarting my 2019 temperature blanket"

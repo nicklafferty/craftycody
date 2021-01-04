@@ -1,7 +1,7 @@
 +++
 description = "Free crochet pattern to create your own Child or Baby Yoda,"
 image = "/uploads/baby-yoda-crochet-pattern-main.jpg"
-publish_date = 2020-02-23T06:00:00Z
+date = 2020-02-23T06:00:00Z
 slug = "baby-yoda-crochet-pattern"
 tags = ["crochet", "pattern"]
 title = "Free pattern: Baby Yoda!"

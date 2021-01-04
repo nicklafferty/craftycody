@@ -1,7 +1,7 @@
 +++
 description = "Changing my channel from gaming to crafting!"
 image = "/uploads/title-card.jpg"
-publish_date = 2020-01-20T06:00:00Z
+date = 2020-01-20T06:00:00Z
 slug = "wood-keychain-diorama-disney"
 tags = ["crafts", "video", "disney"]
 title = "My first, new video!"

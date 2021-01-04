@@ -1,7 +1,7 @@
 +++
 description = "Going on a little adventure in Austin"
 image = "/uploads/drone-austin-skyline.jpg"
-publish_date = 2020-01-28T06:00:00Z
+date = 2020-01-28T06:00:00Z
 slug = "fun-day-austin"
 tags = ["life", "adventure"]
 title = "Fun Day out in Austin"

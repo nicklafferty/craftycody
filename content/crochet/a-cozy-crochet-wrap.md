@@ -1,7 +1,7 @@
 +++
 description = "A huge, simple wrap while it's still winter."
 image = "/uploads/img_20200113_172746_5703933375956200692060.jpg"
-publish_date = 2020-01-16T06:00:00Z
+date = 2020-01-16T06:00:00Z
 slug = "cozy-crochet-wrap"
 tags = ["crochet"]
 title = "A cozy crochet wrap"

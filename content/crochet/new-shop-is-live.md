@@ -1,7 +1,7 @@
 +++
 description = "Started a new shop all about crochet."
 image = ""
-publish_date = 2019-12-31T06:00:00Z
+date = 2019-12-31T06:00:00Z
 slug = "new-store-2019"
 tags = ["crochet", "shop"]
 title = "New shop is live!"
