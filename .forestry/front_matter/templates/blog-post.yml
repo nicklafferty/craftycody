@@ -18,7 +18,7 @@ fields:
       format: markdown
   label: description
   description: 150 characters
-- name: publish_date
+- name: date
   type: datetime
   description: date its published
   config:
