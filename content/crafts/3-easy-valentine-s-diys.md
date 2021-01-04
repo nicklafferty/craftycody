@@ -1,6 +1,5 @@
 +++
 description = "Some simple Valentine's DIYs to decorate your home with love."
-draft = true
 image = "/uploads/diy-valentines-crafts-thumbnail-dollar-tree.jpg"
 publish_date = 2020-01-27T06:00:00Z
 slug = "easy-valentines-diys-video"
