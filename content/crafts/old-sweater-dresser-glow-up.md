@@ -1,6 +1,5 @@
 +++
 description = "Giving some TLC to an old dresser."
-draft = true
 image = "/uploads/green-dresser-done.jpg"
 publish_date = 2020-04-22T05:00:00Z
 slug = "updated-sweater-dresser"
