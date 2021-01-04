@@ -1,6 +1,5 @@
 +++
 description = "Going on a little adventure in Austin"
-draft = true
 image = "/uploads/drone-austin-skyline.jpg"
 publish_date = 2020-01-28T06:00:00Z
 slug = "fun-day-austin"
