@@ -1,6 +1,5 @@
 +++
 description = "Cute pup you can crochet and take around with you!"
-draft = true
 image = "/uploads/corgi-on-table.jpg"
 publish_date = 2019-12-29T06:00:00Z
 slug = "corgi-free-crochet-pattern"
