@@ -1,7 +1,7 @@
 +++
-description = "Here's what I've learned about buying your first home."
-image = ""
 date = 2020-06-04T05:00:00Z
+description = "Here's what I've learned about buying your first home."
+image = "/uploads/buying-a-house.png"
 slug = "buying-our-first-house"
 tags = ["home"]
 title = "4 things I’ve learned with buying our first house."
