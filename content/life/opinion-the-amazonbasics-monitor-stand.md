@@ -22,7 +22,7 @@ The instructions themselves were relatively easy to follow. They're like Ikea's 
 
 Here are all the spots where you can tighten the arm to make sure it holds your monitor upright and stays put:
 
-This is probably the most important one. It's located right behind where the arm attached to the monitor. You use the included, larger hex key to tighten it. It's pretty loose out of the box and we cranked it around several times so that it would actually be able to hold the monitor in place. This one is a little easier to turn when the arm is off the stand so you can get a good angle.
+This is probably the most important one. It's located right behind where the arm attached to the monitor. You use the included, larger hex key to tighten it. It's pretty loose out of the box and we cranked it around _several_ times so that it would actually be able to hold the monitor in place. This one is a little easier to turn when the arm is off the stand so you can get a good angle.
 
 The next one is on the monitor plate and control how easy it is to pitch the monitor.
 
