@@ -26,7 +26,7 @@ This is probably the most important one. It's located right behind where the arm
 
 The next one is on the monitor plate and controls how easy it is to pitch the monitor.
 
-These two control the swivel of the arms. You use the smaller Allen wrench to tighten them.
+These two control the swivel tightness of the arms. You use the smaller Allen wrench to tighten them.
 
 ## Final thoughts:
 
