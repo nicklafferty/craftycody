@@ -24,7 +24,7 @@ Here are all the spots where you can tighten the arm to make sure it holds your 
 
 This is probably the most important one. It's located right behind where the arm attached to the monitor. You use the included, larger hex key to tighten it. It's pretty loose out of the box and we cranked it around _several_ times so that it would actually be able to hold the monitor in place. This one is a little easier to turn when the arm is off the stand so you can get a good angle.
 
-The next one is on the monitor plate and control how easy it is to pitch the monitor.
+The next one is on the monitor plate and controls how easy it is to pitch the monitor.
 
 These two control the swivel of the arms. You use the smaller Allen wrench to tighten them.
 
