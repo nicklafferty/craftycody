@@ -1,9 +1,9 @@
 +++
+date = 2020-04-27T05:00:00Z
 description = "I don’t like Yarnbee Luxe Lollies."
 image = "/uploads/luxelolliescrochetamigurumi.jpg"
-date = 2020-04-27T05:00:00Z
 slug = "yarnbee-luxe-lollies-rant"
-tags = ["crochet", "rant"]
+tags = ["crochet", "rant", "review"]
 title = "Yarn Rant – I don’t like Yarnbee Luxe Lollies"
 
 +++
