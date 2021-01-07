@@ -105,14 +105,14 @@ menu:
           name: Shop
           url: https://codyscraftcorner.square.site/
           weight: -95
-          pre: home
+          pre: shop
           hreftargetblank: true
 
         - identifier: crafts
           name: Crafts
           url: crafts
           weight: -80
-          pre: home
+          pre: crafts
 
         # - identifier: about
           # name: About
@@ -124,13 +124,13 @@ menu:
           name: Crochet
           url: crochet
           weight: -70
-          pre: home
+          pre: crochet
 
         - identifier: life
           name: Life
           url: life
           weight: -60
-          pre: home
+          pre: life
 
         # - identifier: search
           # name: Search
