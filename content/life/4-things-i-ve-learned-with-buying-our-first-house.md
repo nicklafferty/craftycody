@@ -1,5 +1,5 @@
 +++
-date = 2020-06-04T05:00:00Z
+date = 2020-06-05T05:00:00Z
 description = "Here's what I've learned about buying your first home."
 image = "/uploads/buying-a-house.png"
 slug = "buying-our-first-house"
