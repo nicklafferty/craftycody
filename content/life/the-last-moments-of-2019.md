@@ -1,7 +1,7 @@
 +++
+date = 2020-01-02T06:00:00Z
 description = "Reminiscing about a year gone by."
 image = "/uploads/nick-and-cody.jpg"
-date = 2020-01-01T06:00:00Z
 slug = "bye-2019"
 tags = ["life"]
 title = "The last moments of 2019"
