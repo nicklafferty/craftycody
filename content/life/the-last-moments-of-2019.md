@@ -1,5 +1,5 @@
 +++
-date = 2020-01-02T06:00:00Z
+date = 2020-01-01T06:00:00Z
 description = "Reminiscing about a year gone by."
 image = "/uploads/nick-and-cody.jpg"
 slug = "bye-2019"
