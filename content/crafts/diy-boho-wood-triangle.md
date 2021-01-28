@@ -36,6 +36,8 @@ Supplies:
 
 The wood I used was leftover from my corner shelf project I did in my bathroom. It's plywood I bought from Lowe's for about $18 and got three solid projects out of it- not too bad!
 
+**Be sure to always wear safety gear and be super safe when using power tools!** You don't want to breathe any dust in or get anything in your eyes. I always do little rituals before using saws especially. If you follow the same safety steps every time, then you can help prevent any accidents.
+
 ![](/uploads/pxl_20210125_192328004-mp_1.jpg)![](/uploads/pxl_20210125_200201794-mp_1.jpg)
 
 I started by clamping it to my workbench and trimming off the excess with my jigsaw to get a nice rectangle. It was 6 inches wide, so I marked off 2-inch spaces to get 3 even pieces for my triangle. As I said earlier, if you can get wider pieces then you can use this as a shelf, but I think mine is a little too narrow to put things in and just serves as wall decor.
