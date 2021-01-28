@@ -29,3 +29,5 @@ Supplies:
 5. Coping saw
 6. Ruler
 7. Square or Protractor for angles
+
+The wood I used was leftover from my corner shelf project I did in my bathroom. It's plywood I bought from Lowe's for about $18 and got three solid projects out of it- not too bad!
