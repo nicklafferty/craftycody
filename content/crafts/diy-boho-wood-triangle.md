@@ -18,7 +18,7 @@ Power Tools:
 
 1. Jigsaw
 2. Impact Driver
-3. Sheet Sander
+3. Sheet, Orbital, or Belt Sander
 
 Supplies:
 
@@ -41,3 +41,5 @@ I started by clamping it to my workbench and trimming off the excess with my jig
 Next, I used my saw to cut the strips apart and that's it for the jigsaw!
 
 ![](/uploads/pxl_20210125_200701187-mp_1.jpg)
+
+Now we need to cut one end on each triangle at an angle so they fit together. This is where your square or protractor, ruler, and pencil comes in
