@@ -22,15 +22,17 @@ Power Tools:
 
 Supplies:
 
-1. Stain
-2. Screws
-3. Wood glue
-4. Scrap plywood
-5. Coping saw
-6. Ruler
-7. Square or Protractor for angles
-8. Clamps
-9. Pencil
+ 1. Stain
+ 2. Screws
+ 3. Wood glue
+ 4. Scrap plywood
+ 5. Coping saw
+ 6. Ruler
+ 7. Square or Protractor for angles
+ 8. Clamps
+ 9. Pencil
+10. Safety glasses (always)
+11. Mask (always)
 
 The wood I used was leftover from my corner shelf project I did in my bathroom. It's plywood I bought from Lowe's for about $18 and got three solid projects out of it- not too bad!
 
@@ -70,4 +72,4 @@ Once it's firmly together, it's time to stain! Be sure to sand any excess glue o
 
 A nice stain can make anything look great! This project only took me a couple of hours (sans drying time) and I have a piece that looks like I went out and bought. It's always more special when you make it!
 
-[Tag me on Instagram](https://www.instagram.com/codyscraftcorner/) so I can see all your projects!
+[Tag me on Instagram](https://www.instagram.com/codyscraftcorner/) so I can see all your projects! Happy crafting!
