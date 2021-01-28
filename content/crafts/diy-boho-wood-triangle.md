@@ -75,3 +75,5 @@ Once it's firmly together, it's time to stain! Be sure to sand any excess glue o
 A nice stain can make anything look great! This project only took me a couple of hours (sans drying time) and I have a piece that looks like I went out and bought. It's always more special when you make it!
 
 [Tag me on Instagram](https://www.instagram.com/codyscraftcorner/) so I can see all your projects! Happy crafting!
+
+![](/uploads/pxl_20210127_011033108-mp_1.jpg)
