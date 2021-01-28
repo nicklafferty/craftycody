@@ -5,7 +5,7 @@ description = "How to make a cute Dollar Tree Christmas Tree."
 image = "/uploads/mouse-topiary-header.png"
 slug = "christmas-dollar-tree"
 tags = ["crafts"]
-title = "A very magical Dollar Tree craft 🏰"
+title = "DIY: A very magical Dollar Tree craft 🏰"
 
 +++
 I love Dollar Tree and I love getting craft supplies there to make super cheap, super cute creations. Especially when it’s Disney related.
