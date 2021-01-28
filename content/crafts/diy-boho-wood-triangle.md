@@ -43,3 +43,31 @@ Next, I used my saw to cut the strips apart and that's it for the jigsaw!
 ![](/uploads/pxl_20210125_200701187-mp_1.jpg)
 
 Now we need to cut one end on each triangle at an angle so they fit together. This is where your square or protractor, ruler, and pencil comes in. Mark off 60 degrees for each as your angle and you'll get a nice, equilateral triangle to hang up.
+
+![](/uploads/woodangleexample.png)
+
+![](/uploads/pxl_20210125_203716570-mp_1.jpg)
+
+60 degrees is not that sharp of an angle so you can't really see it in the photos, but I promise it's there. The best way I found to make the cut is with a coping saw. Might work if you have an adjustable mitre box, but I do not. Also, if you have none of the above, you can use a sander with really gritty paper to sand down the corner. It's difficult to get it even and flat, but it's doable and works in pinch.
+
+![](/uploads/pxl_20210125_203729307-mp_1.jpg)
+
+![](/uploads/pxl_20210125_204356254-mp_1.jpg)
+
+It's time to glue! Each corner will have an angled side and a flat side it gets glued to. I like this look and keeping one side untouched makes it easier to screw together later.
+
+![](/uploads/pxl_20210125_212713537-mp_1.jpg)![](/uploads/pxl_20210125_212717263-mp_1.jpg)![](/uploads/pxl_20210125_213816384-mp_1.jpg)
+
+Speaking of, it's time to screw (har har)! Let your glue dry for the allotted time it says on the bottle, then grab a drill and box of screws. These are screws I already had. If you're buying new for this project, get wood screws and make sure the length works. My plywood is about 3/4" thick so the length of these screws worked great.
+
+My drill was having a hard time getting the screws in (I think because of knots in the wood), so I grabbed my impact driver and made quick work of them. I started the screw on the thicker, flat sides and drilled into the angled sides as you can see below. Be careful about drilling too much because you can split the wood easily.
+
+![](/uploads/pxl_20210125_214600453-mp_1.jpg)
+
+Once it's firmly together, it's time to stain! Be sure to sand any excess glue off otherwise your stain won't be able to cover that part and it'll look splotchy. I'm speaking from experience here. You can choose any stain (or paint!) color you'd like- whatever goes with your decor! I went with "red mahogany".
+
+![](/uploads/pxl_20210125_214614684-mp_1.jpg)
+
+A nice stain can make anything look great! This project only took me a couple of hours (sans drying time) and I have a piece that looks like I went out and bought. It's always more special when you make it!
+
+[Tag me on Instagram](https://www.instagram.com/codyscraftcorner/) so I can see all your projects!
