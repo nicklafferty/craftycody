@@ -2,9 +2,9 @@
 author = "Cody"
 date = 2020-11-09T06:00:00Z
 description = "What a year. "
+image = "/uploads/2020-dumpster-fire.png"
 tags = ["life", "rants"]
 title = "2020 is almost over and I think we all couldn’t be happier."
-image = ""
 
 +++
 What a year.
