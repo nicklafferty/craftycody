@@ -1,10 +1,10 @@
 +++
-description = "Giving some TLC to an old dresser."
-image = "/uploads/green-dresser-done.jpg"
 date = 2020-04-22T05:00:00Z
+description = "Giving some TLC to an old dresser."
+image = "/uploads/pinkdresserglowup.png"
 slug = "updated-sweater-dresser"
-tags = ["furniture", "upcycle"]
-title = "Old Sweater Dresser Glow-Up"
+tags = ["furniture", "upcycle", "diy"]
+title = "DIY: Old Sweater Dresser Glow-Up"
 
 +++
 I am dangerously low on furniture to refinish. Luckily, we just bought a house so that’s occupying a lot of time. More on that later.
