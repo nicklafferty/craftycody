@@ -1,7 +1,7 @@
 +++
 date = 2021-01-27T06:00:00Z
 description = "With a few simple tools you can make cute, boho-inspired decor!"
-image = "/uploads/pxl_20210127_011033108-mp_1.jpg"
+image = "/uploads/wood-triangle-diy.png"
 slug = "diy-wood-triangle"
 tags = ["crafts", "DIY"]
 title = "DIY Boho Wooden Triangle"
