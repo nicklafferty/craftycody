@@ -29,5 +29,14 @@ Supplies:
 5. Coping saw
 6. Ruler
 7. Square or Protractor for angles
+8. Clamps
 
 The wood I used was leftover from my corner shelf project I did in my bathroom. It's plywood I bought from Lowe's for about $18 and got three solid projects out of it- not too bad!
+
+![](/uploads/pxl_20210125_192328004-mp_1.jpg)![](/uploads/pxl_20210125_200201794-mp_1.jpg)
+
+I started by clamping it to my workbench and trimming off the excess with my jigsaw to get a nice rectangle. It was 6 inches wide, so I marked off 2-inch spaces to get 3 even pieces for my triangle. As I said earlier, if you can get wider pieces then you can use this as a shelf, but I think mine is a little too narrow to put things in and just serves as wall decor.
+
+Next, I used my saw to cut the strips apart and that's it for the jigsaw!
+
+![](/uploads/pxl_20210125_200701187-mp_1.jpg)
