@@ -4,7 +4,7 @@ description = "With a few simple tools you can make cute, boho-inspired decor!"
 image = "/uploads/wood-triangle-diy.png"
 slug = "diy-wood-triangle"
 tags = ["crafts", "DIY"]
-title = "DIY Boho Wooden Triangle"
+title = "DIY: Boho Wooden Triangle"
 
 +++
 I love to build and make things. What I don't love is how expensive tools are. So, I'm going to try and make fun, inspired pieces with as few tools as possible and as inexpensively possible. We're going to make a boho-style triangle to hang on the wall. If made thick enough then it can be used as a shelf.
