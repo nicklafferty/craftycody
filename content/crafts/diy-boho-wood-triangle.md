@@ -14,11 +14,11 @@ This is the first tutorial where the only power tools I use are a jigsaw, impact
 
 Let's get started.
 
-Tools:
+Power Tools:
 
 1. Jigsaw
 2. Impact Driver
-3. Sander
+3. Sheet Sander
 
 Supplies:
 
@@ -26,3 +26,6 @@ Supplies:
 2. Screws
 3. Wood glue
 4. Scrap plywood
+5. Coping saw
+6. Ruler
+7. Square or Protractor for angles
