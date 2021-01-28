@@ -2,7 +2,7 @@
 author = "Cody"
 date = 2020-09-29T23:00:00Z
 description = "How to make a cute Dollar Tree Christmas Tree."
-image = "/uploads/pxl_20200929_1944131291860996776162107127.jpg"
+image = "/uploads/mouse-topiary-header.png"
 slug = "christmas-dollar-tree"
 tags = ["crafts"]
 title = "A very magical Dollar Tree craft 🏰"
