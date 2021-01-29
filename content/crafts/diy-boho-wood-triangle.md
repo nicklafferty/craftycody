@@ -13,6 +13,8 @@ This is the first tutorial where the only power tools I use are a jigsaw, impact
 
 Let's get started.
 
+## Supplies
+
 Power Tools:
 
 1. Jigsaw
@@ -32,6 +34,8 @@ Supplies:
  9. Pencil
 10. Safety glasses (always)
 11. Mask (always)
+
+## Steps
 
 The wood I used was leftover from my corner shelf project I did in my bathroom. It's plywood I bought from Lowe's for about $18 and got three solid projects out of it- not too bad!
 
