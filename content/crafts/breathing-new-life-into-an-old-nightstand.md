@@ -1,10 +1,10 @@
 +++
-description = "Giving my childhood nightstand a facelift."
-image = "/uploads/all-finished.jpg"
 date = 2020-04-04T05:00:00Z
+description = "Giving my childhood nightstand a facelift."
+image = "/uploads/nightsandupcycle.png"
 slug = "upcycle-nightstand"
-tags = ["furniture", "upcycle"]
-title = "Breathing New Life into an Old Nightstand"
+tags = ["furniture", "upcycle", "diy"]
+title = "DIY: Breathing New Life into an Old Nightstand"
 
 +++
 Shifting gears from Animal Crossing and shifting back to crafts for a minute. I’ve had this nightstand since I was a little kid and brought it along with me when my husband (then boyfriend) and I moved in together. It’s always faithfully stood by my bedside holding all my various knickknacks and treasures. Sidebar: I just learned “knickknack” is one word. Doesn’t that look weird? So weird.
