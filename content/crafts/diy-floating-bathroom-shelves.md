@@ -2,10 +2,10 @@
 date = ""
 description = "All you need is a jigsaw and drill to create these neat corner shelves!"
 draft = true
-image = ""
+image = "/uploads/fauxfloatingshelves.png"
 slug = "diy-floating-shelves"
 tags = ["DIY"]
-title = "DIY Floating Bathroom Shelves"
+title = "DIY Faux Floating Bathroom Shelves"
 
 +++
 _This post contains affiliate links at no cost to you._
