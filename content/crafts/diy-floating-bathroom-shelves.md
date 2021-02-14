@@ -8,6 +8,8 @@ tags = ["DIY"]
 title = "DIY Floating Bathroom Shelves"
 
 +++
+_This post contains affiliate links at no cost to you._
+
 The only saw I ever wanted was a jigsaw. They're maneuverable and, with mild effort, can cut a straight line. Their versatility and portability make them an attractive first saw for any handywoman thinking about building something. You are limited on thicker pieces of wood where a miter saw would shine, but if you don't mind making a couple of extra cuts then you're all good. (BETTER FOR A JIGSAW REVIEW?)
 
 Our bathroom needed some details to spruce it up. When we bought the house, the primary bath looked completely different than it does now. All the big things were updated and now it's time to add some personality and tchotchkes.
@@ -18,12 +20,12 @@ Lightbulb: shelving. I had spare plywood from the shelf I made for our pantry an
 
 ## Supplies:
 
-1. Jigsaw
+1. [Jigsaw](https://www.amazon.com/gp/product/B07JPFHQKG/ref=as_li_qf_asin_il_tl?ie=UTF8&tag=codybear0e-20&creative=9325&linkCode=as2&creativeASIN=B07JPFHQKG&linkId=a6a0b213843d5f2722fd0e3ec98cff49)
 2. Drill
 3. Screws
 4. L-brackets
 5. Plywood (mine was 3/4" thick)
-6. Laser level
+6. [Laser level](https://www.amazon.com/gp/product/B01N33JJ3R/ref=as_li_qf_asin_il_tl?ie=UTF8&tag=codybear0e-20&creative=9325&linkCode=as2&creativeASIN=B01N33JJ3R&linkId=f8144803b2ff1f8262ee069161fd1fe0)
 7. Ruler or Square
 8. Stain
 9. Wood Glue
