@@ -14,7 +14,7 @@ Our bathroom needed some details to spruce it up. When we bought the house, the 
 
 The space above the vanity was looking a little barren. We removed the light and had recessed lighting installed instead, so we were left with a big, blank wall that now has a singular mirror on it. I wanted to get some greenery in there, but there was no place to put potted plants or anything else for that matter sans hanging something.
 
-Lightbulb: shelving. I had spare plywood from the shelf I made for our pantry and I've always liked how corner shelves look. Time to experiment!
+Lightbulb: shelving! I had spare plywood from the shelf I made for our pantry and I've always liked how corner shelves look. Time to experiment!
 
 ## Supplies:
 
