@@ -36,6 +36,8 @@ I measured out the hypotenuse of the shelves to be 14 inches and used a level to
 
 After it dries, use a mitre box and saw to cut the excess off of that strip. This shelf is a right triangle so you'll want to use the 45-degree slot. The saw should slide down the side of the shelf and cut the excess. Do this for both sides and that front strip will look like a seamless part of the shelf. Note that your shelves will be slightly wider than 14 inches now.
 
+![](/uploads/mitreboxcutline.png)
+
 Now it's time to stain. Pick whatever stain or paint color you like. I have an excess of red mahogany so that's what all my wood gets stained as. Chip away any excess glue you may have missed before staining.
 
 ![](/uploads/bathshelfdiy_1.jpg)
