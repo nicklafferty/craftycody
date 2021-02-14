@@ -14,4 +14,6 @@ Our bathroom needed some little details to spruce it up. When we bought the hous
 
 The space above the vanity was looking a little barren. We removed the light and had recessed lighting installed instead, so we were left with a big, blank wall that now has a singular mirror on it. I wanted to get some greenery in there, but there was no place to put potted plants or anything else for that matter sans hanging something.
 
-Lightbulb: shelving. I had spare
+Lightbulb: shelving. I had spare plywood from the shelf I made for our pantry and I've always liked how corner shelves look. Time to experiment!
+
+I used a piece of yarn to measure out how wide I wanted my shelves and decide what would look good for the space. Since one would be over a towel rack and the sink, I didn't want them to be too big and be in the way, but they also needed to hold decor. I decided that about **14 inches** wide would work just fine.
