@@ -1,5 +1,5 @@
 +++
-date = ""
+date = 2021-02-14T06:00:00Z
 description = "All you need is a jigsaw and drill to create these neat corner shelves!"
 image = "/uploads/fauxfloatingshelves.png"
 slug = "diy-floating-shelves"
