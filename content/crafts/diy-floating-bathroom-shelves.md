@@ -17,3 +17,5 @@ The space above the vanity was looking a little barren. We removed the light and
 Lightbulb: shelving. I had spare plywood from the shelf I made for our pantry and I've always liked how corner shelves look. Time to experiment!
 
 I used a piece of yarn to measure out how wide I wanted my shelves and decide what would look good for the space. Since one would be over a towel rack and the sink, I didn't want them to be too big and be in the way, but they also needed to hold decor. I decided that about **14 inches** wide would work just fine.
+
+I measured out the hypotenuse of the shelves to be 14 inches and used a level to make sure my ruler was straight. This would be easier if you have a larger square ruler. Then, I brought out my trusty jigsaw and cut down the line i just made.
