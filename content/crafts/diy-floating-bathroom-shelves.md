@@ -21,9 +21,9 @@ Lightbulb: shelving. I had spare plywood from the shelf I made for our pantry an
 1. [Jigsaw](https://www.amazon.com/gp/product/B07JPFHQKG/ref=as_li_qf_asin_il_tl?ie=UTF8&tag=codybear0e-20&creative=9325&linkCode=as2&creativeASIN=B07JPFHQKG&linkId=a6a0b213843d5f2722fd0e3ec98cff49)
 2. Drill
 3. Screws
-4. L-brackets
+4. [L-brackets](https://www.lowes.com/pd/National-Hardware-1-1-2-in-Steel-Zinc-Plated-Corner-Brace/1000201729)
 5. Plywood (mine was 3/4" thick)
-6. [Laser level](https://www.amazon.com/gp/product/B01N33JJ3R/ref=as_li_qf_asin_il_tl?ie=UTF8&tag=codybear0e-20&creative=9325&linkCode=as2&creativeASIN=B01N33JJ3R&linkId=f8144803b2ff1f8262ee069161fd1fe0)
+6. [Laser level](https://www.amazon.com/gp/product/B01N33JJ3R/ref=as_li_qf_asin_il_tl?ie=UTF8&tag=codybear0e-20&creative=9325&linkCode=as2&creativeASIN=B01N33JJ3R&linkId=f8144803b2ff1f8262ee069161fd1fe0) (this is the one I used)
 7. Ruler or Square
 8. Stain
 9. Wood Glue
