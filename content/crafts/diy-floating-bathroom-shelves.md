@@ -16,7 +16,7 @@ The space above the vanity was looking a little barren. We removed the light and
 
 Lightbulb: shelving. I had spare plywood from the shelf I made for our pantry and I've always liked how corner shelves look. Time to experiment!
 
-Supplies:
+## Supplies:
 
 1. Jigsaw
 2. Drill
