@@ -1,7 +1,6 @@
 +++
 date = ""
 description = "All you need is a jigsaw and drill to create these neat corner shelves!"
-draft = true
 image = "/uploads/fauxfloatingshelves.png"
 slug = "diy-floating-shelves"
 tags = ["DIY"]
