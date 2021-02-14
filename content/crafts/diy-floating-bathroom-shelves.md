@@ -46,7 +46,7 @@ When it's dry, it's time to hang! I used a [laser level](https://www.amazon.com/
 
 ![](/uploads/bathshelfdiy_2.jpg)
 
-![](/uploads/bathshelfdiy_4.jpg)
+![You'll notice the edge doesn't meet the wall- USE A MITRE BOX!](/uploads/bathshelfdiy_4.jpg)
 
 Voila! All done! The whole project takes about a day for drying time, but only costs a few dollars total- especially if you have scrap wood lying around. If you want them to have a bottom piece, you can cut another triangle out that's the same width as your shelf with the strip attached. Mount the shelf in the same way, then glue the bottom triangle onto the strip and 100% clamp until cured.
 
