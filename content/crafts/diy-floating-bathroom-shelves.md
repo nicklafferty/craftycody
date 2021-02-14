@@ -38,7 +38,7 @@ After it dries, use a mitre box and saw to cut the excess off of that strip. Thi
 
 ![](/uploads/mitreboxcutline.png)
 
-Now it's time to stain. Pick whatever stain or paint color you like. I have an excess of red mahogany so that's what all my wood gets stained as. Chip away any excess glue you may have missed before staining.
+Now it's time to stain. Pick whatever stain or paint color you like. I have an excess of red mahogany so that's what all my wood gets stained as. Chip or sand away any excess glue you may have missed before staining.
 
 ![](/uploads/bathshelfdiy_1.jpg)
 
