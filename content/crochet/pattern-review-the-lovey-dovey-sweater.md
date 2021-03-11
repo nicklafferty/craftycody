@@ -14,7 +14,7 @@ The ["Lovey Dovey Sweater" is a crochet pattern by CozyCreativeCrochets](https:/
 
 After Instagram suggested her page, I fell in love with the "Lovey Dovey" sweater. It's a crop top that would work well with my high-waisted jeans and skirts and has a fun, boho vibe. I appreciated that it didn't call for bulky yarn and instead uses lighter-weight cotton yarn- definitely what I prefer to make clothing items out of these days. It's also cheaper than bulky yarn, so big plus there.
 
-The pattern itself is fairly easy to follow. It suggests you be an intermediate crocheter and I agree. There were a couple of places I had to re-read to make sure I understood, but all-in-all I don't think I deviated far from the pattern besides the modification I made for length and sizing.
+The pattern itself is fairly easy to follow. It suggests you be an intermediate crocheter and I agree. There were a couple of places I had to re-read to make sure I understood, but all-in-all I don't think I deviated far from the pattern besides the modifications I made for length and sizing.
 
 The one thing I would actually critique is the lack of photos. There are only 3 showing the process- e.g. where to attach the yarn to start the sleeves- and 2 of them are practically the same image. It's the front and back in the same stage of completion. For almost $10 I would like more photos detailing what each stage should look like and directions you'll be crocheting since there is a lot of detaching and reattaching.
 
