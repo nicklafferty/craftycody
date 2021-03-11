@@ -25,3 +25,5 @@ The pattern itself is fairly easy to follow. It suggests you be an intermediate 
 The real critique I have is the lack of photos. There are only 3 showing the process- e.g. where to attach the yarn to start the sleeves- and 2 of them are practically the same image. It's the front and back in the same stage of completion. For almost $10 I would like more photos detailing what each stage should look like and directions you'll be crocheting since there is a lot of detaching and reattaching. I'm a very visual learner and images for new-to-me patterns help a great deal.
 
 ## Mods
+
+I don't like 3/4" sleeves. I know that I'll be constantly trying to pull them down. I like how longer sleeves hit my hands and make my fingers look longer and more feminine. I knew when I bought this pattern that I'd be making the sleeves 1. tighter and 2. longer. Here's what I did:
