@@ -8,7 +8,11 @@ tags = ["review", "crochet"]
 title = "Pattern Review: The Lovey Dovey Sweater"
 
 +++
-The ["Lovey Dovey Sweater" is a crochet pattern by CozyCreativeCrochets](https://www.cozycreativecrochets.com/product-page/the-lovey-dovey-sweater-crochet-pattern) aka Heather Cummings and is available for purchase on her website. I started following [her Instagram](https://www.instagram.com/cozycreativecrochets/) when the app suggested I might like her page. Spoiler alert: I do like her stuff! She has a lot of unique tops that were the style I was after. I love sweaters, but since I live in Texas there aren't a lot of opportunities to wear them. Plus, I have a ton of cozy, store-bought ones that I rotate through during our 2 weeks of winter. I was looking for some patterns that were long-sleeved, fairly simple to make, and would be appropriate for our climate- maybe something I could wear into spring perhaps? 
+The ["Lovey Dovey Sweater" is a crochet pattern by CozyCreativeCrochets](https://www.cozycreativecrochets.com/product-page/the-lovey-dovey-sweater-crochet-pattern) aka Heather Cummings and is available for purchase on her website. I started following [her Instagram](https://www.instagram.com/cozycreativecrochets/) when the app suggested I might like her page. 
+
+Spoiler alert: I do like her stuff! 
+
+She has a lot of unique tops that were the style I was after. I love sweaters, but since I live in Texas there aren't a lot of opportunities to wear them. Plus, I have a ton of cozy, store-bought ones that I rotate through during our 2 weeks of winter. I was looking for some patterns that were long-sleeved, fairly simple to make, and would be appropriate for our climate- maybe something I could wear into spring perhaps? 
 
 ## Review
 
