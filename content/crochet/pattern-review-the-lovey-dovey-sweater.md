@@ -26,6 +26,8 @@ The real critique I have is the lack of photos. There are only 3 showing the pro
 
 ## Mods
 
+The yarn I used was [Hobby Lobby's "I love this Cotton Yarn" in sage](https://www.hobbylobby.com/Yarn-Needle-Art/Yarn/Sage-I-Love-This-Cotton-Yarn/p/36185). I bought 5 skeins and went during one of their 30% off all yarn sales. In total, it was about $14.
+
 I don't like 3/4" sleeves. I know that I'll be constantly trying to pull them down. I like how longer sleeves hit my hands and make my fingers look longer and more feminine. I knew when I bought this pattern that I'd be making the sleeves 1. tighter and 2. longer. Here's what I did in order of how the pattern is written:
 
 \-I used a "G" (4.25mm) hook throughout the entire pattern.
