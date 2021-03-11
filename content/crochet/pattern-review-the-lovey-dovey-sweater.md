@@ -26,4 +26,18 @@ The real critique I have is the lack of photos. There are only 3 showing the pro
 
 ## Mods
 
-I don't like 3/4" sleeves. I know that I'll be constantly trying to pull them down. I like how longer sleeves hit my hands and make my fingers look longer and more feminine. I knew when I bought this pattern that I'd be making the sleeves 1. tighter and 2. longer. Here's what I did:
+I don't like 3/4" sleeves. I know that I'll be constantly trying to pull them down. I like how longer sleeves hit my hands and make my fingers look longer and more feminine. I knew when I bought this pattern that I'd be making the sleeves 1. tighter and 2. longer. Here's what I did in order of how the pattern is written:
+
+\-I used a "G" (4.25mm) hook throughout the entire pattern.
+
+\-For the **Sleeves** section: I did 42 rows before starting the decreasing rows that make the cuffs.
+
+\-I did 2 rounds of decreases to make the cuffs tighter
+
+\-Repeated rounds 32-35 and extra time (3x instead of 2x)
+
+\-Then, 7 rounds of HDC (repeating round 34 essentially)
+
+\-When I got the length right on my wrists, I added a row of scallops for cuffs. I used the same row as the one used to finish the bottom of the bodice.
+
+Remember that this is all relative. Always try on your piece as you crochet to make sure you're getting the sizing right. I always crochet smaller than the pattern so I have to make lots of extra rows to make sure the thing actually fits. One time, I made a top, and it came out looking like it was for a baby, but I used the same hook and yarn as the pattern suggested! Needless to say, I had to add a _lot_ of extra row on that one. I don't think I crochet particularly tight, but oh well.
