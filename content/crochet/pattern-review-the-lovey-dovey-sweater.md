@@ -8,3 +8,4 @@ tags = ["review", "crochet"]
 title = "Pattern Review: The Lovey Dovey Sweater"
 
 +++
+The "[Lovey Dovey Sweater" is a crochet pattern by CozyCreativeCrochets](https://www.cozycreativecrochets.com/product-page/the-lovey-dovey-sweater-crochet-pattern) aka Heather Cummings.
