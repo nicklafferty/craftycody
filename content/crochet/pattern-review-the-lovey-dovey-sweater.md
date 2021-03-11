@@ -14,7 +14,7 @@ Spoiler alert: I do like her stuff!
 
 She has a lot of unique tops that were the style I was after. I love sweaters, but since I live in Texas there aren't a lot of opportunities to wear them. Plus, I have a ton of cozy, store-bought ones that I rotate through during our 2 weeks of winter. I was looking for some patterns that were long-sleeved, fairly simple to make, and would be appropriate for our climate- maybe something I could wear into spring perhaps?
 
-I'll post my thoughts and modifications below. I won't be reposting anything from the pattern. If you want to try it out, buy it. 
+I'll post my thoughts and modifications below. I won't be reposting anything from the pattern specifically.
 
 ## Review
 
