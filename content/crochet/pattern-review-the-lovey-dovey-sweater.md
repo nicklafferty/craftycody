@@ -34,7 +34,7 @@ I don't like 3/4" sleeves. I know that I'll be constantly trying to pull them do
 
 \-I did 2 rounds of decreases to make the cuffs tighter
 
-\-Repeated rounds 32-35 and extra time (3x instead of 2x)
+\-Repeated rounds 32-35 an extra time (3x instead of 2x)
 
 \-Then, 7 rounds of HDC (repeating round 34 essentially)
 
