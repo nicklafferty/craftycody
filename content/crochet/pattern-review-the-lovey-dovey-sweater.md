@@ -20,7 +20,7 @@ I'll post my thoughts and modifications below. I won't be reposting anything fro
 
 After Instagram suggested her page, I fell in love with the "Lovey Dovey" sweater. It's a crop top that would work well with high-waisted jeans and skirts and has a fun, boho vibe. I appreciated that it didn't call for bulky yarn and instead uses lighter-weight cotton yarn- definitely what I prefer to make clothing items out of these days. It's also cheaper than bulky yarn, so big plus there.
 
-The pattern itself is fairly easy to follow. It suggests you be an intermediate crocheter and I agree. There were a couple of places I had to re-read to make sure I understood, but all-in-all I don't think I deviated far from the pattern besides the modifications I made for length and sizing.
+The pattern itself is fairly easy to follow. It suggests you be an intermediate crocheter and I agree. There were a couple of places I had to re-read to make sure I understood, but all-in-all I don't think I deviated far from the pattern besides the modifications I made for length and sizing. It's pretty straightforward how to resize as you go and she gives instructions on how to do so to get you started.
 
 The real critique I have is the lack of photos. There are only 3 showing the process- e.g. where to attach the yarn to start the sleeves- and 2 of them are practically the same image. It's the front and back in the same stage of completion. For almost $10 I would like more photos detailing what each stage should look like and directions you'll be crocheting since there is a lot of detaching and reattaching. I'm a very visual learner and images for new-to-me patterns help a great deal.
 
@@ -53,3 +53,5 @@ I don't like 3/4" sleeves. I know that I'll constantly be trying to pull them do
 \-When I got the length right on my wrists, I added a row of scallops for cuffs. I used the same row as the one used to finish the bottom of the bodice.
 
 Remember that this is all relative. Always try on your piece as you crochet to make sure you're getting the sizing right. I crochet smaller than the pattern so I have to make lots of extra rows to make sure the thing actually fits. One time, I made a top, and it came out looking like it was for a baby, but I used the same hook and yarn as the pattern suggested! Needless to say, I had to add a _lot_ of extra rows on that one. I don't think I crochet particularly tight, but oh well.
+
+[Check out her stuff](https://www.cozycreativecrochets.com/)- she has so many cute patterns. I'll be getting more too. Already have my eye on a summery crop top.
