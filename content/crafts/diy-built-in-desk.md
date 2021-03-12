@@ -4,7 +4,7 @@ description = "A simple built-in desk for a weird nook in our guest room."
 draft = true
 image = ""
 slug = ""
-tags = []
+tags = ["diy"]
 title = "DIY: Built-In Desk"
 
 +++
@@ -38,4 +38,8 @@ Measure twice, cut once. That will be the theme of this whole DIY. The width of 
 
 I cut my plywood boards a little shorter than I needed so they would fit snuggly against the back wall. Nothing went in straight. Everything went in at an angle to miss that narrow bit and was laid down at the back.
 
-The 2/4s were much simpler since they're only 2 inches wide versus about 24 inches like the plywood. I cut one the width of the back wall and mounted it into two studs. This table will be heavy- find your studs! This is also the first time I've used Torx screws and oh my goodness I will never go back. Our contractors used them and I've read quite a bit about them in [r/HomeImprovement](https://www.reddit.com/r/HomeImprovement/) over on Reddit. They don't strip! They're magnificent. I used this project as an excuse to get a jar of them. Hopefully, I'll need 4-inch screws in the future!
+To cut a straight line with my jigsaw, I clamped some scrap wood so the plate of the jig could ride alongside it and not wiggle around. This got a pretty clean cut for me. I also drew all my lines with my new, longer level.
+
+The 2/4s were much simpler since they're only 2 inches wide versus about 24 inches like the plywood. I cut one the width of the back wall and mounted it into two studs. This table will be heavy- find your studs! The side pieces I cut shorter than the width of my tabletop because I didn't want to be able to see them. The left side was able to go into studs, but the shared closet wall had nothing so I had to get some heavy-duty drywall anchors that claim to hold 75lbs each- so far so good! I drilled the screws through the 2x4 and into the wall a little bit to know where to put the anchors. It feels secure as if it's in studs.
+
+This is also the first time I've used Torx screws and oh my goodness I will never go back. Our contractors used them and I've read quite a bit about them in [r/HomeImprovement](https://www.reddit.com/r/HomeImprovement/) over on Reddit. They don't strip! They're magnificent. I used this project as an excuse to get a jar of them. Hopefully, I'll need 4-inch screws in the future!
