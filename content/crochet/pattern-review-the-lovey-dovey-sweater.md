@@ -1,6 +1,6 @@
 +++
 date = ""
-description = "Taking a look at a cute pattern, the yarn I used, and any mods I made."
+description = "Taking a look at a cute sweater pattern, the yarn I used, and any mods I made."
 draft = true
 image = ""
 slug = "review-lovey-dovey"
