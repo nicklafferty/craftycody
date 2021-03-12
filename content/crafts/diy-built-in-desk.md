@@ -38,7 +38,9 @@ Measure twice, cut once. That will be the theme of this whole DIY. The width of 
 
 I cut my plywood boards a little shorter than I needed so they would fit snuggly against the back wall. Nothing went in straight. Everything went in at an angle to miss that narrow bit and was laid down at the back.
 
-To cut a straight line with my jigsaw, I clamped some scrap wood so the plate of the jig could ride alongside it and not wiggle around. This got a pretty clean cut for me. I also drew all my lines with my new, longer level.
+To cut a straight line with my jigsaw, I clamped some scrap wood so the plate of the jig could ride alongside it and not wiggle around. This got a pretty clean cut for me. I also drew all my lines with my new, longer level. 
+
+Once cut and stained, I glued the two pieces together. This is before I had the idea for trim, so if I did it over I would probably only do one piece of plywood.
 
 The 2/4s were much simpler since they're only 2 inches wide versus about 24 inches like the plywood. First, I stained them and let them dry. Then, I cut one the width of the back wall and mounted it into two studs. This table will be heavy- find your studs! The side pieces I cut shorter than the width of my tabletop because I didn't want to be able to see them. The left side was able to go into studs, but the shared closet wall had nothing so I had to get some heavy-duty drywall anchors that claim to hold 75lbs each- so far so good! I drilled the screws through the 2x4 and into the wall a little bit to know where to put the anchors. It feels secure as if it's in studs.
 
