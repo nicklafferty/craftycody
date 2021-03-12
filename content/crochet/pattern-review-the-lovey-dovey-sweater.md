@@ -8,9 +8,9 @@ tags = ["review", "crochet"]
 title = "Pattern Review: The Lovey Dovey Sweater"
 
 +++
-The ["Lovey Dovey Sweater" is a crochet pattern by CozyCreativeCrochets](https://www.cozycreativecrochets.com/product-page/the-lovey-dovey-sweater-crochet-pattern) aka Heather Cummings and is available for purchase on her website. I started following [her Instagram](https://www.instagram.com/cozycreativecrochets/) when the app suggested I might like her page. 
+The ["Lovey Dovey Sweater" is a crochet pattern by CozyCreativeCrochets](https://www.cozycreativecrochets.com/product-page/the-lovey-dovey-sweater-crochet-pattern) aka Heather Cummings and is available for purchase on her website. I started following [her Instagram](https://www.instagram.com/cozycreativecrochets/) when the app suggested I might like her page.
 
-Spoiler alert: I do like her stuff! 
+Spoiler alert: I do like her stuff!
 
 She has a lot of unique tops that were the style I was after. I love sweaters, but since I live in Texas there aren't a lot of opportunities to wear them. Plus, I have a ton of cozy, store-bought ones that I rotate through during our 2 weeks of winter. I was looking for some patterns that were long-sleeved, fairly simple to make, and would be appropriate for our climate- maybe something I could wear into spring perhaps?
 
@@ -24,9 +24,11 @@ The pattern itself is fairly easy to follow. It suggests you be an intermediate 
 
 The real critique I have is the lack of photos. There are only 3 showing the process- e.g. where to attach the yarn to start the sleeves- and 2 of them are practically the same image. It's the front and back in the same stage of completion. For almost $10 I would like more photos detailing what each stage should look like and directions you'll be crocheting since there is a lot of detaching and reattaching. I'm a very visual learner and images for new-to-me patterns help a great deal.
 
-## Mods
+## Yarn
 
 The yarn I used was [Hobby Lobby's "I love this Cotton Yarn" in sage](https://www.hobbylobby.com/Yarn-Needle-Art/Yarn/Sage-I-Love-This-Cotton-Yarn/p/36185). I bought 5 skeins and went during one of their 30% off all yarn sales. In total, it was about $14.
+
+## Mods
 
 I don't like 3/4" sleeves. I know that I'll be constantly trying to pull them down. I like how longer sleeves hit my hands and make my fingers look longer and more feminine. I knew when I bought this pattern that I'd be making the sleeves 1. tighter and 2. longer. Here's what I did in order of how the pattern is written:
 
