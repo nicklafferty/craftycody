@@ -26,11 +26,19 @@ The real critique I have is the lack of photos. There are only 3 showing the pro
 
 ## Yarn
 
-The yarn I used was [Hobby Lobby's "I love this Cotton Yarn" in sage](https://www.hobbylobby.com/Yarn-Needle-Art/Yarn/Sage-I-Love-This-Cotton-Yarn/p/36185). I bought 5 skeins and went during one of their 30% off all yarn sales. In total, it was about $14.
+The yarn I used was [Hobby Lobby's "I love this Cotton Yarn" in sage](https://www.hobbylobby.com/Yarn-Needle-Art/Yarn/Sage-I-Love-This-Cotton-Yarn/p/36185). I bought 5 skeins and went during one of their 30% off all yarn sales. In total it was about $14.
+
+I don't work with cotton yarn a lot, but as I said earlier, I enjoy using it for wearables. I used to use acrylic yarn, but everything came out so bulky, shapeless, and scratchy. I don't really like shapeless clothing so a thinner, lighter-weight yarn is welcome when making clothes.
+
+This yarn is really soft, but it also strikes me as being a little thin. It says it's a weight 4 yarn, but it almost works up as a thicker weight 3. I think this also contributed to my problem of the shirt coming out smaller than the pattern. This might just be a "me" issue though.
+
+The range of colors is great, there are a ton of options. I did notice that the multi-colored skeins had less yardage than the solid colors. Something to keep in mind there.
+
+I will definitely be using this brand again for future projects.
 
 ## Mods
 
-I don't like 3/4" sleeves. I know that I'll be constantly trying to pull them down. I like how longer sleeves hit my hands and make my fingers look longer and more feminine. I knew when I bought this pattern that I'd be making the sleeves 1. tighter and 2. longer. Here's what I did in order of how the pattern is written:
+I don't like 3/4" sleeves. I know that I'll constantly be trying to pull them down. I like how longer sleeves hit my hands and make my fingers look longer and more feminine. I knew when I bought this pattern that I'd be making the sleeves 1. tighter and 2. longer. Here's what I did in order of how the pattern is written:
 
 \-I used a "G" (4.25mm) hook throughout the entire pattern.
 
