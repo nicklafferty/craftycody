@@ -32,7 +32,7 @@ I don't work with cotton yarn a lot, but as I said earlier, I enjoy using it for
 
 This yarn is really soft, but it also strikes me as being a little thin. It says it's a weight 4 yarn, but it almost works up as a thicker weight 3. I think this also contributed to my problem of the shirt coming out smaller than the pattern. This might just be a "me" issue though.
 
-The range of colors is great, there are a ton of options. I did notice that the multi-colored skeins had less yardage than the solid colors. Something to keep in mind there.
+The range of colors is great, there are a ton of options. I did notice that the multi-colored skeins had less yardage than the solid colors. Something to keep in mind.
 
 I will definitely be using this brand again for future projects.
 
