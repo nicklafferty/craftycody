@@ -48,7 +48,7 @@ I don't like 3/4" sleeves. I know that I'll constantly be trying to pull them do
 
 \-Repeated rounds 32-35 an extra time (3x instead of 2x)
 
-\-Then, 7 rounds of HDC (repeating round 34 essentially)
+\-Then, added 7 rounds of HDC (repeating round 34 essentially)
 
 \-When I got the length right on my wrists, I added a row of scallops for cuffs. I used the same row as the one used to finish the bottom of the bodice.
 
