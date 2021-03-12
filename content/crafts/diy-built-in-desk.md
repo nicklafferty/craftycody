@@ -29,7 +29,7 @@ Here's what I did:
  7. Drill/Impact driver
  8. Level
  9. Sander
-10. Stain and brush
+10. Stain and brush (we chose "special walnut")
 11. Measuring tape
 
 ## Process
@@ -45,3 +45,11 @@ Once cut and stained, I glued the two pieces together. This is before I had the 
 The 2/4s were much simpler since they're only 2 inches wide versus about 24 inches like the plywood. First, I stained them and let them dry. Then, I cut one the width of the back wall and mounted it into two studs. This table will be heavy- find your studs! The side pieces I cut shorter than the width of my tabletop because I didn't want to be able to see them. The left side was able to go into studs, but the shared closet wall had nothing so I had to get some heavy-duty drywall anchors that claim to hold 75lbs each- so far so good! I drilled the screws through the 2x4 and into the wall a little bit to know where to put the anchors. It feels secure as if it's in studs.
 
 This is also the first time I've used Torx screws and oh my goodness I will never go back. Our contractors used them and I've read quite a bit about them in [r/HomeImprovement](https://www.reddit.com/r/HomeImprovement/) over on Reddit. They don't strip! They're magnificent. I used this project as an excuse to get a jar of them. Hopefully, I'll need 4-inch screws in the future!
+
+We had the idea for trim around the edges and front afterward, so we rand to Lowe's to get some nice 1x3s. I stained and cut one the length of the tabletop, then glued it to the front and clamped it down.
+
+After that was dry, I ran glue around the top of the mounting boards, then put the finished tabletop on and let dry. Make sure everything fits and is the right height before you glue it down. I had to move my 2x4s down 3 inches because it was a tad high for the chair.
+
+Then, I cut the back trim piece and glued it to the tabletop NOT the wall. If I ever want to take this thing off, I want it to be as clean as possible. I cut the last 1x3 in half and those pieces fit on the sides perfectly (a happy accident).
+
+Voila! An extremely sturdy and cute desk that you can build and customize to your liking.
