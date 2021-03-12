@@ -54,6 +54,6 @@ I don't like 3/4" sleeves. I know that I'll constantly be trying to pull them do
 
 \***If you wanted, you could skip the sleeves altogether and have a crop tank top. You'd also save a lot of yarn by doing this. I believe I used two skeins per sleeve and the entire bodice was only one.
 
-Remember that this is all relative. Always try on your piece as you crochet to make sure you're getting the sizing right. I crochet smaller than the pattern so I have to make lots of extra rows to make sure the thing actually fits. One time, I made a top, and it came out looking like it was for a baby, but I used the same hook and yarn as the pattern suggested! Needless to say, I had to add a _lot_ of extra rows on that one. I don't think I crochet particularly tight, but oh well.
+Remember that this is all relative. Always try on your piece as you crochet to make sure you're getting the sizing right. I typically crochet smaller than the pattern so I have to make lots of extra rows to make sure the thing actually fits. One time, I made a top, and it came out looking like it was for a baby, but I used the same hook and yarn as the pattern suggested! Needless to say, I had to add a _lot_ of extra rows on that one. I don't think I crochet particularly tight, but oh well.
 
 [Check out her stuff](https://www.cozycreativecrochets.com/)- she has so many cute patterns. I'll be getting more too. Already have my eye on a summery crop top.
