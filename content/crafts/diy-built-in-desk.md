@@ -23,7 +23,7 @@ Here's what I did:
  1. Two 3/4" plywood boards (nice) for tabletops. This is if you want to glue them together for a thicker top. In retrospect, I would have only gotten one.
  2. 2x4s for mounts
  3. 1x3s for trim
- 4. Screws
+ 4. Screws (3-4in)
  5. Wood glue
  6. Jigsaw
  7. Drill/Impact driver
@@ -33,3 +33,9 @@ Here's what I did:
 11. Measuring tape
 
 ## Process
+
+Measure twice, cut once. That will be the theme of this whole DIY. The width of my nook was _almost_ 38 1/4" inches, but the right wall sloped in slightly meaning that the gap was narrower in some places. Great, thank you old house.
+
+I cut my plywood boards a little shorter than I needed so they would fit snuggly against the back wall. Nothing went in straight. Everything went in at an angle to miss that narrow bit and was laid down at the back.
+
+The 2/4s were much simpler since they're only 2 inches wide versus about 24 inches like the plywood. I cut one the width of the back wall and mounted it into two studs. This table will be heavy- find your studs! This is also the first time I've used Torx screws and oh my goodness I will never go back. Our contractors used them and I've read quite a bit about them in [r/HomeImprovement](https://www.reddit.com/r/HomeImprovement/) over on Reddit. They don't strip! They're magnificent. I used this project as an excuse to get a jar of them. Hopefully, I'll need 4-inch screws in the future!
