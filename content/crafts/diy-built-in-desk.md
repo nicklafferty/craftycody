@@ -24,14 +24,15 @@ Here's what I did:
  2. 2x4s for mounts
  3. 1x3s for trim
  4. Screws (3-4in)
- 5. Wood glue
- 6. Jigsaw
- 7. Drill/Impact driver
- 8. Level
- 9. Sander
-10. Stain and brush (we chose "special walnut")
-11. Spray paint (optional)
-12. Measuring tape
+ 5. Drywall anchors (if needed)
+ 6. Wood glue
+ 7. Jigsaw
+ 8. Drill/Impact driver
+ 9. Level
+10. Sander
+11. Stain and brush (we chose "special walnut")
+12. Spray paint (optional)
+13. Measuring tape
 
 ## Process
 
