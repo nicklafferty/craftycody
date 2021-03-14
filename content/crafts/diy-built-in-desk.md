@@ -2,8 +2,8 @@
 date = ""
 description = "A simple built-in desk for a weird nook in our guest room."
 draft = true
-image = ""
-slug = ""
+image = "/uploads/built-in-desk-diy.png"
+slug = "built-in-desk-diy"
 tags = ["diy"]
 title = "DIY: Built-In Desk"
 
