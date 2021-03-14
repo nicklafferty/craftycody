@@ -12,7 +12,7 @@ When we bought our house the guest room had a small nook by the closet with a pl
 
 After we renovated, we were left with this small space that we weren't quite sure what to do with. It fit a dresser just fine, but the guest room didn't really need one. I had painted a larger one that was in there as well and has a nice, long tabletop for knick-knacks. We had a table right there for a bit and my folks liked being able to put their suitcase on it, but it didn't really fit the room and was more of a functional piece. Plus, I re-painted it and moved it into the sunroom where it's way cuter.
 
-Then, when my husband made the permanent switch to a standing desk, we had an extra office chair that found its way to that nook. He had the idea of putting in a floating desk to take calls or do crafts on. We could hang shelves above it and give the room a little more personality than just a bed and a dresser. 
+Then, when my husband made the permanent switch to a standing desk, we had an extra office chair that found its way to that nook. He had the idea of putting in a floating desk to take calls or do crafts on. We could hang shelves above it and give the room a little more personality than just a bed and a dresser.
 
 Well, time to get to work.
 
@@ -38,7 +38,11 @@ Measure twice, cut once. That will be the theme of this whole DIY. The width of 
 
 I cut my plywood boards a little shorter than I needed so they would fit snuggly against the back wall. Nothing went in straight. Everything went in at an angle to miss that narrow bit and was laid down at the back.
 
-To cut a straight line with my jigsaw, I clamped some scrap wood so the plate of the jig could ride alongside it and not wiggle around. This got a pretty clean cut for me. I also drew all my lines with my new, longer level. 
+![](/uploads/builtindeskdiy_wood.png)
+
+To cut a straight line with my jigsaw, I clamped some scrap wood so the plate of the jig could ride alongside it and not wiggle around. This got a pretty clean cut for me. I also drew all my lines with my new, longer level.
+
+![](/uploads/builtindeskdiy.jpg)
 
 Once cut and stained, I glued the two pieces together. This is before I had the idea for trim, so if I did it over I would probably only do one piece of plywood.
 
@@ -53,3 +57,7 @@ After that was dry, I ran glue around the top of the mounting boards, then put t
 Then, I cut the back trim piece and glued it to the tabletop NOT the wall. If I ever want to take this thing off, I want it to be as clean as possible. I cut the last 1x3 in half and those pieces fit on the sides perfectly (a happy accident).
 
 Voila! An extremely sturdy and cute desk that you can build and customize to your liking.
+
+![](/uploads/builtindeskdiy_15.jpg)
+
+![](/uploads/builtindeskdiy_14.jpg)
