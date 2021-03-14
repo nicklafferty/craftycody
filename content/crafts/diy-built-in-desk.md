@@ -57,7 +57,7 @@ The 2/4s were much simpler since they're only 2 inches wide versus about 24 inch
 
 This is also the first time I've used [Torx screws](https://fastenerengineering.com/what-is-a-torx-screw/#:\~:text=A%20Torx%20screw%20is%20a,%2C%20star%2Dpatterned%20screw%20drive.&text=Torx%20screws%20were%20invented%20in,improvement%20on%20contemporary%20drive%20types.) and oh my goodness I will never go back. Our contractors used them and I've read quite a bit about them in [r/HomeImprovement](https://www.reddit.com/r/HomeImprovement/) over on Reddit. They don't strip! They're magnificent. I used this project as an excuse to get a jar of them. Hopefully, I'll need 4-inch screws in the future!
 
-We had the idea for trim around the edges and front afterward, so we rand to Lowe's to get some nice 1x3s. I stained and cut one the length of the tabletop, then glued it to the front and clamped it down.
+We had the idea for trim around the edges and front afterward, so we ran to Lowe's to get some nice 1x3s. I stained and cut one the length of the tabletop, then glued it to the front and clamped it down.
 
 ![](/uploads/builtindeskdiy_11.jpg)
 
