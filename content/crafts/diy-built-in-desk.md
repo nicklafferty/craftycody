@@ -31,8 +31,7 @@ Here's what I did:
  9. Level
 10. Sander
 11. Stain and brush (we chose "special walnut")
-12. Spray paint (optional)
-13. Measuring tape
+12. Measuring tape
 
 ## Process
 
@@ -63,6 +62,8 @@ We had the idea for trim around the edges and front afterward, so we rand to Low
 ![](/uploads/builtindeskdiy_11.jpg)
 
 After that was dry, I ran glue around the top of the mounting boards, then put the finished tabletop on and let dry. Make sure everything fits and is the right height before you glue it down. I had to move my 2x4s down 3 inches because it was a tad high for the chair.
+
+![](/uploads/builtindeskdiy_13.jpg)
 
 Then, I cut the back trim piece and glued it to the tabletop NOT the wall. If I ever want to take this thing off, I want it to be as clean as possible. I cut the last 1x3 in half and those pieces fit on the sides perfectly (a happy accident).
 
