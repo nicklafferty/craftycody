@@ -49,7 +49,7 @@ Once cut and stained, I glued the two pieces together. This is before I had the 
 
 ![](/uploads/builtindeskdiy_7.jpg)
 
-The 2/4s were much simpler since they're only 2 inches wide versus about 24 inches like the plywood. First, I stained them and let them dry. Then, I cut one the width of the back wall and mounted it into two studs. This table will be heavy- find your studs! The side pieces I cut shorter than the width of my tabletop because I didn't want to be able to see them. The left side was able to go into studs, but the shared closet wall had nothing so I had to get some heavy-duty drywall anchors that claim to hold 75lbs each- so far so good! I drilled the screws through the 2x4 and into the wall a little bit to know where to put the anchors. It feels secure as if it's in studs.
+The 2/4s were much simpler since they're only 2 inches wide versus about 24 inches like the plywood. First, I stained them and let them dry. Then, I cut one the width of the back wall and mounted it into two studs. This table will be heavy- find your studs! Use your level to make sure the board is going on the wall straight. The side pieces I cut shorter than the width of my tabletop because I didn't want to be able to see them. The left side was able to go into studs, but the shared closet wall had nothing so I had to get some heavy-duty drywall anchors that claim to hold 75lbs each- so far so good! I drilled the screws through the 2x4 and into the wall a little bit to know where to put the anchors. It feels secure as if it's in studs.
 
 ![](/uploads/builtindeskdiy_3.jpg)
 
