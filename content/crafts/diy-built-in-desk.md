@@ -30,7 +30,8 @@ Here's what I did:
  8. Level
  9. Sander
 10. Stain and brush (we chose "special walnut")
-11. Measuring tape
+11. Spray paint (optional)
+12. Measuring tape
 
 ## Process
 
