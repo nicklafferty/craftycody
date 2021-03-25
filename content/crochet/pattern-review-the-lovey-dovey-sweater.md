@@ -1,9 +1,9 @@
 +++
-date = ""
+date = 2021-03-31T05:00:00Z
 description = "Taking a look at a cute sweater pattern, the yarn I used, and any mods I made."
 draft = true
-image = ""
-slug = "review-lovey-dovey"
+image = "/uploads/loveydoveysweatercrochetpattern.png"
+slug = "review-lovey-dovey-pattern"
 tags = ["review", "crochet"]
 title = "Pattern Review: The Lovey Dovey Sweater"
 
@@ -36,9 +36,11 @@ The range of colors is great, there are a ton of options. I did notice that the 
 
 I will definitely be using this brand again for future projects.
 
+![](/uploads/lovedoveycrochet.jpg)
+
 ## Mods
 
-I don't like 3/4" sleeves. I know that I'll constantly be trying to pull them down. I like how longer sleeves hit my hands and make my fingers look longer and more feminine. I knew when I bought this pattern that I'd be making the sleeves 1. tighter and 2. longer. 
+I don't like 3/4" sleeves. I know that I'll constantly be trying to pull them down. I like how longer sleeves hit my hands and make my fingers look longer and more feminine. I knew when I bought this pattern that I'd be making the sleeves 1. tighter and 2. longer.
 
 Here's what I did in order of how the pattern is written:
 
@@ -59,3 +61,7 @@ Here's what I did in order of how the pattern is written:
 Remember that this is all relative. Always try on your piece as you crochet to make sure you're getting the sizing right. I typically crochet smaller than the pattern so I have to make lots of extra rows to make sure the thing actually fits. One time, I made a top, and it came out looking like it was for a baby, but I used the same hook and yarn as the pattern suggested! Needless to say, I had to add a _lot_ of extra rows on that one. I don't think I crochet particularly tight, but oh well.
 
 [Check out her stuff](https://www.cozycreativecrochets.com/)- she has so many cute patterns. I'll be getting more too. Already have my eye on a summery crop top.
+
+![](/uploads/lovedoveycrochet_2.jpg)
+
+![](/uploads/lovedoveycrochet_1.jpg)
