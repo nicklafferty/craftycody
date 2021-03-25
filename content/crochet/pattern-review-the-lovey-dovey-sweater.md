@@ -22,7 +22,7 @@ After Instagram suggested her page, I fell in love with the "Lovey Dovey" sweate
 
 The pattern itself is fairly easy to follow. It suggests you be an intermediate crocheter and I agree. There were a couple of places I had to re-read to make sure I understood, but all-in-all I don't think I deviated far from the pattern besides the modifications I made for length and sizing. It's pretty straightforward how to resize as you go and she gives instructions on how to do so to get you started.
 
-The real critique I have is the lack of photos. There are only 3 showing the process- e.g. where to attach the yarn to start the sleeves- and 2 of them are practically the same image. It's the front and back in the same stage of completion. For almost $10 I would like more photos detailing what each stage should look like and directions you'll be crocheting since there is a lot of detaching and reattaching. I'm a very visual learner and images for new-to-me patterns help a great deal.
+The real critique I have is the lack of photos. There are only 3 showing the process- e.g. where to attach the yarn to start the sleeves- and 2 of them are practically the same image. It's the front and back in the same stage of completion. For almost $10 (she does have frequent sales!) I would like more photos detailing what each stage should look like and directions you'll be crocheting since there is a lot of detaching and reattaching. I'm a very visual learner and images for new-to-me patterns help a great deal.
 
 ## Yarn
 
