@@ -24,3 +24,5 @@ I happened to be looking at bedroom decor ideas and spotted a super cute, wooden
 6.  Sander
 
 ## Process:
+
+My scrap wood came from the [built-in desk](https://craftycody.com/crafts/built-in-desk-diy/) I just installed in our guest room.
