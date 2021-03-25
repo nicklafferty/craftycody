@@ -46,9 +46,9 @@ Here's what I did in order of how the pattern is written:
 
 \-I used a "G" (4.25mm) hook throughout the _entire_ pattern.
 
-\-For the **Sleeves** section: I did 42 rounds before starting the decreasing rows that make the cuffs.
+\-For the **Sleeves** section: I did 42 rounds before starting the decreasing rows that make the cuffs. Note that the poofy part of the sleeves is about 81 stitches on mine- that's just what I ended up with. Yours may be more or less depending on how big/small you make the bodice.
 
-\-I did 2 rounds of decreases to make the cuffs tighter
+\-I did 2 rounds of decreases to make the cuffs tighter (always try it on to get the fit right!)
 
 \-Repeated rounds 32-35 an extra time (3x instead of 2x)
 
