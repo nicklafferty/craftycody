@@ -2,7 +2,7 @@
 date = ""
 description = "A simple little tray made from scraps."
 draft = true
-image = ""
+image = "/uploads/woodtraydiy.png"
 slug = "small-wood-tray-diy"
 tags = ["diy"]
 title = "DIY Wood Tray"
