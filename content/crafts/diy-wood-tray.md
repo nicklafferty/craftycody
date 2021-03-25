@@ -22,7 +22,12 @@ I happened to be looking at bedroom decor ideas and spotted a super cute, wooden
 4.  Wood Glue
 5.  Jigsaw
 6.  Sander
+7.  Drill
 
 ## Process:
 
 My scrap wood came from the [built-in desk](https://craftycody.com/crafts/built-in-desk-diy/) I just installed in our guest room.
+
+I trimmed the longer piece so that the small, edge pieces would fit flush around the sides, then glued and clamped them down.
+
+Next, I placed where I wanted my handles to go and marked them with a pencil. I used a drill bit that was the same size as their screws to drill through the wood. Then, I used a larger bit and drilled through the bottom just a bit so that the screw would be inside the wood. This helps the tray lay flat as the screws have rounded heads.
