@@ -1,7 +1,6 @@
 +++
-date = ""
+date = 2021-03-25T05:00:00Z
 description = "A simple little tray made from scraps."
-draft = true
 image = "/uploads/woodtraydiy.png"
 slug = "small-wood-tray-diy"
 tags = ["diy"]
