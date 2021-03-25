@@ -34,4 +34,4 @@ Next, I placed where I wanted my handles to go and marked them with a pencil. I 
 
 Once the holes were made, I sanded the whole thing and cleaned up the dust. Then, I put my stain on. I wanted my handles to be a little extra, so I spray-painted them gold- this is a completely optional step. In hindsight, I might have left them black so they would pop more, but I like how it turned out anyway.
 
-Once everything was dry, I screwed the handles on and it was done! I always leave stained wood outside for about a day so it can air out. Just make sure there's no rain in the forecast.
+Once everything was dry, I screwed the handles on and it was done! I always leave stained wood outside for about a day so it can air out. Just make sure there's no rain in the forecast!
