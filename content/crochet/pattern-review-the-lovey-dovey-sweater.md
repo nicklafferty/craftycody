@@ -46,7 +46,7 @@ Here's what I did in order of how the pattern is written:
 
 \-I used a "G" (4.25mm) hook throughout the _entire_ pattern.
 
-\-For the **Sleeves** section: I did 42 rows before starting the decreasing rows that make the cuffs.
+\-For the **Sleeves** section: I did 42 rounds before starting the decreasing rows that make the cuffs.
 
 \-I did 2 rounds of decreases to make the cuffs tighter
 
