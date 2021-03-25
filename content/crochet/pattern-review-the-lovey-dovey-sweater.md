@@ -1,7 +1,6 @@
 +++
 date = 2021-03-31T05:00:00Z
 description = "Taking a look at a cute sweater pattern, the yarn I used, and any mods I made."
-draft = true
 image = "/uploads/loveydoveysweatercrochetpattern.png"
 slug = "review-lovey-dovey-pattern"
 tags = ["review", "crochet"]
