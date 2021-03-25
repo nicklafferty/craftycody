@@ -16,13 +16,13 @@ I happened to be looking at bedroom decor ideas and spotted a super cute, wooden
 
 ## Supplies:
 
-1.  Scrap wood. You'll need a long piece for the tray and two smaller ones for the edges
-2.  Handles. I used spare ones we had from our kitchen remodel.
-3.  Stain
-4.  Wood Glue
-5.  Jigsaw
-6.  Sander
-7.  Drill
+1. Scrap wood. You'll need a long piece for the tray and two smaller ones for the edges
+2. Handles. I used spare ones we had from our kitchen remodel.
+3. Stain
+4. Wood Glue
+5. Jigsaw
+6. Sander
+7. Drill
 
 ## Process:
 
@@ -30,8 +30,30 @@ My scrap wood came from the [built-in desk](https://craftycody.com/crafts/built-
 
 I trimmed the longer piece so that the small, edge pieces would fit flush around the sides, then glued and clamped them down.
 
+![](/uploads/traydiy_0.jpg)
+
+![](/uploads/traydiy_2.jpg)
+
+![](/uploads/traydiy_3.jpg)
+
+![](/uploads/traydiy_5.jpg)
+
 Next, I placed where I wanted my handles to go and marked them with a pencil. I used a drill bit that was the same size as their screws to drill through the wood. Then, I used a larger bit and drilled through the bottom just a bit so that the screw would be inside the wood. This helps the tray lay flat as the screws have rounded heads.
+
+![](/uploads/traydiy_7.jpg)
 
 Once the holes were made, I sanded the whole thing and cleaned up the dust. Then, I put my stain on. I wanted my handles to be a little extra, so I spray-painted them gold- this is a completely optional step. In hindsight, I might have left them black so they would pop more, but I like how it turned out anyway.
 
+![](/uploads/traydiy_8.jpg)
+
+![](/uploads/traydiy_9.jpg)
+
+![](/uploads/traydiy_6.jpg)
+
 Once everything was dry, I screwed the handles on and it was done! I always leave stained wood outside for about a day so it can air out. Just make sure there's no rain in the forecast!
+
+![](/uploads/traydiy_11.jpg)
+
+![](/uploads/traydiy_13.jpg)
+
+![](/uploads/traydiy_14.jpg)
