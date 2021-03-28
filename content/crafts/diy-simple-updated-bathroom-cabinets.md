@@ -35,7 +35,9 @@ Alright, let's see how these cabinets turned out.
 3. [Handles](https://www.amazon.com/gp/product/B01N657GWO/ref=ppx_yo_dt_b_asin_title_o04_s00?ie=UTF8&psc=1)- if you want to change yours out. I got mine on Amazon.
 4. Drill
 5. Sandpaper or sander
-6. Ruler or measuring tape
+6. Caulk
+7. Putty knife
+8. Ruler or measuring tape
 
 ## Process:
 
