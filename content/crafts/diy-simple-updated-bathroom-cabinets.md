@@ -24,7 +24,7 @@ So, I've started changing it little by little and what I can do is paint just ab
 
 I've seen tons of people online struggle with the best way to paint cabinets. I came across a video a while ago that illustrated a top tip for painting them- **foam rollers**.
 
-Let me tell you, they work _wonders_. I've also started using them whenever I paint furniture. The paint goes on so evenly and there are no brush strokes. They also make a really satisfying sticky sound as you paint.
+Let me tell you, they work _wonders_. I've also started using them whenever I paint furniture. The paint goes on so evenly and there are no brush strokes. They also make a satisfying sticky sound as you paint.
 
 Alright, let's see how these cabinets turned out.
 
