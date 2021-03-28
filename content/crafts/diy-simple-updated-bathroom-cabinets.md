@@ -47,4 +47,6 @@ I brought everything out into the garage to paint. For the doors, I needed to dr
 
 The drawers were a little trickier since I needed to redrill both holes. I filled in the old and marked the new spots where the handle laid in the middle of the drawer. I measured where those were and did the same markings on the second drawer then drilled.
 
-Now that the holes are there 
+Now that the holes are there we can sand everything so the paint has something to stick to. It doesn't require much effort, just get all your surfaces a little rough. Clean everything up before painting.
+
+My foam roller came with a little tray to pour paint into so that's what I used throughout this process. 
