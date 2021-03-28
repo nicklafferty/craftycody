@@ -32,7 +32,7 @@ Alright, let's see how these cabinets turned out.
 
 1. Paint. I went with white as it's easy to paint back over and will match whatever I do to the walls.
 2. [Foam rollers](https://www.lowes.com/pd/WHIZZ-4-in-Foam-Roller-3-Piece-Mini-Paint-Applicator-Kit/3013608?cm_mmc=shp-_-c-_-prd-_-pnt-_-google-_-lia-_-106-_-applicators-_-3013608-_-0&store_code=159&placeholder=null&ds_rl=1286981&gclid=Cj0KCQjw0oCDBhCPARIsAII3C_FZkrD8Nn0RN0jxaYyTMumGp7Ougi4Z4hmnu5XnralhWf89Ndpc_DcaAsorEALw_wcB&gclsrc=aw.ds)
-3. Handles- if you want to change yours out.
+3. [Handles](https://www.amazon.com/gp/product/B01N657GWO/ref=ppx_yo_dt_b_asin_title_o04_s00?ie=UTF8&psc=1)- if you want to change yours out. I got mine on Amazon.
 4. Drill
 5. Sandpaper or sander
 6. Ruler or measuring tape
@@ -54,3 +54,7 @@ My foam roller came with a little tray to pour paint into so that's what I used 
 Don't forget to paint the vanity itself! I painted the outside and the interior. I used a brush for the inside versus the foam so I could get a thick coat and only do it once. No one is going to see anyway.
 
 Once everything is dry, you can put your handles back on. Paint and new hardware can change a look instantly.
+
+Time to put everything back together. I found it easier to put the hinges on the doors first, then attach them back to the vanity. Either way, it can be a pill and I've always hated hanging doors of any size.
+
+Without that much work, you've got new bathroom cabinets! This is also incredibly budget-friendly.
