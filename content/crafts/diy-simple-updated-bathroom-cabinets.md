@@ -22,4 +22,6 @@ Well, I can't speak for inspiration, but I was getting sick of the color. I don'
 
 So, I've started changing it little by little and what I can do is paint just about every surface to get it closer to something I like. I decided to start with the cabinets.
 
-I've seen tons of people online struggle with the best way to paint cabinets. I came across a video a while ago that illustrated a top tip for painting them- foam rollers.
+I've seen tons of people online struggle with the best way to paint cabinets. I came across a video a while ago that illustrated a top tip for painting them- **foam rollers**.
+
+Let me tell you, they work _wonders_. I've also started using them whenever I paint furniture. The paint goes on so evenly and there are no brush strokes. They also make a really satisfying sticky sound as you paint.
