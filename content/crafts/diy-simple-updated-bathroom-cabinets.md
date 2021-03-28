@@ -57,4 +57,4 @@ Once everything is dry, you can put your handles back on. Paint and new hardware
 
 Time to put everything back together. I found it easier to put the hinges on the doors first, then attach them back to the vanity. Either way, it can be a pill and I've always hated hanging doors of any size.
 
-Without that much work, you've got new bathroom cabinets! This is also incredibly budget-friendly.
+Without that much work, you've got new bathroom cabinets! This is also incredibly budget-friendly. Next, I'm going to be tackling the countertop.
