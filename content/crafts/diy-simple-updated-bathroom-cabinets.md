@@ -51,6 +51,8 @@ I took off all the doors and drawers then removed their old handles. All the hin
 
 I brought everything out into the garage to paint. For the doors, I needed to drill new holes because the new handles were longer than the old ones. I kept the top hole so the spacing would be the same on all four doors and I didn't have to measure. The bottom holes I filled with caulk and used a putty knife to scrape off any excess so it would be flat. Let that dry, then place your new handle over the existing hole and mark where you need a new bottom one. Use your drill with a bit that's about the same size as the handle's screw and drill a new bottom hole.
 
+![](/uploads/guestcabinets.jpg)
+
 The drawers were a little trickier since I needed to redrill both holes. I filled in the old and marked the new spots where the handle laid in the middle of the drawer. I measured where those were and did the same markings on the second drawer then drilled.
 
 Now that the holes are there we can sand everything so the paint has something to stick to. It doesn't require much effort, just get all your surfaces a little rough. Clean everything up before painting.
