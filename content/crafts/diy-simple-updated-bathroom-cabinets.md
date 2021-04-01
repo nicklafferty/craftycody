@@ -43,6 +43,10 @@ Alright, let's see how these cabinets turned out.
 
 There really isn't much to the process, but I'll try to remember any tips that made it go faster.
 
+Here's a before image of the bathroom. This is the photo used in the listing and has been _heavily_ edited. The whole room is yellow/beige/brown and is not this desaturated. There is no grey or white anywhere- only browns. You can kind of see where they missed desaturating under the vanity light- that's closer to the color of the room. 
+
+![](/uploads/before-guest-cabinets.jpg)
+
 I took off all the doors and drawers then removed their old handles. All the hinges and screws I kept in a little bowl for later. You could always spray paint handles and hinges for a new look instead of purchasing new ones.
 
 I brought everything out into the garage to paint. For the doors, I needed to drill new holes because the new handles were longer than the old ones. I kept the top hole so the spacing would be the same on all four doors and I didn't have to measure. The bottom holes I filled with caulk and used a putty knife to scrape off any excess so it would be flat. Let that dry, then place your new handle over the existing hole and mark where you need a new bottom one. Use your drill with a bit that's about the same size as the handle's screw and drill a new bottom hole.
