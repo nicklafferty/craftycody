@@ -2,7 +2,7 @@
 date = 2021-01-05T06:00:00Z
 description = "Review and How-To Install the Amazon Basics Monitor Arm"
 draft = true
-image = ""
+image = "/uploads/amazonbasicsmonitorstandreview.png"
 slug = "amazonbasics-monitor-arm"
 tags = ["review"]
 title = "Review: The Amazon Basics Monitor Arm/Stand"
