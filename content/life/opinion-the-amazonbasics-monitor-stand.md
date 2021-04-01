@@ -5,7 +5,7 @@ draft = true
 image = "/uploads/amazonbasicsmonitorstandreview.png"
 slug = "amazonbasics-monitor-arm"
 tags = ["review"]
-title = "Review: The Amazon Basics Monitor Arm/Stand"
+title = "DONE Review: The Amazon Basics Monitor Arm/Stand"
 
 +++
 _This post contains affiliate links at no cost to you._
