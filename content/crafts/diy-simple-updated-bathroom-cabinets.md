@@ -5,7 +5,7 @@ draft = true
 image = "/uploads/guest-bathroom-cabinets.png"
 slug = "quick-bath-update"
 tags = ["diy"]
-title = "DIY: Updated Bathroom Cabinets"
+title = "DONE DIY: Updated Bathroom Cabinets"
 
 +++
 There are few things that refresh a space quicker than paint.
