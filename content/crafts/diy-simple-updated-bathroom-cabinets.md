@@ -63,6 +63,14 @@ Don't forget to paint the vanity itself! I painted the outside and the interior.
 
 Once everything is dry, you can put your handles back on. Paint and new hardware can change a look instantly.
 
+![](/uploads/guestcabinets_3.jpg)
+
 Time to put everything back together. I found it easier to put the hinges on the doors first, then attach them back to the vanity. Either way, it can be a pill and I've always hated hanging doors of any size.
 
+![](/uploads/guestcabinets_2.jpg)
+
 Without that much work, you've got new bathroom cabinets! This is also incredibly budget-friendly. Next, I'm going to be tackling the countertop.
+
+![](/uploads/guestcabinets_1.jpg)
+
+PS: See how much more yellow/brown that wall is than the listing photo? That's the whole room. I color corrected this image and it desaturated the tile as well, but when I say everything is brown/tan, I mean it.
