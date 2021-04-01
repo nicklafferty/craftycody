@@ -2,7 +2,7 @@
 date = ""
 description = "Or how to paint cabinets quickly and easily."
 draft = true
-image = ""
+image = "/uploads/guest-bathroom-cabinets.png"
 slug = "quick-bath-update"
 tags = ["diy"]
 title = "DIY: Updated Bathroom Cabinets"
