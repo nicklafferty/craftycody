@@ -59,7 +59,7 @@ Now that the holes are there we can sand everything so the paint has something t
 
 My foam roller came with a little tray to pour paint into so that's what I used throughout this process. Now, just get to painting! I put about 2-3 coats over each piece to make sure the brown was gone. The foam applies paint thinly so that's another reason for additional coats.
 
-Don't forget to paint the vanity itself! I painted the outside and the interior. I used a brush for the inside versus the foam so I could get a thick coat and only do it once. No one is going to see anyway.
+Don't forget to paint the vanity itself! I painted the outside and the interior. I used a brush for the inside versus the roller so I could get a thick coat and only do it once. No one is going to see anyway.
 
 Once everything is dry, you can put your handles back on. Paint and new hardware can change a look instantly.
 
