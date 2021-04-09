@@ -1,11 +1,11 @@
 +++
 date = ""
-description = "Or how to paint cabinets quickly and easily."
+description = "The trick to painting cabinets quickly and easily."
 draft = true
 image = "/uploads/guest-bathroom-cabinets.png"
 slug = "quick-bath-update"
 tags = ["diy"]
-title = "DONE DIY: Updated Bathroom Cabinets"
+title = "DIY: Updated Bathroom Cabinets"
 
 +++
 There are few things that refresh a space quicker than paint.
