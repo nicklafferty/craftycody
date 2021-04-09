@@ -43,7 +43,7 @@ Alright, let's see how these cabinets turned out.
 
 There really isn't much to the process, but I'll try to remember any tips that made it go faster.
 
-Here's a before image of the bathroom. This is the photo used in the listing and has been _heavily_ edited. The whole room is yellow/beige/brown and is not this desaturated. There is no grey or white anywhere- only browns. You can kind of see where they missed desaturating under the vanity light- that's closer to the color of the room. 
+Here's a before image of the bathroom. This is the photo used in the listing and has been _heavily_ edited. The whole room is yellow/beige/brown and is not this desaturated. There is no grey or white anywhere- only browns. You can kind of see where they missed desaturating under the vanity light- that's closer to the color of the room.
 
 ![](/uploads/before-guest-cabinets.jpg)
 
@@ -74,3 +74,5 @@ Without that much work, you've got new bathroom cabinets! This is also incredibl
 ![](/uploads/guestcabinets_1.jpg)
 
 PS: See how much more yellow/brown that wall is than the listing photo? That's the whole room. I color corrected this image and it desaturated the tile as well, but when I say everything is brown/tan, I mean it.
+
+Video to come soon!
