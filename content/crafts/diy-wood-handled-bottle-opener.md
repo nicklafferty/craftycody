@@ -51,3 +51,11 @@ I slowly began carving between the two lines I drew earlier until I had carved e
 ![](/uploads/bottle_opener_8.jpg)
 
 Here's one of the more important steps. I used a smaller bit to drill through the holes I just made in the opener and through the wood so I knew where to screw once the two wood pieces were glued together. This made sure the screws would go through the holes I made in the bottle opener. Clamp your blocks together to make sure they don't move around while you drill. You need those holes in the other piece of wood (bottom one in photo above) since that's the one the screws will be going into first.
+
+![](/uploads/bottle_opener_9.jpg)
+
+Wood glue the two halves together and use a clamp to secure. Allow to cure fully since the drilling and carving will put a strain on the glue. You don't want it all falling apart.
+
+![](/uploads/bottle_opener_10.jpg)
+
+Next, I used a 3/8" drill bit (the same size as my dowel rods) to drill slightly into my marked holes. I drilled in my screws into those new holes, then wedged a dowel rod into each hole. You can use wood glue to help secure the dowel. Then, I used my coping saw to cut off the excess dowel.
