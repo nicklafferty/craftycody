@@ -35,3 +35,7 @@ The first thing you have to do is find a metal bottle opener that will work. I w
 Another thing you'll need is a drill bit that can drill into stainless steel. I estimated what size I would need- kinda small. Not the most scientific way to do it, but it worked for me. I bought the one below from Lowe's:
 
 ![](/uploads/bottle_opener_6.jpg)
+
+I had some scrap wood that was perfect for this project- you don't need much! I measured two pieces and cut them to be the same size. Then placed my opener on one piece and traced around it. I needed to know where I would be carving into the wood to make an indentation for the opener to lay flat in otherwise the two wood pieces would have a gap between them.
+
+![](/uploads/bottle_opener.jpg)![](/uploads/bottle_opener_1.jpg)
