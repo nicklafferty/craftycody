@@ -39,3 +39,9 @@ Another thing you'll need is a drill bit that can drill into stainless steel. I 
 I had some scrap wood that was perfect for this project- you don't need much! I measured two pieces and cut them to be the same size. Then placed my opener on one piece and traced around it. I needed to know where I would be carving into the wood to make an indentation for the opener to lay flat in otherwise the two wood pieces would have a gap between them.
 
 ![](/uploads/bottle_opener.jpg)![](/uploads/bottle_opener_1.jpg)
+
+Now begins the heavy Dremel use. That will be about 80-90% of this project- carving. The Dremel I have came with a lot of different heads and I picked one meant for wood. It was a rounded head, but I will be using the cone-shaped one later.
+
+![](/uploads/bottle_opener_3.jpg)
+
+![](/uploads/bottle_opener_5.jpg)
