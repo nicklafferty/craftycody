@@ -28,3 +28,5 @@ And what I had was a Dremel. I've never used it so extensively as I did with thi
 12. Polyurethane
 
 ## Process:
+
+The first thing you have to do is find a metal bottle opener that will work. I went to HEB and got this flat, wide one I knew I'd be able to drill into and create a handle around. If you have
