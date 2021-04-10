@@ -3,8 +3,8 @@ date = ""
 description = "Adding and carving a wood handle lets you make a personalized gift."
 draft = true
 image = ""
-slug = ""
-tags = []
+slug = "wood-handle-bottle-opener"
+tags = ["diy"]
 title = "DIY: Wood-handled Bottle Opener"
 
 +++
