@@ -45,3 +45,5 @@ Now begins the heavy Dremel use. That will be about 80-90% of this project- carv
 ![](/uploads/bottle_opener_3.jpg)
 
 ![](/uploads/bottle_opener_5.jpg)
+
+I slowly began carving between the two lines I drew earlier until I had carved enough out to where the opener would sit flatly in the groove. The two black dots on the opener are where I drilled my holes next. I clamped the opener to the side of my worktable and drilled through. That bit worked like a charm!
