@@ -1,6 +1,6 @@
 +++
 date = ""
-description = "Adding and carving a wood handle let's you make a personalized gift."
+description = "Adding and carving a wood handle lets you make a personalized gift."
 draft = true
 image = ""
 slug = ""
@@ -12,7 +12,7 @@ I wanted to find some simple woodworking ideas to make as a gift. I found this [
 
 And what I had was a Dremel. I've never used it so extensively as I did with this project. I'm happy I had it otherwise I probably could not have done this. I have the [Dremel Stylo+](https://www.amazon.com/gp/product/B077Y86FKJ/ref=as_li_qf_asin_il_tl?ie=UTF8&tag=codybear0e-20&creative=9325&linkCode=as2&creativeASIN=B077Y86FKJ&linkId=29fecb7a6b7a887fcb2d7213a6c0deec) and originally bought it for these wooden rings I made. It took me a couple of days to carve the wood down to where I liked. Be sure to take breaks as your hand will cramp up.
 
-Supplies:
+## Supplies:
 
  1. Scrap wood
  2. Bottle opener
@@ -26,3 +26,5 @@ Supplies:
 10. Dowel rods
 11. Stain
 12. Polyurethane
+
+## Process:
