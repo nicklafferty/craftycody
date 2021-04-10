@@ -71,3 +71,9 @@ Years later you'll get the shape you want! This took me a couple of days working
 ![](/uploads/bottle_opener_11.jpg)
 
 Sawdust was absolutely everywhere, but I wanted my handle to be fairly trim with the opener so it looked more like one piece versus just gluing wood together and calling it a day.
+
+Next, I took a wood carving head and personalized the handle for my friend. It was a birthday gift! He isn't a big drinker, but will certainly use it for his Topo Chicos.
+
+The last thing to do was stain and coat in poly for longevity.
+
+![](/uploads/finished-bottle-opener.jpg)
