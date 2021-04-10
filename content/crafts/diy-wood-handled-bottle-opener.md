@@ -1,6 +1,6 @@
 +++
 date = ""
-description = "Adding and carving a wood handle lets you make a personalized gift."
+description = "Adding and carving a wood handle to make a personalized gift."
 draft = true
 image = "/uploads/bottle-opener.png"
 slug = "wood-handle-bottle-opener"
