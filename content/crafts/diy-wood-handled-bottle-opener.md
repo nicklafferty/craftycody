@@ -77,3 +77,5 @@ Next, I took a wood carving head and personalized the handle for my friend. It w
 The last thing to do was stain and coat in poly for longevity.
 
 ![](/uploads/finished-bottle-opener.jpg)
+
+All done!
