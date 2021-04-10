@@ -20,7 +20,7 @@ And what I had was a Dremel. I've never used it so extensively as I did with thi
  4. Jigsaw
  5. Drill
  6. Screws
- 7. Drill bit that can put holes through stainless steel
+ 7. Drill bit for stainless steel
  8. Wood glue
  9. Clamps
 10. Dowel rods
