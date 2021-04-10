@@ -2,7 +2,7 @@
 date = ""
 description = "Adding and carving a wood handle lets you make a personalized gift."
 draft = true
-image = ""
+image = "/uploads/bottle-opener.png"
 slug = "wood-handle-bottle-opener"
 tags = ["diy"]
 title = "DIY: Wood-handled Bottle Opener"
