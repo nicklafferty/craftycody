@@ -59,3 +59,15 @@ Wood glue the two halves together and use a clamp to secure. Allow to cure fully
 ![](/uploads/bottle_opener_10.jpg)
 
 Next, I used a 3/8" drill bit (the same size as my dowel rods) to drill slightly into my marked holes- do not go all the way through! I drilled in my screws into those new holes, then wedged a dowel rod into each hole to hide the screw head. You can use wood glue to help secure the dowel. Then, I used my coping saw to cut off the excess dowel.
+
+Now begins the most time-consuming part- the shaping. This is where I used the cone-shaped head for my Dremel. It will take a long time, but works better and faster than a carving knife. Be careful not to expose the screws as you carve.
+
+**Tip:** If you do accidentally expose the screws, then just use a little wood putty that's the same color as your stain to hide the metal. You won't need much and no one can tell.
+
+![](/uploads/carving-progress-bottle-opener.jpg)
+
+Years later you'll get the shape you want! This took me a couple of days working for about 2 or so hours each session. Give your hand plenty of breaks.
+
+![](/uploads/bottle_opener_11.jpg)
+
+Sawdust was absolutely everywhere, but I wanted my handle to be fairly trim with the opener so it looked more like one piece versus just gluing wood together and calling it a day.
