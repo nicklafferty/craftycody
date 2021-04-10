@@ -58,4 +58,4 @@ Wood glue the two halves together and use a clamp to secure. Allow to cure fully
 
 ![](/uploads/bottle_opener_10.jpg)
 
-Next, I used a 3/8" drill bit (the same size as my dowel rods) to drill slightly into my marked holes. I drilled in my screws into those new holes, then wedged a dowel rod into each hole. You can use wood glue to help secure the dowel. Then, I used my coping saw to cut off the excess dowel.
+Next, I used a 3/8" drill bit (the same size as my dowel rods) to drill slightly into my marked holes- do not go all the way through! I drilled in my screws into those new holes, then wedged a dowel rod into each hole to hide the screw head. You can use wood glue to help secure the dowel. Then, I used my coping saw to cut off the excess dowel.
