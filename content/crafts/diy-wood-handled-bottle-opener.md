@@ -24,8 +24,9 @@ And what I had was a Dremel. I've never used it so extensively as I did with thi
  8. Wood glue
  9. Clamps
 10. Dowel rods
-11. Stain
-12. Polyurethane
+11. Flush cut saw or coping saw
+12. Stain
+13. Polyurethane
 
 ## Process:
 
