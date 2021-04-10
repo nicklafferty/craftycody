@@ -30,4 +30,8 @@ And what I had was a Dremel. I've never used it so extensively as I did with thi
 
 ## Process:
 
-The first thing you have to do is find a metal bottle opener that will work. I went to HEB and got this flat, wide one I knew I'd be able to drill into and create a handle around. If you have
+The first thing you have to do is find a metal bottle opener that will work. I went to HEB and [got this flat, wide one](https://www.heb.com/product-detail/true-trueblade-bottle-opener-each/1996975) I knew I'd be able to drill into and create a handle around. If you have an old bottle opener laying around, feel free to use that one.
+
+Another thing you'll need is a drill bit that can drill into stainless steel. I estimated what size I would need- kinda small. Not the most scientific way to do it, but it worked for me. I bought the one below from Lowe's:
+
+![](/uploads/bottle_opener_6.jpg)
