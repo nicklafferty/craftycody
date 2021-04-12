@@ -5,10 +5,10 @@ draft = true
 image = "/uploads/learn-to-crochet-video-series.png"
 slug = "learn-to-crochet-videos"
 tags = ["crochet", "video", "tutorial"]
-title = "Learn to Crochet Video Series"
+title = "(DONE) Learn to Crochet Video Series"
 
 +++
-I started a short series on the basics of crochet awhile ago. I wasn't finding what I wanted on YouTube, so I decided to make my own. The results are quick, simple videos that, hopefully, explain the basics to help you get started on your journey into crochet. 
+I started a short series on the basics of crochet a while ago. I wasn't finding what I wanted on YouTube, so I decided to make my own. The results are quick, simple videos that, hopefully, explain the basics to help you get started on your journey into crochet. 
 
 I will be making more and adding to the series, but they will be on subsequent blog posts. For now, here are my first 3 explaining the basic stitches.
 
