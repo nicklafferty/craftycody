@@ -7,6 +7,9 @@ tags = ["diy"]
 title = "DIY: Updated Bathroom Cabinets"
 
 +++
+
+{{< youtube 1Ht2T1-WGXM >}}
+
 There are few things that refresh a space quicker than paint.
 
 Need a new mood in your bedroom? Paint.
@@ -73,5 +76,3 @@ Without that much work, you've got new bathroom cabinets! This is also incredibl
 ![](/uploads/guestcabinets_1.jpg)
 
 PS: See how much more yellow/brown that wall is than the listing photo? That's the whole room. I color corrected this image and it desaturated the tile as well, but when I say everything is brown/tan, I mean it.
-
-Video to come soon!
