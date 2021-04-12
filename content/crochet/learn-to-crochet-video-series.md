@@ -4,7 +4,7 @@ description = "A simple video series to help newbies learn the basics of crochet
 image = "/uploads/learn-to-crochet-video-series.png"
 slug = "learn-to-crochet-videos"
 tags = ["crochet", "video", "tutorial"]
-title = "(DONE) Learn to Crochet Video Series"
+title = "Learn to Crochet Video Series"
 
 +++
 I started a short series on the basics of crochet a while ago. I wasn't finding what I wanted on YouTube, so I decided to make my own. The results are quick, simple videos that, hopefully, explain the basics to help you get started on your journey into crochet. 
