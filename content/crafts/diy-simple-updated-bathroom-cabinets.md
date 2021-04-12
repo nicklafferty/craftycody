@@ -3,7 +3,7 @@ date = 2021-04-08T05:00:00Z
 description = "The trick to painting cabinets quickly and easily."
 image = "/uploads/guest-bathroom-cabinets.png"
 slug = "quick-bath-update"
-tags = ["diy"]
+tags = ["diy", "video"]
 title = "DIY: Updated Bathroom Cabinets"
 
 +++
