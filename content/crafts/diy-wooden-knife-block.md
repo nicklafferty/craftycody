@@ -25,3 +25,5 @@ I had to make some alterations because, as usual, I don't have all of the same t
 7. Ruler or measuring tape
 8. Polyurethane
 9. Stain (for the dowels)
+
+## Process
