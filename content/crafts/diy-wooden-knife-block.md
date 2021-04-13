@@ -36,7 +36,7 @@ Instead, I found 1/4" square dowel rods at Lowe's. I searched their app just to 
 
 ![](/uploads/knife_block_2.jpg)
 
-I cut my board into four 10in pieces and my dowel rods into ten 9.5in pieces as the article describes. I only needed one 4ft board and 4 dowel rods to get all the parts I needed.
+I cut my board into four 10in pieces and my dowel rods into ten 9.5in pieces as the article describes. I only needed one 4ft board and 4 dowel rods to get all the parts I needed. I sanded the edges of my boards to even out the cuts and account for the jig's wonkiness.
 
 ![](/uploads/knife_block_3.jpg)
 
@@ -53,3 +53,5 @@ I measure my large knife and it's about 2 inches wide, so I made one slot 2 inch
 ![](/uploads/knife_block_5.jpg)
 
 Here's what mine looked like after I glued in the dowels to make the knife slots. Make sure the tops of the dowels line up with the tops of the boards so the knives sit evenly. The dowels are shorter than the boards for aesthetic purposes and gives some visual interest.
+
+Now, wipe some glue on the tops of your dowels and place one piece on top of the next carefully making sure the sides and the tops are even.
