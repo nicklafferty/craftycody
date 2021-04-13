@@ -64,4 +64,4 @@ When it's all dry, you can take your heavy item off and coat it with some polyur
 
 ![](/uploads/knife_block_7.jpg)
 
-And that's it! Give it ample time to dry then it's ready to house your knives!
+And that's it! Give it ample time to dry then it's ready to house your knives. I also grabbed our bread knife from the drawer and popped it in there. Yay, two whole knives!
