@@ -28,4 +28,6 @@ I had to make some alterations because, as usual, I don't have all of the same t
 
 ## Process
 
-I don't have a table or a miter saw as the author does in that article. The only powered saw I have is a jigsaw.
+I don't have a table or a miter saw as the author does in that article. The only powered saw I have is a jigsaw. This means I couldn't create the dividers the same way. There is no way to get a straight, quarter-inch cut with a jig. If you manage to do it, you're my hero.
+
+Instead, I found 1/4" square dowel rods at Lowe's. I searched their app just to see and lo and behold, square dowels exist. Thank goodness.
