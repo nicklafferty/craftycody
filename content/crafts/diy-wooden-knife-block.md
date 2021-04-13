@@ -17,7 +17,7 @@ I had to make some alterations because, as usual, I don't have all of the same t
 ## Supplies:
 
 1. 4ft long x 5in wide and 3/4" thick wood board. I grabbed red cedar.
-2. 1/4" square dowel rods
+2. 1/4" square dowel rods (4x)
 3. Jigsaw
 4. Coping saw or flush cut saw
 5. Sander
@@ -31,3 +31,5 @@ I had to make some alterations because, as usual, I don't have all of the same t
 I don't have a table or a miter saw as the author does in that article. The only powered saw I have is a jigsaw. This means I couldn't create the dividers the same way. There is no way to get a straight, quarter-inch cut with a jig. If you manage to do it, you're my hero.
 
 Instead, I found 1/4" square dowel rods at Lowe's. I searched their app just to see and lo and behold, square dowels exist. Thank goodness.
+
+I cut my board into four 10in pieces and my dowel rods into 9.5in pieces as the article describes. I only needed one 4ft board and 4 dowel rods to get all the pieces I needed.
