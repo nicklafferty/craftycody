@@ -32,4 +32,8 @@ I don't have a table or a miter saw as the author does in that article. The only
 
 Instead, I found 1/4" square dowel rods at Lowe's. I searched their app just to see and lo and behold, square dowels exist. Thank goodness.
 
+![](/uploads/knife_block.jpg)
+
+![](/uploads/knife_block_2.jpg)
+
 I cut my board into four 10in pieces and my dowel rods into 9.5in pieces as the article describes. I only needed one 4ft board and 4 dowel rods to get all the pieces I needed.
