@@ -36,7 +36,7 @@ Instead, I found [1/4" square dowel rods at Lowe's](https://www.lowes.com/pd/Mad
 
 ![](/uploads/knife_block_2.jpg)
 
-I cut my board into four 10in pieces and my dowel rods into ten 9.5in pieces as the article describes. I only needed one 4ft board and 4 dowel rods to get all the parts I needed. I sanded the edges of my boards to even out the cuts and account for the jig's wonkiness.
+I cut my board into four 10in pieces (with the jig) and my dowel rods into ten 9.5in pieces (with coping saw) as the article describes. I only needed one 4ft board and 4 dowel rods to get all the parts I needed. I sanded the edges of my boards to even out the cuts and account for the jig's wonkiness.
 
 ![](/uploads/knife_block_3.jpg)
 
