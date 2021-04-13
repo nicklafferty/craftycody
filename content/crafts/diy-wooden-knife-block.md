@@ -16,7 +16,7 @@ I had to make some alterations because, as usual, I don't have all of the same t
 
 ## Supplies:
 
-1. 5in wide and 3/4" thick wood boards. I grabbed red cedar.
+1. 4ft long x 5in wide and 3/4" thick wood board. I grabbed red cedar.
 2. 1/4" square dowel rods
 3. Jigsaw
 4. Coping saw or flush cut saw
