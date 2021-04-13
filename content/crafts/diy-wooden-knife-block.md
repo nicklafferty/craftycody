@@ -55,3 +55,13 @@ I measure my large knife and it's about 2 inches wide, so I made one slot 2 inch
 Here's what mine looked like after I glued in the dowels to make the knife slots. Make sure the tops of the dowels line up with the tops of the boards so the knives sit evenly. The dowels are shorter than the boards for aesthetic purposes and gives some visual interest.
 
 Now, wipe some glue on the tops of your dowels and place one piece on top of the next carefully making sure the sides and the tops are even.
+
+I followed the article and didn't clamp them together since that would make the boards move. Instead, I put a full gallon paint can on top and let the glue cure.
+
+When it's all dry, you can take your heavy item off and coat it with some polyurethane.
+
+![](/uploads/knife_block_6.jpg)
+
+![](/uploads/knife_block_7.jpg)
+
+And that's it! Give it ample time to dry then it's ready to house your knives!
