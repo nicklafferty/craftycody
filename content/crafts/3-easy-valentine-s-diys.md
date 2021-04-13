@@ -7,8 +7,9 @@ tags = ["crafts", "video"]
 title = "3 easy Valentine’s DIYS!"
 
 +++
+
+{{< youtube EBRNzi2q9jk >}}
+
 Some super simple DIYs up for you this week on my [YouTube channel](https://www.youtube.com/channel/UCYEjfsNAqG2_csAC7FDUYcg). Be sure to subscribe and let me know what you’d like to see next!
 
 We’re making a candle (sort of), a candle holder, and a small wreath to start out. Hoping to have some bigger and better DIYs in the future.
-
-<iframe width="663" height="373" src="[https://www.youtube.com/embed/EBRNzi2q9jk](https://www.youtube.com/embed/EBRNzi2q9jk "https://www.youtube.com/embed/EBRNzi2q9jk")" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
