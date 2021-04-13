@@ -36,4 +36,20 @@ Instead, I found 1/4" square dowel rods at Lowe's. I searched their app just to 
 
 ![](/uploads/knife_block_2.jpg)
 
-I cut my board into four 10in pieces and my dowel rods into 9.5in pieces as the article describes. I only needed one 4ft board and 4 dowel rods to get all the pieces I needed.
+I cut my board into four 10in pieces and my dowel rods into ten 9.5in pieces as the article describes. I only needed one 4ft board and 4 dowel rods to get all the parts I needed.
+
+![](/uploads/knife_block_3.jpg)
+
+After cutting the dowels, I rubbed stain on them with a paper towel so they would be protected and look better once everything was together. They dried quickly since it was such a light coat.
+
+I laid out my 4 sections and placed dowels on the edges to create the sides. I went ahead and put a thin layer of wood glue on the dowels with my fingers and glued them down.
+
+![](/uploads/knife_block_4.jpg)
+
+Remember you won't put them on that last piece (far left piece in the photo above). The dowels only need to go on one side of three pieces since you'll be stacking them together to form the knife block.
+
+I measure my large knife and it's about 2 inches wide, so I made one slot 2 inches and another 3 inches. In other slots, I followed the article and made 1 1/8" wide. Since my boards are slightly wider than the guide's, I had room for several different sizes. Be sure to measure the knives you want to store in the block. This part is completely customizable!
+
+![](/uploads/knife_block_5.jpg)
+
+Here's what mine looked like after I glued in the dowels to make the knife slots. Make sure the tops of the dowels line up with the tops of the boards so the knives sit evenly. The dowels are shorter than the boards for aesthetic purposes and gives some visual interest.
