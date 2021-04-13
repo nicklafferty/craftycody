@@ -27,3 +27,5 @@ I had to make some alterations because, as usual, I don't have all of the same t
 9. Stain (for the dowels)
 
 ## Process
+
+I don't have a table or a miter saw as the author does in that article. The only powered saw I have is a jigsaw.
