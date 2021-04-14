@@ -34,7 +34,7 @@ The next one is on the monitor plate and controls how easy it is to pitch the mo
 
 ![](/uploads/monitorarmreview_1.jpg)
 
-These two control the swivel tightness of the arms. You use the smaller Allen wrench to tighten them.
+These two small screws control the swivel tightness of the arms. You use the smaller Allen wrench to tighten them.
 
 ![](/uploads/monitorarmreview_2.jpg)
 
