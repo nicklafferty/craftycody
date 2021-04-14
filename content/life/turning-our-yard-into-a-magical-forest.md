@@ -5,6 +5,6 @@ draft = true
 image = ""
 slug = ""
 tags = []
-title = "Turning our yard into a magical forest"
+title = "My magical fairy garden"
 
 +++
