@@ -5,7 +5,7 @@ draft = true
 image = ""
 slug = ""
 tags = []
-title = "My magical fairy forest"
+title = "How we turned our yard into a magical forest."
 
 +++
 When we bought this house, the yard looked nice. I believe the previous owner really loved taking care of the lawn. However, there wasn't much in the way of gardens, plants, or ornamentation.
