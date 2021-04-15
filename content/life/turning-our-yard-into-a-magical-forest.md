@@ -25,3 +25,7 @@ If you have a local discovery center or similar, keep an eye out for plant sales
 A&M also has Master Gardener classes and certifications where you can learn all about plant life and become an expert. I'm planning on joining the next session whenever classes start again. In the meantime, I got [Neil Sperry's book Lone Star Gardening](https://www.amazon.com/gp/product/0991620704/ref=as_li_qf_asin_il_tl?ie=UTF8&tag=codybear0e-20&creative=9325&linkCode=as2&creativeASIN=0991620704&linkId=74f76ac6c171a16d6200b8a0ce2c284e) that outlines all kinds of native plants and has a calendar of when you should plant what. He's super informative and also hosts a radio show about gardening.
 
 You can find lots of ideas and tips on [Pinterest](https://www.pinterest.com/) as well. There are entire collections dedicated to urban gardening, fairy gardens, Japanese-inspired backyards, xeriscaping, outdoor entertaining, DIYs and the list goes on.
+
+## Front yard
+
+## Backyard
