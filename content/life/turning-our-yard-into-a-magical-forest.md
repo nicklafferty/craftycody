@@ -16,7 +16,7 @@ Slowly but surely we've been dethatching the thick, dead grass and creating flow
 
 I'll try and be as thorough as possible with what we're doing to our yard. It's an ongoing process!
 
-## Resources
+## Landscaping resources
 
 It's surprisingly easy to do. A great resource is the [Texas A&M Horticulture site](https://aggie-horticulture.tamu.edu/). There are all kinds of plants and ideas in there to make DIY landscaping simple and beautiful. Really all it takes is a lot of time...and some money, but mostly time.
 
