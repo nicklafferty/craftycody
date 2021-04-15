@@ -35,3 +35,5 @@ Our front yard was in the roughest shape. The trees aren't big enough to provide
 ## Backyard
 
 Why is 'backyard' one word and 'front yard' two words?
+
+Anyway, the backyard was one of the reasons I loved the house. You can reno the house itself and really make it look however you want, but giant trees are hard to come by. It's near impossible to plant 40-year-old trees to get the feeling I wanted when we were looking for a home.
