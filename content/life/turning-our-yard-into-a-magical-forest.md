@@ -31,3 +31,5 @@ You can find lots of ideas and tips on [Pinterest](https://www.pinterest.com/) a
 ## Front yard
 
 ## Backyard
+
+Why is 'backyard' one word and 'front yard' two words?
