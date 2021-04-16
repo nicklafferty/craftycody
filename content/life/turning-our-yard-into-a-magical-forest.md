@@ -75,3 +75,7 @@ I laid out my grid pattern and looked up how much space each veggie would need a
 We had one and a half (sort of) beds next to the deck. There was a dilapidated lattice barely attached to the end of the deck with some kind of something (we think roses) growing up it. It was actually quite a hazard and while the reno was going on we decided to dispose of it in the dumpster we rented.
 
 After it was all cleared out, I was able to section off a proper bed to plant in. We wanted a pseudo-privacy wall and I looked into building one but had always been a fan of bamboo. It's also a lot cheaper. I reached bamboo species because I know they can be incredibly invasive and came across [Bamboo Plants Online](https://bambooplantsonline.com/). I ordered two pots of clumping, non-invasive [Seabreeze bamboo](https://bambooplantsonline.com/products/seabreeze) and followed their videos for planting instructions. It's very straightforward and I'm hoping to have a cool, green bamboo thicket to provide some privacy. It even survived the cold front that swept through Texas a couple of months ago.
+
+Around the bamboo are the cacti that we've had for several years, but didn't want to plant since we were renters. They finally have a home!
+
+In the front of the bed, we planted one lavender and two Gregg's mistflower. They're all perennials and should have beautiful purple blooms.
