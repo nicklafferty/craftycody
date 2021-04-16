@@ -40,6 +40,8 @@ We also pulled out the plants under the picture window. My husband wasn't a fan 
 
 ### Yard
 
+There were stepping stones leading from the sidewalk to the driveway. I thought this was a nice idea since you'd be walking through the grass otherwise.
+
 The grass was toast when we finally moved in. We treated it with some lawn fertilizer and it's slowly coming back, but it was a good time to start dethatching and putting in garden beds since it was dead anyway. You don't have to feel guilty about pulling up lush grass.
 
 ## Backyard
