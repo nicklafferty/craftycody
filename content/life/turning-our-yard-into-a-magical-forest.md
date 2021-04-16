@@ -60,8 +60,10 @@ Anyway, the backyard was one of the reasons I loved the house. You can reno the 
 
 There were a lot of wild shrubs and weeds along the back fence and some sad-looking plants in the bed below our bedroom window. For the most part, our backyard was a blank canvas.
 
-Window bed
+### Window bed
 
-Vegetable garden
+The same plants that were in the front bed were here as well. I forget what they're called, but we weren't keen on them. We took them out and cleaned out the bed. In their place, I planted two, cute palmettos I bought at the Discovery Center sale. They do well in full shade and are slow growers, but are also very drought tolerant. They haven't grown much since I planted them a few months ago, but they are still green!
 
-Plant beds
+### Vegetable garden
+
+### Plant beds
