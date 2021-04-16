@@ -79,3 +79,5 @@ After it was all cleared out, I was able to section off a proper bed to plant in
 Around the bamboo are the cacti that we've had for several years, but didn't want to plant since we were renters. They finally have a home!
 
 In the front of the bed, we planted one lavender and two Gregg's mistflower. They're all perennials and should have beautiful purple blooms.
+
+In the half-bed, I put a jasmine star ivy plant that I'm hoping will grow up the wall and break up all that white brick. I'll have to get a bigger trellis eventually since they don't stick to walls.
