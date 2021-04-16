@@ -71,3 +71,5 @@ We've grown pepper plants at previous houses, but never a full garden. I wanted 
 I laid out my grid pattern and looked up how much space each veggie would need and got to planting. Everything is growing and couldn't have been easier. Besides water, it really takes care of itself. I can't wait to harvest!
 
 ### Plant beds
+
+We had one (and a half, sort of) beds next to the deck. There was a dilapidated lattice barely attached to the end of the deck with some kind of something (we think roses) growing up it. It was actually quite a hazard and while the reno was going on we decided to dispose of it in the dumpster we rented.
