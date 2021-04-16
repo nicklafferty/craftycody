@@ -68,6 +68,8 @@ There were a lot of wild shrubs and weeds along the back fence and some sad-look
 
 The same plants that were in the front bed were here as well. I forget what they're called, but we weren't keen on them. We took them out and cleaned out the bed. In their place, I planted two, cute palmettos I bought at the Discovery Center sale. They do well in full shade and are slow growers, but are also very drought tolerant. They haven't grown much since I planted them a few months ago, but they are still green!
 
+I also added some of that English ivy back here. The wall is huge and the green ivy will look great once it's able to creep up and mature.
+
 ### Vegetable garden
 
 We've grown pepper plants at previous houses, but never a full garden. I wanted raised beds, so I bought a little kit at Lowe's and put it together. I also looked into square foot gardening which is really, really neat! If you're new to gardening, definitely check it out. It makes it approachable and simple for newbs like myself.
