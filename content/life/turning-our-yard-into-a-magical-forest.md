@@ -38,11 +38,13 @@ They were lined with old landscape fabric and the beds themselves were bordered 
 
 We also pulled out the plants under the picture window. My husband wasn't a fan and they looked like they might be dead anyway. I didn't have a preference, but I love making things ours so I was happy to replace them with a bunch of pretty flowers. Hopefully, we'll get some bees and hummingbirds as these babies grow.
 
-### Yard
+### Pathway
 
 There were stepping stones leading from the sidewalk to the driveway. I thought this was a nice idea since you'd be walking through the grass otherwise. The stones that were there were sunken into the ground and I thought they needed an update. I pulled them all up just by sticking a garden spade and using the leverage to pop them out. Then, I connected the holes they left by digging a trench between them. I tried to keep the width as even I could, but it was fairly laborious work, haha. I love square stepping stone so I got seven 12" ones from Lowe's, some black gravel, landscape fabric, and black mulch. I put the fabric down in my new trench and secured it with landscape pins. I put the mulch on top, then the stones, and then filled in around everything with the gravel. It didn't come out perfect, but I really like the look and as I first try I don't think it's too bad.
 
 Around the stepping stones, I planted some perennial seeds.
+
+### Yard
 
 The grass was toast when we finally moved in. We treated it with some lawn fertilizer and it's slowly coming back, but it was a good time to start dethatching and putting in garden beds since it was dead anyway. You don't have to feel guilty about pulling up lush grass.
 
