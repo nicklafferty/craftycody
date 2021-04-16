@@ -88,4 +88,4 @@ In the front of the bed, we planted one lavender and two Gregg's mistflower. The
 
 In the half-bed, I put a star jasmine plant that I'm hoping will grow up the wall and break up all that white brick. I'll have to get a bigger trellis eventually since they don't stick to walls.
 
-There were tons of weird weed/shrubs along the back fence that were in rough shape. We pulled most of them out and started a new bed in the back corner of our yard. It's pretty shady back there, so we bought shrubs that did well in low light. There are a couple of sages, a hosta, and coleus.
+There were tons of weird weed/shrubs along the back fence that were in rough shape. We pulled most of them out and started a new bed in the back corner of our yard. It's pretty shady back there, so we bought shrubs that did well in low light. There are a couple of sages, hosta, and coleus.
