@@ -66,7 +66,7 @@ There were a lot of wild shrubs and weeds along the back fence and some sad-look
 
 ### Deck
 
-I repainted the deck itself from a rusty red color to a mossy seafoam with dark blue accents. I was originally going to strip the paint and stain it, but the deck is kind of crappy for lack of a better word. I have a feeling we're going to have to replace the whole thing eventually and I didn't want to do all that work. Plus, painting is fun and you get to add more color which, now that our house is solid white, we were in need of.
+I repainted the deck itself from a rusty red color to a mossy green with dark blue accents. I was originally going to strip the paint and stain it, but the deck is kind of crappy for lack of a better word. I have a feeling we're going to have to replace the whole thing eventually and I didn't want to do all that work. Plus, painting is fun and you get to add more color which, now that our house is solid white, we were in need of.
 
 ### Window bed
 
