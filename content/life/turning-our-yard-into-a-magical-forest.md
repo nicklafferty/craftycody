@@ -66,4 +66,8 @@ The same plants that were in the front bed were here as well. I forget what they
 
 ### Vegetable garden
 
+We've grown pepper plants at previous houses, but never a full garden. I wanted raised beds, so I bought a little kit at Lowe's and put it together. I also looked into square foot gardening which is really, really neat! If you're new to gardening, definitely check it out. It makes it approachable and simple for newbs like myself.
+
+I laid out my grid pattern and looked up how much space each veggie would need and got to planting. Everything is growing and couldn't have been easier. Besides water, it really takes care of itself. I can't wait to harvest!
+
 ### Plant beds
