@@ -64,6 +64,10 @@ Anyway, the backyard was one of the reasons I loved the house. You can reno the 
 
 There were a lot of wild shrubs and weeds along the back fence and some sad-looking plants in the bed below our bedroom window. For the most part, our backyard was a blank canvas.
 
+### Deck
+
+I repainted the deck itself from a rusty red color to a mossy seafoam with dark blue accents. I was originally going to strip the paint and stain it, but the deck is kind of crappy for lack of a better word. I have a feeling we're going to have to replace the whole thing eventually and I didn't want to do all that work. Plus, painting is fun and you get to add more color which, now that our house is solid white, we were in need of.
+
 ### Window bed
 
 The same plants that were in the front bed were here as well. I forget what they're called, but we weren't keen on them. We took them out and cleaned out the bed. In their place, I planted two, cute palmettos I bought at the Discovery Center sale. They do well in full shade and are slow growers, but are also very drought tolerant. They haven't grown much since I planted them a few months ago, but they are still green!
