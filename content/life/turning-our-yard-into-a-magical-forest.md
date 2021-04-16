@@ -56,4 +56,12 @@ The grass was toast when we finally moved in. We treated it with some lawn ferti
 
 Why is 'backyard' one word and 'front yard' two words?
 
-Anyway, the backyard was one of the reasons I loved the house. You can reno the house itself and make it look however you want, but giant trees are hard to come by. It's near impossible to plant 40-year-old trees to get the feeling I wanted when we were looking for a home. When I saw this house had 5 old trees in the backyard, it was pretty much a done deal for me. I wish there were some in the front, but the two that are out there will grow.
+Anyway, the backyard was one of the reasons I loved the house. You can reno the house itself and make it look however you want, but giant trees are hard to come by. It's near impossible to plant 40-year-old trees to get the feeling I wanted when we were looking for a home. When I saw this house had 5 old trees in the backyard, it was pretty much a done deal for me. I wish there were some in the front, but the two that are out there will grow...eventually.
+
+There were a lot of wild shrubs and weeds along the back fence and some sad-looking plants in the bed below our bedroom window. For the most part, our backyard was a blank canvas.
+
+Window bed
+
+Vegetable garden
+
+Plant beds
