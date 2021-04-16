@@ -4,7 +4,7 @@ description = "Landscaping looks difficult, but there are lots of tips to get th
 draft = true
 image = ""
 slug = ""
-tags = []
+tags = ["diy", "gardening"]
 title = "How we turned our yard into a magical forest."
 
 +++
