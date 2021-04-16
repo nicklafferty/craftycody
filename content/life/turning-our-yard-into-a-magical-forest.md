@@ -70,7 +70,7 @@ I repainted the deck itself from a rusty red color to a mossy green with dark bl
 
 ### Window bed
 
-The same plants that were in the front bed were here as well. I forget what they're called, but we weren't keen on them. We took them out and cleaned out the bed. In their place, I planted two, cute palmettos I bought at the Discovery Center sale. They do well in full shade and are slow growers, but are also very drought tolerant. They haven't grown much since I planted them a few months ago, but they are still green!
+The same plants that were in the front bed were here as well. I forget what they're called, but we weren't keen on them. We took them out and cleaned out the bed. In their place, I planted two, cute dwarf palmettos I bought at the Discovery Center sale. They do well in full shade and are slow growers, but are also very drought tolerant. They haven't grown much since I planted them a few months ago, but they are still green!
 
 I also added some of that English ivy back here. The wall is huge and the green ivy will look great once it's able to creep up and mature.
 
