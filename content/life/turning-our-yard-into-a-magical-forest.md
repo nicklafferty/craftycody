@@ -22,6 +22,8 @@ It feels incredibly daunting at first, but it's surprisingly easy to do. You hav
 
 A great resource is the [Texas A&M Horticulture site](https://aggie-horticulture.tamu.edu/). There are all kinds of plants and ideas in there to make DIY landscaping simple and beautiful. Really all it takes is a lot of time...and some money, but mostly time.
 
+The [Ladybird Johnson Wildflower Center's website ](https://www.wildflower.org/plants-main)also has a plethora of information about native plants. I'm probably on this site daily looking up how to care for the various plants in my yard. It's super helpful and gave me the idea to put my frog fruit in hanging baskets versus making it groundcover.
+
 If you have a local discovery center or similar, keep an eye out for plant sales. They usually get them donated then sell them to help the center. Ours just had a sale and plants started at $2.50- you cannot beat it! It's hard for big box stores to compete, however they are more convenient.
 
 A&M also has Master Gardener classes and certifications where you can learn all about plant life and become an expert. I'm planning on joining the next session whenever classes start again. In the meantime, I got [Neil Sperry's book Lone Star Gardening](https://www.amazon.com/gp/product/0991620704/ref=as_li_qf_asin_il_tl?ie=UTF8&tag=codybear0e-20&creative=9325&linkCode=as2&creativeASIN=0991620704&linkId=74f76ac6c171a16d6200b8a0ce2c284e) that outlines all kinds of native plants and has a calendar of when you should plant what. He's super informative and also hosts a radio show about gardening. His book is [less expensive on his website.](https://neilsperry.com/store/5th-printing-of-neil-sperrys-lone-star-gardening/)
