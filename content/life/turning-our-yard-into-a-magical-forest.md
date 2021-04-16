@@ -30,7 +30,11 @@ You can find lots of ideas and tips on [Pinterest](https://www.pinterest.com/) a
 
 ## Front yard
 
-Our front yard was in the roughest shape. The trees aren't big enough to provide much shade and the sun just beats down all day, every day. There were two garden beds under the windows that had less than ideal plants- particularly the bed under our large, picture window.
+Our front yard was in the roughest shape. The trees aren't big enough to provide much shade and the sun just beats down all day, every day. There were two garden beds under the windows that had less than ideal plants- particularly the bed under our large, picture window. These beds were the first things we changed.
+
+They were lined with old landscape fabric and the beds themselves were bordered with wood beams that were absolutely filled with termites. I love wood as much as the next person, but you really have to be careful when putting it out in your yard because you can invite pests and rot if not done properly. We tossed the wood and my FIL brought some beautiful stone bricks to re-line the beds with and I love them. They look cleaner and more professional in my opinion. Also, termites don't eat stone!
+
+We also pulled out the plants under the picture window. My husband wasn't a fan and they looked like they might be dead anyway. I didn't have a preference, but I love making things ours so I was happy to replace them with a bunch of pretty flowers. Hopefully, we'll get some bees and hummingbirds as these babies grow.
 
 The grass was toast when we finally moved in. We treated it with some lawn fertilizer and it's slowly coming back, but it was a good time to start dethatching and putting in garden beds since it was dead anyway. You don't have to feel guilty about pulling up lush grass.
 
