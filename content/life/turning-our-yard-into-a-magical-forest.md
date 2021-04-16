@@ -30,7 +30,7 @@ You can find lots of ideas and tips on [Pinterest](https://www.pinterest.com/) a
 
 ## Front yard
 
-Our front yard was in the roughest shape. The trees aren't big enough to provide much shade and the sun just beats down all day, every day. There were two garden beds under the windows 
+Our front yard was in the roughest shape. The trees aren't big enough to provide much shade and the sun just beats down all day, every day. There were two garden beds under the windows that had less than ideal plants- particularly the bed under our large, picture window.
 
 The grass was toast when we finally moved in. We treated it with some lawn fertilizer and it's slowly coming back, but it was a good time to start dethatching and putting in garden beds since it was dead anyway. You don't have to feel guilty about pulling up lush grass.
 
