@@ -20,9 +20,9 @@ I had to make some alterations because, as usual, I don't have all of the same t
 
 1. 4ft long x 5in wide and 3/4" thick wood board. I grabbed red cedar.
 2. 1/4" square dowel rods (4x)
-3. Jigsaw
-4. Coping saw or flush cut saw
-5. Sander
+3. [Jigsaw](https://www.amazon.com/gp/product/B007NVSSFS/ref=as_li_qf_asin_il_tl?ie=UTF8&tag=codybear0e-20&creative=9325&linkCode=as2&creativeASIN=B007NVSSFS&linkId=673b3645d3637f12b3dcc8720a063fbb)
+4. Coping saw or [flush cut saw](https://www.amazon.com/gp/product/B07T9K59D1/ref=as_li_qf_asin_il_tl?ie=UTF8&tag=codybear0e-20&creative=9325&linkCode=as2&creativeASIN=B07T9K59D1&linkId=73a6557acfc57abe24f48cf1488be4c0)
+5. [Sander](https://www.amazon.com/gp/product/B00ZWJDN5S/ref=as_li_qf_asin_il_tl?ie=UTF8&tag=codybear0e-20&creative=9325&linkCode=as2&creativeASIN=B00ZWJDN5S&linkId=f453d723c77dc3ff0e3cf3717bd78e79)
 6. Wood glue
 7. Ruler or measuring tape
 8. Polyurethane
