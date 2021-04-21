@@ -1,7 +1,6 @@
 +++
-date = ""
+date = 2021-04-21T05:00:00Z
 description = "A practical knife block for your kitchen."
-draft = true
 image = "/uploads/knife-block-diy.png"
 slug = "kinfe-block-diy"
 tags = ["diy"]
