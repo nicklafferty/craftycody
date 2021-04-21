@@ -5,9 +5,11 @@ draft = true
 image = "/uploads/knife-block-diy.png"
 slug = "kinfe-block-diy"
 tags = ["diy"]
-title = "(DONE) DIY: Wooden Knife Block"
+title = "DIY: Wooden Knife Block"
 
 +++
+_This post contains affiliate links at no cost to you._
+
 I have been wanting a knife block for _years_. We have one large knife we use all the time and it sits out on the cutting board when not in use. It bothered me so much that it didn't have a home.
 
 While I was looking around for simple DIYs, I came across this [knife block tutorial](https://www.wwgoa.com/article/walnut-knife-block/) after finding one for my bottle opener. The author created such a simple design that's easy on the budget and can be done by a beginner (like yours truly!).
