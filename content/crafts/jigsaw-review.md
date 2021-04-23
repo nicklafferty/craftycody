@@ -39,3 +39,5 @@ I don't think many of us need to cut too much metal, but this little guy can do 
 The first thing to always keep in mind when working with power tools is safety and safety is enforced with repetition. I always wear gloves and safety glasses when using tools. What I always do when putting my jigsaw away is make sure the safety lock is on and turn the speed dial down to 1. Then, when I know the trigger is locked, pull the battery out and set it aside. I also pull the trigger to make sure there is no "juice" in the tool and then lock it again. Last, I take the saw blade out and store it away in a small case. Be careful as the blade may be hot after use.
 
 ## Summary
+
+I'm incredibly happy with this little saw. It's been invaluable to me and even whenever I inevitably get a miter saw, I will still be using this for its portability and quickness.
