@@ -34,6 +34,8 @@ I don't think many of us need to cut too much metal, but this little guy can do 
 
 ## Value/Quality
 
+It's heavy-duty without being super heavy and is about [$200 at Lowe's ](https://www.lowes.com/pd/DEWALT-XR-20-Volt-Max-Brushless-Variable-Speed-Keyless-Cordless-Jigsaw-Battery-Not-Included/1000601417?cm_mmc=shp-_-c-_-prd-_-tol-_-google-_-lia-_-129-_-cordlessdrillsandcombokits-_-1000601417-_-0&placeholder=null&ds_rl=1286981&gclid=Cj0KCQjw4ImEBhDFARIsAGOTMj_tCSmIM5BKOMsEk7x1f1Z3N3o3-keCosg6BEI8D9k9MOwth-XaKQoaAk9iEALw_wcB&gclsrc=aw.ds)at any given time. You can find it for less on other sites and there are frequent sales throughout the year. Like I said, I got mine in a bundle
+
 ## Safety Tips
 
 The first thing to always keep in mind when working with power tools is safety and safety is enforced with repetition. I always wear gloves and safety glasses when using tools. What I always do when putting my jigsaw away is make sure the safety lock is on and turn the speed dial down to 1. Then, when I know the trigger is locked, pull the battery out and set it aside. I also pull the trigger to make sure there is no "juice" in the tool and then lock it again. Last, I take the saw blade out and store it away in a small case. Be careful as the blade may be hot after use.
