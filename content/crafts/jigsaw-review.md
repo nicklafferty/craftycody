@@ -1,6 +1,6 @@
 +++
 date = ""
-description = ""
+description = "Taking a look at a jigsaw that will quickly become a staple in your workshop."
 draft = true
 image = ""
 slug = "dewalt-cordless-jigsaw-review"
