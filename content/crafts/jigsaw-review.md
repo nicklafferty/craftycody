@@ -34,7 +34,7 @@ I don't think many of us need to cut too much metal, but this little guy can do 
 
 ## Value/Quality
 
-It's heavy-duty without being super heavy and is about [$200 at Lowe's ](https://www.lowes.com/pd/DEWALT-XR-20-Volt-Max-Brushless-Variable-Speed-Keyless-Cordless-Jigsaw-Battery-Not-Included/1000601417?cm_mmc=shp-_-c-_-prd-_-tol-_-google-_-lia-_-129-_-cordlessdrillsandcombokits-_-1000601417-_-0&placeholder=null&ds_rl=1286981&gclid=Cj0KCQjw4ImEBhDFARIsAGOTMj_tCSmIM5BKOMsEk7x1f1Z3N3o3-keCosg6BEI8D9k9MOwth-XaKQoaAk9iEALw_wcB&gclsrc=aw.ds)at any given time. You can find it for less on other sites and there are frequent sales throughout the year. Like I said, I got mine in a bundle
+It's heavy-duty without being super heavy and is about [$200 at Lowe's ](https://www.lowes.com/pd/DEWALT-XR-20-Volt-Max-Brushless-Variable-Speed-Keyless-Cordless-Jigsaw-Battery-Not-Included/1000601417?cm_mmc=shp-_-c-_-prd-_-tol-_-google-_-lia-_-129-_-cordlessdrillsandcombokits-_-1000601417-_-0&placeholder=null&ds_rl=1286981&gclid=Cj0KCQjw4ImEBhDFARIsAGOTMj_tCSmIM5BKOMsEk7x1f1Z3N3o3-keCosg6BEI8D9k9MOwth-XaKQoaAk9iEALw_wcB&gclsrc=aw.ds)at any given time. You can find it for less on other sites and there are frequent sales throughout the year. As I said, I got mine in a bundle of 4 tools, batteries, and a bag for $200. That was in November so I guarantee it was part of their Christmas sales.
 
 ## Safety Tips
 
