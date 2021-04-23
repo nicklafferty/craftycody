@@ -20,6 +20,18 @@ The handle is very comfortable and sets your hand a safe distance away from the 
 
 ## Performance
 
+So, does it cut?
+
+Yes, very well.
+
+Wood feels like butter.
+
+Jigsaws are not meant to cut straight, but I came up with a trick (which I'm sure many others before me have done). I clamp a piece of scrap wood to the board I'm cutting and make sure it's level. I use this as a guide for the jigsaw. I cut right up against that scrap piece and can usually get a pretty straight cut.
+
+What about metal?
+
+I don't think many of us need to cut too much metal, but this little guy can do it. I had to cut a metal (aluminum, maybe?) curtain rod down so that it would fit into my trash bin. It took a little doing because of the awkward shape, but it cut through enough to where I could snap it the rest of the way. This saw shouldn't have any problems with flat sheet metal.
+
 ## Value/Quality
 
 ## Safety Tips
