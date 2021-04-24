@@ -93,3 +93,13 @@ In the front of the bed, we planted one lavender and two Gregg's mistflower. The
 In the half-bed, I put a star jasmine plant that I'm hoping will grow up the wall and break up all that white brick. I'll have to get a bigger trellis eventually since they don't stick to walls.
 
 There were tons of weird weed/shrubs along the back fence that were in rough shape. We pulled most of them out and started a new bed in the back corner of our yard. It's pretty shady back there, so we bought shrubs that did well in low light. There are a couple of sages, hosta, and coleus.
+
+## Planting Process
+
+I am by no means a master gardener. This is my first foray into large-scale gardening. When planting the bamboo, I bought fertilizer, root activator, and compost like the videos on their site said. Of course, I had a ton leftover after the bamboo was in the ground.
+
+The fertilizer I use is a 10-10-10 all-purpose fertilizer I got from Lowe's. The numbers represent the amount of each nutrient the fertilizer contains. Those nutrients are nitrogen, phosphorus, and potassium respectively. Different plants need different combinations of the three and it's important to look up what your plants will need. Some plants don't like fertilizer at all!
+
+Root activator does what it sounds like. It stimulates root growth and helps protect against transplant shock. I pour a little of this into some water and pour it into a hole I just dug for a plant. I may even pour some directly on the roots.
+
+Compost gets mixed in with the dirt in a freshly dug hole then the plant is placed on top. I use Black Kow brand compost because it's what Lowe's has. I also have a tumbler composter where we are starting our own compost and will use that when it's ready.
