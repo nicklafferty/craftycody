@@ -3,7 +3,7 @@ date = ""
 description = "Landscaping looks difficult, but there are lots of tips to get the look you're after with a low budget. Trust me."
 draft = true
 image = ""
-slug = ""
+slug = "landscaping-our-home"
 tags = ["diy", "gardening"]
 title = "How we turned our yard into a magical forest."
 
