@@ -43,3 +43,5 @@ I chipped away all the rust and dirt I saw, gave it a light clean with some blea
 While the chair was drying, I needed to make a new seat. The particleboard (or whatever it was) completely deteriorated and was unusable. I measure the diameter of the seat then halved it for the radius. I cut a piece of string that was the length of the radius and attached one end to a pencil. I held down the tip of the string on my new plywood and drew a circle around. It isn't a perfect science, but how I learned how to draw a pretty good circle in elementary school.
 
 I used my jigsaw to cut out the circle. This is the first time I've used it to cut curves, which is was it was made to do. It did a great job. I did have to trim the circle down a couple of times since it was a little too wide for the chair itself, but it wasn't too bad for a first attempt. Then, I sanded the sides, top, and bottom of my new seat.
+
+I taped off the sides to make a square and labeled the spots where the new buttons would go for tufting.
