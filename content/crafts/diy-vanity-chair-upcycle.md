@@ -24,17 +24,22 @@ Here we go:
 
  1. Jigsaw
  2. Drill
- 3. Pliers
- 4. Plywood
- 5. Fabric
- 6. Stuffing
- 7. Buttons
- 8. Needle and thread
- 9. Spray paint
-10. Ruler and pencil
+ 3. Sander
+ 4. Pliers
+ 5. Plywood
+ 6. Fabric
+ 7. Stuffing
+ 8. Buttons
+ 9. Needle and thread
+10. Spray paint
+11. Ruler and pencil
 
 ## Process:
 
 The first step was taking the cushions off of the chair, which is easy enough. Each one was attached with three screws, so I used my drill to quickly unscrew them and detach. Now, I could take my drill with my rust/paint remover bit and go over all the rusty bits on the metal frame. This made cleaning it much easier than going over everything with a cloth first.
 
 I chipped away all the rust and dirt I saw, gave it a light clean with some bleach, then it was time to spray paint. I went with matte gold.
+
+While the chair was drying, I needed to make a new seat. The particleboard (or whatever it was) completely deteriorated and was unusable. I measure the diameter of the seat then halved it for the radius. I cut a piece of string that was the length of the radius and attached one end to a pencil. I held down the tip of the string on my new plywood and drew a circle around. It isn't a perfect science, but how I learned how to draw a pretty good circle in elementary school.
+
+I used my jigsaw to cut out the circle. This is the first time I've used it to cut curves, which is was it was made to do. It did a great job. I did have to trim the circle down a couple of times since it was a little too wide for the chair itself, but it wasn't too bad for a first attempt. Then, I sanded the sides, top, and bottom of my new seat.
