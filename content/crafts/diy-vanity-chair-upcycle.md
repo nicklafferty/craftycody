@@ -30,5 +30,6 @@ Here we go:
 6. Buttons
 7. Needle and thread
 8. Spray paint
+9. Ruler and pencil
 
 ## Process:
