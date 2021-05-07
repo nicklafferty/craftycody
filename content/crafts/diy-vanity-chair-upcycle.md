@@ -40,7 +40,15 @@ Here we go:
 
 The first step was taking the cushions off of the chair, which is easy enough. Each one was attached with three screws, so I used my drill to quickly unscrew them and detach. Now, I could take my drill with my rust/paint remover bit and go over all the rusty bits on the metal frame. This made cleaning it much easier than going over everything with a cloth first.
 
+![](/uploads/vanity_chair_upcycle_1.jpg)
+
+![](/uploads/vanity_chair_upcycle_2.jpg)
+
 I chipped away all the rust and dirt I saw, gave it a light clean with some bleach, then it was time to spray paint. I went with matte gold.
+
+![](/uploads/vanity_chair_upcycle_3.jpg)
+
+![](/uploads/vanity_chair_upcycle_4.jpg)
 
 While the chair was drying, I needed to make a new seat. The particleboard (or whatever it was) completely deteriorated and was unusable. I measure the diameter of the seat then halved it for the radius. I cut a piece of string that was the length of the radius and attached one end to a pencil. I held down the tip of the string on my new plywood and drew a circle around. It isn't a perfect science, but how I learned how to draw a pretty good circle in elementary school.
 
