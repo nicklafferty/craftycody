@@ -61,3 +61,9 @@ I used my jigsaw to cut out the circle. This is the first time I've used it to c
 I taped off the sides to make a square and labeled the spots where the new buttons would go for tufting. The original had 16, so this one would too. I drilled 2 small holes per button that would be used to feed the string through and tie-down.
 
 ![](/uploads/vanity_chair_upcycle_7.jpg)
+
+![](/uploads/vanity_chair_upcycle_11.jpg)
+
+The picture above has the fabric already on, but you can see the holes that were drilled for the strings and buttons.
+
+Now, onto the actual upholstery part.
