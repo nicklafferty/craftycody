@@ -32,9 +32,11 @@ Here we go:
  6. Fabric
  7. Stuffing
  8. Buttons
- 9. Needle and thread
-10. Spray paint
-11. Ruler and pencil
+ 9. Decorative cord
+10. Needle and thread
+11. Glue gun
+12. Spray paint
+13. Ruler and pencil
 
 ## Process:
 
