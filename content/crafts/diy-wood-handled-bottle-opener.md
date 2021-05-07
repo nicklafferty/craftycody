@@ -1,11 +1,10 @@
 +++
-date = ""
+date = 2021-05-06T05:00:00Z
 description = "Adding and carving a wood handle to make a personalized gift."
-draft = true
 image = "/uploads/bottle-opener.png"
 slug = "wood-handle-bottle-opener"
 tags = ["diy"]
-title = "(DONE) DIY: Wood-handled Bottle Opener"
+title = "DIY: Wood-handled Bottle Opener"
 
 +++
 I wanted to find some simple woodworking ideas to make as a gift. I found this [bottle opener guide](https://www.wwgoa.com/article/how-to-make-a-wood-handled-bottle-opener/) and adapted it to work for me. I don't have all the tools used so I needed to make do with what I had!
