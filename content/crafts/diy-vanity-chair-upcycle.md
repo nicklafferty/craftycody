@@ -58,4 +58,6 @@ While the chair was drying, I needed to make a new seat. The particleboard (or w
 
 I used my jigsaw to cut out the circle. This is the first time I've used it to cut curves, which is was it was made to do. It did a great job. I did have to trim the circle down a couple of times since it was a little too wide for the chair itself, but it wasn't too bad for a first attempt. Then, I sanded the sides, top, and bottom of my new seat.
 
-I taped off the sides to make a square and labeled the spots where the new buttons would go for tufting. The original had 16, so this one would too. I drilled 2 small holes per button that would be used to feed the string through and tie down.
+I taped off the sides to make a square and labeled the spots where the new buttons would go for tufting. The original had 16, so this one would too. I drilled 2 small holes per button that would be used to feed the string through and tie-down.
+
+![](/uploads/vanity_chair_upcycle_7.jpg)
