@@ -70,7 +70,7 @@ The picture above has the fabric already on, but you can see the holes that were
 
 Now, onto the actual upholstery part.
 
-The original fabric was fuzzy, maybe a chenille or velvet blend, and I wanted to emulate that look. I found this crushed velvet fabric in bordeux at Hobby Lobby and bought one yard.
+The original fabric was fuzzy, maybe a chenille or velvet blend, and I wanted to emulate that look. I found this crushed velvet fabric in bordeaux at Hobby Lobby and bought one yard.
 
 ![](/uploads/vanity_chair_upcycle_8.jpg)
 
@@ -109,3 +109,9 @@ The seatback was a little trickier for this reason. I had to cut some small hole
 My cushions didn't quite cover the gaps between them and the metal chair, which I figured might happen. I bought some black cord and went around the cushions with it, shoving it into the gaps as necessary. I used hot glue to secure.
 
 ![](/uploads/vanity_chair_upcycle_17.jpg)
+
+And all done! This project took me about 3 days because the tufting was annoying and I didn't want to work on the second cushion after I finished the first.
+
+![](/uploads/vanity_chair_upcycle_18.jpg)
+
+Here is my chair in its new home!
