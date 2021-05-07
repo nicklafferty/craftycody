@@ -40,7 +40,7 @@ Here we go:
 
 ## Process:
 
-The first step was taking the cushions off of the chair, which is easy enough. Each one was attached with three screws, so I used my drill to quickly unscrew them and detach. Now, I could take my drill with my rust/paint remover bit and go over all the rusty bits on the metal frame. This made cleaning it much easier than going over everything with a cloth first.
+The first step was taking the cushions off of the chair, which is easy enough. Each one was attached with three screws, so I used my drill to quickly unscrew and detach them. Now, I could take my drill with my rust/paint remover bit and go over all the rusty bits on the metal frame. This made cleaning it much easier than going over everything with a cloth first.
 
 ![](/uploads/vanity_chair_upcycle_1.jpg)
 
