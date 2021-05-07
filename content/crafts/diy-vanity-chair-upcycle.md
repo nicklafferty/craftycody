@@ -5,7 +5,7 @@ draft = true
 image = "/uploads/vanitychairupcycle.png"
 slug = "vanity-chair-upcycle"
 tags = ["diy", "furniture", "upcycle"]
-title = "DIY: Vanity Chair Upcycle"
+title = "(DONE) DIY: Vanity Chair Upcycle"
 
 +++
 I recently acquired a beautiful waterfall vanity. I've been wanting one for a couple of years now and have kept an eye out on Craigslist. Finally, I found one that was both reasonably priced and close by.
