@@ -16,6 +16,8 @@ On a trip to Dallas, I went with my mom to an antique market. I love this place 
 
 Lo and behold, I found one. The seat was broken, the fabric was dirty, and the paint was chipped, but it was perfect. It was also pretty cheap, which helped.
 
+![](/uploads/vanity_chair_upcycle.jpg)
+
 I had no intentions of doing anything to the vanity itself, but the chair I could do anything to. So I did.
 
 Here we go:
