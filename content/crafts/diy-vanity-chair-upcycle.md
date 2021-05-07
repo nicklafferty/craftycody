@@ -67,3 +67,11 @@ I taped off the sides to make a square and labeled the spots where the new butto
 The picture above has the fabric already on, but you can see the holes that were drilled for the strings and buttons.
 
 Now, onto the actual upholstery part.
+
+The original fabric was fuzzy, maybe a chenille or velvet blend, and I wanted to emulate that look. I found this crushed velvet fabric in bordeux at Hobby Lobby and bought one yard.
+
+![](/uploads/vanity_chair_upcycle_8.jpg)
+
+![](/uploads/vanity_chair_upcycle_9.jpg)
+
+I also had a heck of a time finding enough buttons. I needed 16 for the seat and 9 more for the back of the chair. I was lucky to find 6 packs of the above style in black, which is what I wanted. I also got some larger darner needles to weave the embroidery floss through the wood, stuffing, and fabric.
