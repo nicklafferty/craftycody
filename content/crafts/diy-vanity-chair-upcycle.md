@@ -75,3 +75,35 @@ The original fabric was fuzzy, maybe a chenille or velvet blend, and I wanted to
 ![](/uploads/vanity_chair_upcycle_9.jpg)
 
 I also had a heck of a time finding enough buttons. I needed 16 for the seat and 9 more for the back of the chair. I was lucky to find 6 packs of the above style in black, which is what I wanted. I also got some larger darner needles to weave the embroidery floss through the wood, stuffing, and fabric.
+
+The first task was to stuff the seat. I took my newly sanded wood seat and laid it on my fabric. I cut a wide birth around it then used a stapler to secure the fabric to the wood. Once I was halfway around, I began stuffing as I went. I used quite a bit of stuffing because I knew it would flatten out when I added the buttons.
+
+![](/uploads/vanity_chair_upcycle_10.jpg)
+
+When I was done, I had a big, poofy seat. Now came the tedious process of tufting.
+
+I cut a long length of embroidery floss and threaded it onto one of my needles. Then, starting from the back of the seat, I pushed the needle through one hole and out of the fabric. I took the needle off and threaded the floss through a button, then attached it back to the needle. Next, I stuck the needle back through the fabric and, as best I could, aimed for the second hole. Once I found it, I pulled the needle through and detached from the floss.
+
+This is where I needed a second set of hands. I hand my husband push the buttons firmly down while I pulled the floss slack through and tied it into a knot on the bottom of the seat. This was much easier than doing it myself and made sure the button was as low as it would go.
+
+![](/uploads/vanity_chair_upcycle_13.jpg)
+
+![](/uploads/vanity_chair_upcycle_12.jpg)
+
+Did that 16 times, then it was time to do the (smaller) chair back. I repeated the same process as above: measure the back, drew out a new circle on wood, cut, sanded, made sure it fit, cut the fabric to size, staple, stuff, staple, and then the tufting. It went a lot faster because I knew what I was doing and it was about half as many buttons.
+
+![](/uploads/vanity_chair_upcycle_14.jpg)
+
+The seatback was raw wood and tied strings and that looks ugly. I placed my extra fabric over the back and cut a tight circle all the way around. Then, I used hot glue to attach. This will hide all those dangling strings and give a finished look.
+
+![](/uploads/vanity_chair_upcycle_15.jpg)
+
+Now that the cushions were done and the chair was dry the only thing left to do was put it all back together.
+
+I had my husband sit on the chair to hold the seat down and I screwed the 3 screws into the bottom. Be careful to move excess fabric out of the way as the screws/drill will eat it up and could cause tearing.
+
+The seatback was a little trickier for this reason. I had to cut some small holes into the fabric to expose the wood so I could screw it on without messing up all of my work.
+
+My cushions didn't quite cover the gaps between them and the metal chair, which I figured might happen. I bought some black cord and went around the cushions with it, shoving it into the gaps as necessary. I used hot glue to secure.
+
+![](/uploads/vanity_chair_upcycle_17.jpg)
