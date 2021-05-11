@@ -52,4 +52,4 @@ I started with the tabletop and cut twelve 17in pieces from my 36in long baluste
 
 Next, I quickly cut four 19in legs from two of my 42in balusters.
 
-When the top dried I attached the legs. I wanted hidden screws, so I measured about an inch in from the edge on the second from the top and the second from the bottom balusters. I traced where the leg would go
+When the top dried I attached the legs. I wanted hidden screws, so I measured about an inch in from the edge on the second from the top and the second from the bottom balusters. I traced where the leg would go and, using a 3/8in drill bit, drilled down partway through the wood. Do **not** go all the way through. This is making a screw hold that I will cover up with a dowel.
