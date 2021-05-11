@@ -20,14 +20,15 @@ The wood I used for the nightstands is[ 2x2 pressure-treated balusters](https://
 
 ## Supplies:
 
-1. 2x2x42 (sometimes 36in long) balusters. I used 21 and had a mix of both lengths.
-2. Jigsaw
-3. Wood screws
-4. Drill
-5. Sander
-6. Ruler
-7. Stain
-8. Dowels (3/8in)
-9. Polyurathene
+ 1. 2x2x42 (sometimes 36in long) balusters. I used 21 and had a mix of both lengths.
+ 2. Jigsaw
+ 3. Wood screws
+ 4. Drill
+ 5. Wood glue
+ 6. Sander
+ 7. Ruler
+ 8. Stain
+ 9. Dowels (3/8in)
+10. Polyurathene
 
 ## Process:
