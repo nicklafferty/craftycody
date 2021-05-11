@@ -5,7 +5,7 @@ draft = true
 image = ""
 slug = "diy-bedside-nightstand"
 tags = ["diy"]
-title = "DIY: Bedside tables"
+title = "DIY: Bedside Tables"
 
 +++
 I don't like to buy things and I really don't like buying things that I believe I can make.
