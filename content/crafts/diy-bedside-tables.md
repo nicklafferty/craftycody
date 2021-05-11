@@ -16,4 +16,4 @@ Well, with wood being so expensive right now, building your own furniture can be
 
 So you gotta start small. I have a jigsaw, drill, and sander. That's gotten me through most of these projects.
 
-The wood I used for the nightstands is 2x2 pressure-treated balusters. They're about $2.80 at Lowe's and a little more at places like McCoys. [If you get this kind](https://www.lowes.com/pd/Severe-Weather-Common-2-in-X-2-in-X-48-in-Actual-1-375-in-x-1-375-in-x-48-in-Pressure-Treated-Brown-Hemlock-Fir-Deck-Baluster/50017382), they're cheaper but you have to cut off those angled ends.
+The wood I used for the nightstands is[ 2x2 pressure-treated balusters](https://www.lowes.com/pd/Severe-Weather-Common-2-in-x-2-in-x-42-in-Actual-1-31-in-x-1-31-in-x-41-75-in-Pressure-Treated-Brown-Deck-Baluster/50279745). They're about $1.88 at Lowe's, a little more at places like McCoys.
