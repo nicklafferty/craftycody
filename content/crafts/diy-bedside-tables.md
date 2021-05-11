@@ -57,4 +57,8 @@ When the top dried I attached the legs. I wanted hidden screws, so I measured ab
 
 Whatever size dowel you have is going to be the size drill bit you need to make that first hole. Put some wood glue in there and place the dowel rod in, hammering in place if necessary. Then use a flush-cut saw to remove the excess dowel. Repeat for the remaining three holes.
 
-Now your table will stand up! If you don't want the bottom shelf you can go ahead and stop here. Give it an all-over sand and stain.
+Now your table will stand up! If you don't want the bottom shelf you can go ahead and stop here. Give it an all-over sand, stain, and poly.
+
+However, I like (need) the storage so I added the bottom shelf. I also added some side pieces for a more finished look.
+
+The distance between the legs is about 12.75in, so I cut 10 pieces that length from my 42in long balusters.
