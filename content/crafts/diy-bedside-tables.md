@@ -1,10 +1,10 @@
 +++
 date = ""
-description = "A simple nightstand that won't cost a fortune."
+description = "A modest nightstand that won't cost a fortune."
 draft = true
 image = ""
-slug = ""
-tags = []
+slug = "diy-bedside-nightstand"
+tags = ["diy"]
 title = "DIY: Bedside tables"
 
 +++
