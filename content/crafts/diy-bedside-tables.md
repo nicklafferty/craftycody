@@ -44,3 +44,7 @@ Here's how I divided up my wood pieces:
 \[x6\] 36in long = Tabletop**
 
 The reason I had different lengths is that they sell 36in balusters at McCoys and 42in balusters at Lowe's.
+
+Once you get all your measurements right and buy enough wood the project itself is pretty straightforward.
+
+I started with the tabletop and cut 12 17in pieces from my 36in long balusters. Remember wood has a common size and an actual size. These boards are actually about 1.3inx1.3in square, not 2in square.
