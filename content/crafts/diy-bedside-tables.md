@@ -39,8 +39,8 @@ We're going to be making three sections (a tabletop, lower top, and legs) and at
 
 Here's how I divided up my wood pieces:
 
-\[x2\] 42in long = Legs  
+**\[x2\] 42in long = Legs  
 \[x4\] 42in long = Middle  
-\[x6\] 36in long = Tabletop
+\[x6\] 36in long = Tabletop**
 
 The reason I had different lengths is that they sell 36in balusters at McCoys and 42in balusters at Lowe's.
