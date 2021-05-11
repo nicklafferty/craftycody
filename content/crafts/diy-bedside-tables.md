@@ -20,7 +20,7 @@ The wood I used for the nightstands is[ 2x2 pressure-treated balusters](https://
 
 ## Supplies:
 
- 1. 2x2x42 (sometimes 36in long) balusters. I used 21 and had a mix of both lengths.
+ 1. 2x2x42 (sometimes 36in long) balusters. I used 12 and had a mix of both lengths.
  2. Jigsaw
  3. Wood screws
  4. Drill
@@ -32,3 +32,15 @@ The wood I used for the nightstands is[ 2x2 pressure-treated balusters](https://
 10. Polyurathene
 
 ## Process:
+
+I'll put in all of my measurements of course, but this project is completely customizable to your needs.
+
+We're going to be making three sections (a tabletop, lower top, and legs) and attaching them together.
+
+Here's how I divided up my wood pieces:
+
+\[x2\] 42in long = Legs  
+\[x4\] 42in long = Middle  
+\[x6\] 36in long = Tabletop
+
+The reason I had different lengths is that they sell 36in balusters at McCoys and 42in balusters at Lowe's.
