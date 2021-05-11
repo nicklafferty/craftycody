@@ -25,11 +25,12 @@ The wood I used for the nightstands is[ 2x2 pressure-treated balusters](https://
  3. Wood screws
  4. Drill
  5. Wood glue
- 6. Sander
- 7. Ruler
- 8. Stain
- 9. Dowels (3/8in)
-10. Polyurathene
+ 6. Clamps
+ 7. Sander
+ 8. Ruler
+ 9. Stain
+10. Dowels (3/8in)
+11. Polyurathene
 
 ## Process:
 
@@ -47,4 +48,8 @@ The reason I had different lengths is that they sell 36in balusters at McCoys an
 
 Once you get all your measurements right and buy enough wood the project itself is pretty straightforward.
 
-I started with the tabletop and cut twelve 17in pieces from my 36in long balusters. Remember wood has a common size and an actual size. These boards are actually about 1.3inx1.3in square, not 2in square.
+I started with the tabletop and cut twelve 17in pieces from my 36in long balusters. Remember wood has a common size and an actual size. These boards are actually about 1.3inx1.3in square, not 2in square. I lined the pieces up, glued in between them, made sure they were flush with one another and clamped them in place.
+
+Next, I quickly cut four 19in legs from two of my 42in balusters.
+
+When the top dried I attached the legs. I wanted hidden screws, so I measured about an inch in from the edge on the second from the top and the second from the bottom balusters. I traced where the leg would go
