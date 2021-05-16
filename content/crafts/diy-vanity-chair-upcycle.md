@@ -1,7 +1,6 @@
 +++
-date = ""
+date = 2021-05-13T05:00:00Z
 description = "Refinishing a tired, old vanity chair so you can actually sit in it."
-draft = true
 image = "/uploads/vanitychairupcycle.png"
 slug = "vanity-chair-upcycle"
 tags = ["diy", "furniture", "upcycle"]
