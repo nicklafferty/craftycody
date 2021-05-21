@@ -26,12 +26,13 @@ The wood I used for the nightstands is[ 2x2 pressure-treated balusters](https://
  4. Drill
  5. Wood glue
  6. Flush cut saw
- 7. Clamps
- 8. Sander
- 9. Ruler
-10. Stain
-11. Dowels (3/8in)
-12. Polyurathene
+ 7. L-brackets
+ 8. Clamps
+ 9. Sander
+10. Ruler
+11. Stain
+12. Dowels (3/8in)
+13. Polyurathene
 
 ## Process:
 
@@ -61,4 +62,10 @@ Now your table will stand up! If you don't want the bottom shelf you can go ahea
 
 However, I like (need) the storage so I added the bottom shelf. I also added some side pieces for a more finished look.
 
-The distance between the legs is about 12.75in, so I cut 10 pieces that length from my 42in long balusters.
+The distance between the legs is about 12.75in, so I cut 10 pieces that length from my 42in long balusters. I handled these the same way I did the tabletop- glue and then clamp them together. I also added four L-brackets on the legs so I could set the middle shelf on top of them and screw it down.
+
+For the four side pieces, I measured between the legs and cut as needed. For the top two, I predrilled with my 3/8in bit and screwed it into the tabletop as well as predrilling into the top of the legs and connecting them to the side piece.
+
+The middle two pieces were clamped down then I predrilled the legs and screwed them in.
+
+Voila!
