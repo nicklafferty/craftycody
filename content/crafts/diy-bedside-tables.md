@@ -69,3 +69,5 @@ For the four side pieces, I measured between the legs and cut as needed. For the
 The middle two pieces were clamped down then I predrilled the legs and screwed them in.
 
 Voila!
+
+Next, I sanded all of my predrilled holes to get rid of any splinters and hammered in my dowel rods. Then, I took my flush-cut saw and, well, cut them flush with the wood. Once they were all in, I sanded them flat.
