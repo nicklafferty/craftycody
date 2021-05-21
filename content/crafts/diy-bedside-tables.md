@@ -1,7 +1,6 @@
 +++
-date = ""
+date = 2021-05-20T05:00:00Z
 description = "A modest nightstand that won't cost a fortune."
-draft = true
 image = "/uploads/nightstand-diy.png"
 slug = "diy-bedside-nightstand"
 tags = ["diy"]
