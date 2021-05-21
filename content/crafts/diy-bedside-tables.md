@@ -70,4 +70,6 @@ The middle two pieces were clamped down then I predrilled the legs and screwed t
 
 Voila!
 
-Next, I sanded all of my predrilled holes to get rid of any splinters and hammered in my dowel rods. Then, I took my flush-cut saw and, well, cut them flush with the wood. Once they were all in, I sanded them flat.
+Next, I sanded all of my predrilled holes to get rid of any splinters and hammered in my dowel rods. Then, I took my flush-cut saw and, well, cut them flush with the wood. Once they were all in, I sanded them flat. Be sure to sand or chip off any wood glue that may have squished out from between the boards.
+
+The last step is to stain this bad boy. I flipped it upside-down to get the bottom first, then turned it back upright to get the top. I used a brush and wiped away excess stain as I went.
