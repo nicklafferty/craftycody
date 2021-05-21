@@ -78,6 +78,12 @@ However, I like (need) the storage so I added the bottom shelf. I also added som
 
 The distance between the legs is about 12.75in, so I cut 10 pieces that length from my 42in long balusters. I handled these the same way I did the tabletop- glue and then clamp them together. I also added four L-brackets on the legs so I could set the middle shelf on top of them and screw it down.
 
+![](/uploads/nightstand-diy_5.jpg)
+
+In the above photo you can see I used a paint can to get the middle shelf at the right height. If you put the L-brackets on first then you do not need to do this.
+
+![](/uploads/nightstand-l-brackets.jpg)
+
 For the four side pieces, I measured between the legs and cut as needed. For the top two, I predrilled with my 3/8in bit and screwed it into the tabletop as well as predrilling into the top of the legs and connecting them to the side piece.
 
 The middle two pieces were clamped down then I predrilled the legs and screwed them in.
