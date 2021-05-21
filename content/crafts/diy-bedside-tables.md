@@ -80,9 +80,11 @@ The distance between the legs is about 12.75in, so I cut 10 pieces that length f
 
 ![](/uploads/nightstand-diy_5.jpg)
 
-In the above photo you can see I used a paint can to get the middle shelf at the right height. If you put the L-brackets on first then you do not need to do this.
+In the above photo, you can see I used a paint can to get the middle shelf at the right height. If you put the L-brackets on first then you do not need to do this.
 
 ![](/uploads/nightstand-l-brackets.jpg)
+
+In this photo, the L-brackets are on the tabletop as well- I did **not** do this for my second nightstand and instead, only put the brackets on the middle shelf.
 
 For the four side pieces, I measured between the legs and cut as needed. For the top two, I predrilled with my 3/8in bit and screwed it into the tabletop as well as predrilling into the top of the legs and connecting them to the side piece.
 
