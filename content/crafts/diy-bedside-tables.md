@@ -30,7 +30,7 @@ The wood I used for the nightstands is[ 2x2 pressure-treated balusters](https://
  8. Clamps
  9. Sander
 10. Ruler
-11. Stain
+11. Stain (Miniwax, Dark walnut)
 12. Dowels (3/8in)
 13. Polyurathene
 
@@ -90,6 +90,8 @@ For the four side pieces, I measured between the legs and cut as needed. For the
 
 The middle two pieces were clamped down then I predrilled the legs and screwed them in.
 
+![](/uploads/nightstand-diy_6.jpg)
+
 Voila!
 
 Next, I sanded all of my predrilled holes to get rid of any splinters and hammered in my dowel rods. Then, I took my flush-cut saw and, well, cut them flush with the wood. Once they were all in, I sanded them flat. Be sure to sand or chip off any wood glue that may have squished out from between the boards.
@@ -99,3 +101,7 @@ The last step is to stain this bad boy. I flipped it upside-down to get the bott
 The longest part is letting this thing dry. I left mine outside for a couple of days to air out as well.
 
 I'm finally posting this because I also finished my second one and now have a complete set of bedroom nightstands! Next will be a headboard.
+
+![](/uploads/nightstand-diy_7.jpg)
+
+![](/uploads/nightstand-finished-closeup.jpg)
