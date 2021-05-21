@@ -2,7 +2,7 @@
 date = ""
 description = "A modest nightstand that won't cost a fortune."
 draft = true
-image = ""
+image = "/uploads/nightstand-diy.png"
 slug = "diy-bedside-nightstand"
 tags = ["diy"]
 title = "DIY: Bedside Tables"
