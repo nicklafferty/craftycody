@@ -54,13 +54,25 @@ Once you get all your measurements right and buy enough wood the project itself 
 
 I started with the tabletop and cut twelve 17in pieces from my 36in long balusters. Remember wood has a common size and an actual size. These boards are actually about 1.3inx1.3in square, not 2in square. I lined the pieces up, glued in between them, made sure they were flush with one another and clamped them in place.
 
+![](/uploads/nightstand-diy_1.jpg)
+
+![](/uploads/nightstand-tabletop.jpg)
+
 Next, I quickly cut four 19in legs from two of my 42in balusters.
+
+![](/uploads/nightstand-diy_2.jpg)
 
 When the top dried I attached the legs. I wanted hidden screws, so I measured about an inch in from the edge on the second from the top and the second from the bottom balusters. I traced where the leg would go and, using a 3/8in drill bit, drilled down partway through the wood. Do **not** go all the way through. This is making a screw hole that I will cover up with a dowel. I held a leg on the bottom of the table and screwed through the hold I just made, attaching the leg to the tabletop then did this three more times with the remaining legs.
 
+![](/uploads/nightstand-predrill-screws.jpg)
+
 Whatever size dowel you have is going to be the size drill bit you need to make that first hole. Put some wood glue in there and place the dowel rod in, hammering in place if necessary. Then use a flush-cut saw to remove the excess dowel. Repeat for the remaining three holes.
 
+![](/uploads/nightstand-diy_3.jpg)
+
 Now your table will stand up! If you don't want the bottom shelf you can go ahead and stop here. Give it an all-over sand, stain, and poly.
+
+![](/uploads/nightstand-diy_4.jpg)
 
 However, I like (need) the storage so I added the bottom shelf. I also added some side pieces for a more finished look.
 
