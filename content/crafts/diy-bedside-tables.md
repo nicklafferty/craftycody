@@ -50,6 +50,8 @@ The reason I had different lengths is that they sell 36in balusters at McCoys an
 
 Once you get all your measurements right and buy enough wood the project itself is pretty straightforward.
 
+![](/uploads/nightstand-diy.jpg)
+
 I started with the tabletop and cut twelve 17in pieces from my 36in long balusters. Remember wood has a common size and an actual size. These boards are actually about 1.3inx1.3in square, not 2in square. I lined the pieces up, glued in between them, made sure they were flush with one another and clamped them in place.
 
 Next, I quickly cut four 19in legs from two of my 42in balusters.
