@@ -17,3 +17,5 @@ I had a great recipe for red velvet cupcakes and homemade icing. They were alway
 So, this time, I decided to get some box mix and a tub of frosting. When I went to the store, the only brand that had red velvet mix was Duncan Hines. I've tried their box mix in the past and wasn't impressed, but it's been years and it's only a couple of bucks so I thought why not.
 
 I made them yesterday and was once again underwhelmed.
+
+I follow instructions to a T.
