@@ -29,3 +29,5 @@ I _love_ blanket yarn. It's one of my favorites to work with. There are no stran
 I wish I could do more projects using it, but it gets expensive so quickly.
 
 ## Mods
+
+I didn't make any mods to this pattern.
