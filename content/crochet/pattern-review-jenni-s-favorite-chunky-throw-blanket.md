@@ -16,6 +16,16 @@ I picked this totally cute, soft pink color and they, thankfully, had enough for
 
 ## Review
 
+I'll be honest, there really isn't a lot to review. That's a good thing though! The whole blanket is made of one repeating row over and over again. What I like most about these kinds of patterns is that I can watch TV or hold a conversation while doing them. The simple repetition also ensures it works up quickly.
+
+She gives three options for a border at the end and they all look very nice. A border really completes the blanket.
+
 ## Yarn
+
+As I said above, Michaels was having a sale on [Bernat Baby Blanket](https://www.michaels.com/bernat-baby-blanket-yarn/M20003611.html?dwvar_M20003611_size=10.5%20oz&dwvar_M20003611_color=Light%20Sky) yarn and I bought four skeins for $24.
+
+I _love_ blanket yarn. It's one of my favorites to work with. There are no strands for the hook to go through and it's satisfying how quickly projects work up. Plus it's incredibly soft and cozy.
+
+I wish I could do more projects using it, but it gets expensive so quickly.
 
 ## Mods
