@@ -22,7 +22,7 @@ She gives three options for a border at the end and they all look very nice. A b
 
 ## Yarn
 
-As I said above, Michaels was having a sale on [Bernat Baby Blanket](https://www.michaels.com/bernat-baby-blanket-yarn/M20003611.html?dwvar_M20003611_size=10.5%20oz&dwvar_M20003611_color=Light%20Sky) yarn and I bought four skeins for $24.
+As I said above, Michaels was having a sale on [Bernat Baby Blanket](https://www.michaels.com/bernat-baby-blanket-yarn/M20003611.html?dwvar_M20003611_size=10.5%20oz&dwvar_M20003611_color=Light%20Sky) yarn and I bought four skeins in tan pink for $24.
 
 I _love_ blanket yarn. It's one of my favorites to work with. There are no strands for the hook to go through and it's satisfying how quickly projects work up. Plus it's incredibly soft and cozy.
 
