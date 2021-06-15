@@ -8,3 +8,8 @@ tags = []
 title = "Our Front Yard Overhaul"
 
 +++
+The previous owners of our house took meticulous care of the lawn.
+
+We did not.
+
+After we closed, we immediately started renovating the interior.
