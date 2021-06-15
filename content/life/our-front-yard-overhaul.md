@@ -16,4 +16,4 @@ After we closed, we immediately started renovating the interior and therefore st
 
 However, we just learned that we have some of the most expensive water rates in the state of Texas, so we were pretty happy we stopped watering during that time. A couple of our neighbors have told us their first water bill was over $1000 because they didn't know. It was ridiculous.
 
-But, because of all that, our front yard looked like hell. Just a bunch of brown, dead grass and two rather sad trees.
+But, because of all that, our front yard looked like hell. Just a bunch of brown, dead grass and two rather sad trees. One looks like it was hit by lightning at some point and the other is a sapling- so not really sad, just small.
