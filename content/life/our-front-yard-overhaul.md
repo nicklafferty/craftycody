@@ -21,3 +21,7 @@ But, because of all that, our front yard looked like hell. Just a bunch of brown
 We tried for a moment to bring the grass back and it worked well in the backyard, but the front yard would not get going no matter what we tried. Some patches returned, but it wasn't spreading as we had hoped. This was a blessing really.
 
 So, we decided to slowly start covering it up.
+
+## Walkway
+
+## Yard
