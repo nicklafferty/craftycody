@@ -32,7 +32,13 @@ The process is simple but laborious. We took a [normal, metal rake](lowes.com/pd
 
 There are also dethatching tools that can make this job easier. Our front yard isn't that large so we used the rake we already had.
 
+## Landscape Fabric
+
+Wherever you plan on putting rocks or beds, absolutely
+
 ## Garden Beds
+
+This is where a lot of the "winging it" took place.
 
 ## Walkway
 
