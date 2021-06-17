@@ -18,9 +18,15 @@ However, we just learned that we have some of the most expensive water rates in 
 
 But, because of all that, our front yard looked like hell. Just a bunch of brown, dead grass and two rather sad trees. One looks like it was hit by lightning at some point and the other is a sapling- so not really sad, just small.
 
-We tried for a moment to bring the grass back and it worked well in the backyard, but the front yard would not get going no matter what we tried. Some patches returned, but it wasn't spreading as we had hoped. This was a blessing really.
+We tried for a moment to bring the grass back and it worked well in the backyard, but the front yard would not get going no matter what we tried. Some patches returned, but it wasn't spreading as we had hoped. So, we decided to slowly start covering it up.
 
-So, we decided to slowly start covering it up.
+## Ideas
+
+The first step was to draw out some ideas in my notebook. We mocked up several iterations, but there was honestly a lot of winging it as well.
+
+## Dethatching
+
+## Garden Beds
 
 ## Walkway
 
