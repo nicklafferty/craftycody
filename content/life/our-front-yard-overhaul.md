@@ -52,11 +52,15 @@ There are also dethatching tools that can make this job easier. Our front yard i
 
 Wherever you plan on putting rocks or beds, absolutely put down landscape fabric. You don't want to get stuck unsteadily walking over rocks while pulling out tiny weeds. We rolled it out over our entire yard. Be sure to get landscape pins to secure it into the ground.
 
+![](/uploads/5-laying-out-sand.jpg)
+
 ## Garden Beds
 
 This is where a lot of the "winging it" took place. We made two large garden beds out of mulch on either side of our sidewalk and planted several drought-tolerant plants in them.
 
 Most plants were from Lowe's, but several we got from our local discovery center's semi-annual plant sale. Nurseries around the metroplex donate to them and they sell them at ridiculously low prices to help fund the center. I'm talking $2.50 low. It's worth checking out if your city has something like this too.
+
+![](/uploads/2-both-beds.jpg)
 
 ## Walkway + black rocks
 
