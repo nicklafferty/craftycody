@@ -84,6 +84,8 @@ A few days of that and then we were done.
 
 ![](/uploads/7-pavers-filled.jpg)
 
+![](/uploads/7-pavers-still-filled.jpg)
+
 ## Yard
 
 Done, except for the entire rest of the yard. We knew this would be the actual hard part.
@@ -113,3 +115,5 @@ So.
 That idea was tossed out real quick and I decided we could use them as accent rocks. We bought two, 50lbs bags for a much more modest price of $40 and I set to work on a design.
 
 I actually had several more than I thought I would get, so my design ended up being fairly detailed. I think I might change it into a sun later, but for now, this is pretty cute.
+
+![](/uploads/z-love-rainbow-rocks.jpg)
