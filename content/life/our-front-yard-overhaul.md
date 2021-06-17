@@ -26,6 +26,12 @@ The first step was to draw out some ideas in my notebook. We mocked up several i
 
 ## Dethatching
 
+Dethatching is an important step when you have a ton of dead grass as we did. It was super, super thick and would have made anything on top of it lay crooked.
+
+The process is simple but laborious. We took a [normal, metal rake](lowes.com/pd/CRAFTSMAN-58-in-L-Wood-Handle-Welded-steel-Garden-Rake/1000604757) and ripped up as much of the dead grass as we could throughout the yard. You're just looking to get it a little flatter and maybe expose dirt underneath.
+
+There are also dethatching tools that can make this job easier. Our front yard isn't that large so we used the rake we already had.
+
 ## Garden Beds
 
 ## Walkway
