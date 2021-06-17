@@ -20,6 +20,12 @@ But, because of all that, our front yard looked like hell. Just a bunch of brown
 
 We tried for a moment to bring the grass back and it worked well in the backyard, but the front yard would not get going no matter what we tried. Some patches returned, but it wasn't spreading as we had hoped. So, we decided to look into xeriscaping and cover it all up.
 
+## What is xeriscape?
+
+Xeriscaping is "a style of landscape design requiring little or no irrigation or other maintenance." I love it. I love that it's better for the environment and I love that it saves me a small fortune on my water bill.
+
+I've always enjoyed interesting landscaping, but never really got to try it out as we'd been renters for so long.
+
 ## Ideas
 
 The first step was to draw out some ideas in my notebook. We mocked up several iterations, but there was honestly a lot of winging it as well.
