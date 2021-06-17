@@ -5,7 +5,7 @@ draft = true
 image = ""
 slug = "front-yard-xeriscape"
 tags = []
-title = "Our Front Yard Overhaul"
+title = "Our Front Yard Xeriscape Overhaul"
 
 +++
 The previous owners of our house took meticulous care of the lawn.
@@ -54,4 +54,14 @@ When it came to deciding what rocks we wanted to get, I knew I definitely wanted
 
 To figure out how much we needed, I measured the yard out in small square/rectangular sections and added up the combined areas. The place where we bought the rock has equations you can use to figure out how much to order. I suspect most landscape supply places will do this. Thankfully, that makes it easy to order because I am no math wizard. I did not equate for the pavers because I didn't want to get too "exact" and then end up not having enough. I figured a little extra is much better than being a little short.
 
+After they arrived, the only left to do was move and place them. Make sure you get a wheelbarrow and transfer shovel to load said wheelbarrow. We pour piles wherever we needed the rocks and spread them around with a metal rake or our hands.
+
+A few days of that and then we were done.
+
 ## Yard
+
+Done, except for the entire rest of the yard. We knew this would be the actual hard part.
+
+We wanted to use a different colored and larger rock for the remaining yard. We settled on Guadalupe river rock which is mainly off-white and tans.
+
+I did the same thing as before- measuring our squared-off sections of the yard and adding it up to find the area. This time, I had to measure our awkwardly shaped garden beds and subtract them from the total. 
