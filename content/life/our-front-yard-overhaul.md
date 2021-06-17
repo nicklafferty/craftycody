@@ -117,3 +117,11 @@ That idea was tossed out real quick and I decided we could use them as accent ro
 I actually had several more than I thought I would get, so my design ended up being fairly detailed. I think I might change it into a sun later, but for now, this is pretty cute.
 
 ![](/uploads/z-love-rainbow-rocks.jpg)
+
+## Project finished!
+
+And then, for real, that's it! The front yard is all done. Thank God.
+
+![](/uploads/z-done-1.jpg)
+
+![](/uploads/z-done-2.jpg)
