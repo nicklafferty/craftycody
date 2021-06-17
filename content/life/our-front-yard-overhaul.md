@@ -46,4 +46,10 @@ Most plants were from Lowe's, but several we got from our local discovery center
 
 I've always loved how large pavers look when set in black rock. It's so modern and is pretty popular right now. Hopefully, it still will be whenever we decide to sell!
 
+Setting pavers is straightforward, there are lots of tutorials online and even Lowe's has a how-to in store. I was going to go with those standard grey concrete ones, but I [found these porcelain pavers](https://www.lowes.com/pd/Satori-24-x-24-in-Sendero-Mica-Porcelain-Paver/5001372691?cm_mmc=shp-_-c-_-prd-_-lwn-_-google-_-lia-_-236-_-patiohardscape-_-5001372691-_-0&placeholder=null&ds_rl=1286981&gclid=Cj0KCQjw5auGBhDEARIsAFyNm9GHdfQXDhL8EeLfdHbb4-KXAkQ-EpfKozDOVx5IzuOPneGjyf56j_4aAigUEALw_wcB&gclsrc=aw.ds) and loved how they had a little bit more visual interest.
+
+When it came to deciding what rocks we wanted to get, I knew I definitely wanted to use small, black rocks for some of the yard. We limewashed our house an off-white and the contrast would look good.
+
+To figure out how much we needed, I measure the yard out in small square/rectangular sections and added up the combined areas. The place where we bought the rock has equations you can use to figure out how much to order. I suspect most landscape supply places will do this. Thankfully, that makes it easy to order because I am no math wizard. I did not equate for the pavers because I didn't want to get too "exact" and then end up not having enough. I figured a little extra is much better than being a little short.
+
 ## Yard
