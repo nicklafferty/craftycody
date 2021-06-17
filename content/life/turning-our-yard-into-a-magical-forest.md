@@ -34,6 +34,8 @@ You can find lots of ideas and tips on [Pinterest](https://www.pinterest.com/). 
 
 Our front yard was in the roughest shape. The trees aren't big enough to provide much shade and the sun just beats down all day, every day. The grass was fried. There were two garden beds under the windows that had less than ideal plants- particularly the bed under our large, picture window. These beds were the first things we changed.
 
+We just finished xeriscaping the entire yard. Check out everything we did here.
+
 ### Window beds
 
 They were lined with old landscape fabric and the beds themselves were bordered with wood beams that were absolutely filled with termites. I love wood as much as the next person, but you really have to be careful when putting it out in your yard because you can invite pests and rot if not done properly. We tossed the wood and my FIL brought some beautiful stone bricks to re-line the beds with and I love them. They look cleaner and more professional in my opinion. Also, termites don't eat stone!
@@ -54,7 +56,7 @@ The grass was toast when we finally moved in. We treated it with some lawn ferti
 
 ### Plant beds
 
-We've added two, large plant beds to the front of the yard. Both are filled with drought and deer-resistant plants, most kinds you would find in the desert. We just finished xeriscaping the entire yard. Here's the post to check out the full process.
+We've added two, large plant beds to the front of the yard. Both are filled with drought and deer-resistant plants, most kinds you would find in the desert. 
 
 ## Backyard
 
