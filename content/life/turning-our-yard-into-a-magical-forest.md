@@ -44,7 +44,7 @@ I took some clippings of English Ivy we have growing on the fence in our backyar
 
 ### Pathway
 
-There were stepping stones leading from the sidewalk to the driveway. I thought this was a nice idea since you'd be walking through the grass otherwise. The stones that were there were sunken into the ground and I thought they needed an update. I pulled them all up just by sticking a garden spade into the dirt and using the leverage to pop them out. Then, I connected the holes they left by digging a trench between them. I tried to keep the width as even I could, but it was fairly laborious work, haha. I love square stepping stone so I got seven 12" ones from Lowe's, some black gravel, landscape fabric, and black mulch. I put the fabric down in my new trench and secured it with landscape pins. I put the mulch on top, then the stones, and then filled in around everything with the gravel. It didn't come out perfect, but I really like the look and as I first try I don't think it's too bad.
+There were stepping stones leading from the sidewalk to the driveway. I thought this was a nice idea since you'd be walking through the grass otherwise. The stones that were there were sunken into the ground and I thought they needed an update. I pulled them all up just by sticking a garden spade into the dirt and using the leverage to pop them out. Then, I connected the holes they left by digging a trench between them. I tried to keep the width as even I could, but it was fairly laborious work, haha. I love square stepping stones so I got seven 12" ones from Lowe's, some black gravel, landscape fabric, and black mulch. I put the fabric down in my new trench and secured it with landscape pins. I put the mulch on top, then the stones, and then filled in around everything with the gravel. It didn't come out perfect, but I really like the look and as I first try I don't think it's too bad.
 
 Around the stepping stones, I planted some perennial seeds and mulched around the new beds. Hopefully, these grow like crazy and add some new color to the yard.
 
@@ -54,7 +54,7 @@ The grass was toast when we finally moved in. We treated it with some lawn ferti
 
 ### Plant beds
 
-We've added two, large plant beds to the front of the yard. Both are filled with drought and deer-resistant plants, most kinds you would find in the desert. Eventually, I would love to xeriscape the whole thing.
+We've added two, large plant beds to the front of the yard. Both are filled with drought and deer-resistant plants, most kinds you would find in the desert. We just finished xeriscaping the entire yard. Here's the post to check out the full process.
 
 ## Backyard
 
