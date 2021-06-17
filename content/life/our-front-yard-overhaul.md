@@ -36,7 +36,7 @@ I wanted a lot of drought-tolerant plants because I didn't want to baby anything
 
 Another problem we have is deer. They are magical creatures until you live with them. Then the truth comes out: they are giant rodents who will devour and poop over all of your hard work. Finding deer-resistant plants is imperative and let me tell you, a lot of plants that tell you they are deer resistant are not.
 
-Plants I've found that deer actually won't eat: lavender, cacti, century plants, lantanas (they still might get the flower buds though), mealy blue sage, and more cacti. 
+Plants I've found that deer actually won't eat: lavender, cacti, century plants, lantanas (they still might get the flower buds though), mealy blue sage, and more cacti.
 
 ## Dethatching
 
@@ -48,7 +48,7 @@ There are also dethatching tools that can make this job easier. Our front yard i
 
 ## Landscape Fabric
 
-Wherever you plan on putting rocks or beds, absolutely put down landscape fabric. You don't want to get stuck unsteadily walking over rocks while pulling out tiny weeds. We rolled it out over our entire yard. Be sure to get landscape pins to secure it into the ground. 
+Wherever you plan on putting rocks or beds, absolutely put down landscape fabric. You don't want to get stuck unsteadily walking over rocks while pulling out tiny weeds. We rolled it out over our entire yard. Be sure to get landscape pins to secure it into the ground.
 
 ## Garden Beds
 
@@ -85,3 +85,15 @@ It was also more difficult to shovel into the wheelbarrow than the gravel. I end
 We also used [landscape edging](https://www.lowes.com/pd/Suncast-Dig-In-20-ft-Flexscape-Green-Edging-Green-Plastic-Landscape-Edging-Roll/1000573733) where the yard met the curb so that there would be a barrier for the rocks to lay against versus rolling into the street. I used a pair of hand pruners to cut it and that worked perfectly.
 
 It took about 4 days of working in the mornings and evenings to get it done, but we did it.
+
+## Rainbow Rocks
+
+My favorite part is these rainbow river rocks our landscape supply company just got in. I instantly fell in love when I saw them on the website. I wanted to do the whole yard with them.
+
+However, it would have literally cost $10,000.
+
+They're expensive, to say the least.
+
+So.
+
+That idea was tossed out real quick and I decided we could use them as accent rocks. We bought two, 50lbs bags for a much more modest price of $40 and I set to work on a design.
