@@ -2,7 +2,7 @@
 date = ""
 description = "So, so many rocks. Just way too many."
 draft = true
-image = ""
+image = "/uploads/front-yard-xeriscape-header.png"
 slug = "front-yard-xeriscape"
 tags = ["diy", "video"]
 title = "Our Front Yard Xeriscape Overhaul"
