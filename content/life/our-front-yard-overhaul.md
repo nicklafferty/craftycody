@@ -70,6 +70,8 @@ I was going to go with those standard grey concrete ones, but I [found these por
 
 Setting pavers is straightforward, there are lots of tutorials online and even Lowe's has a how-to in store. Since the landscape fabric was already down, we bought [bags of sand](https://www.lowes.com/pd/QUIKRETE-50-lb-All-Purpose-Sand/3048145) so the pavers would have something to settle in. We also needed to get a [tamper]() to make the sand level. I would pour out a bag, make a square slightly bigger than the paver, then tamp it flat and set the paver on top. I did this for each paver.
 
+![](/uploads/6-pavers-on-tamped-sand.jpg)
+
 When it came to deciding what rocks we wanted to get, I knew I definitely wanted to use small, black rocks for some of the yard. We limewashed our house an off-white and the contrast would look good.
 
 To figure out how much we needed, I measured the yard out in small square/rectangular sections and added up the combined areas. The place where we bought the rock has equations you can use to figure out how much to order. I suspect most landscape supply places will do this. Thankfully, that makes it easy to order because I am no math wizard. I did not equate for the pavers because I didn't want to get too "exact" and then end up not having enough. I figured a little extra is much better than being a little short.
