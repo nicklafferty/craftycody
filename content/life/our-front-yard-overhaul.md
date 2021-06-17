@@ -124,6 +124,8 @@ I actually had several more than I thought I would, so my design ended up being 
 
 ![](/uploads/z-love-rainbow-rocks.jpg)
 
+I'm also planning on sealing them later so their color looks permanently saturated.
+
 ## Project finished!
 
 And then, for real, that's it! The front yard is all done. Thank God.
