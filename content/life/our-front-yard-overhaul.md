@@ -54,6 +54,8 @@ Wherever you plan on putting rocks or beds, absolutely put down landscape fabric
 
 ![](/uploads/5-laying-out-sand.jpg)
 
+We did it in sections as we worked, but the whole yard was inevitably covered.
+
 ## Garden Beds
 
 This is where a lot of the "winging it" took place. We made two large garden beds out of mulch on either side of our sidewalk and planted several drought-tolerant plants in them.
@@ -80,11 +82,15 @@ To figure out how much we needed, I measured the yard out in small square/rectan
 
 After they arrived, the only left to do was move and place them. Make sure you get a wheelbarrow and transfer shovel to load said wheelbarrow. We pour piles wherever we needed the rocks and spread them around with a metal rake or our hands.
 
-A few days of that and then we were done.
-
 ![](/uploads/7-pavers-filled.jpg)
 
 ![](/uploads/7-pavers-still-filled.jpg)
+
+There was quite a bit of extra rock, so we went around and added extra design elements to fill in.
+
+![](/uploads/8-using-excess-black-rocks.jpg)
+
+A few days of that and then we were done.
 
 ## Yard
 
@@ -112,7 +118,7 @@ They're expensive, to say the least.
 
 So.
 
-That idea was tossed out real quick and I decided we could use them as accent rocks. We bought two, 50lbs bags for a much more modest price of $40 and I set to work on a design.
+That idea was tossed out real quick and I decided we could use them as accent rocks. We bought two 50lbs bags for a much more modest price of $40 and I set to work on a design.
 
 I actually had several more than I thought I would get, so my design ended up being fairly detailed. I think I might change it into a sun later, but for now, this is pretty cute.
 
