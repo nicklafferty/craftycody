@@ -94,6 +94,8 @@ I did the same thing as before- measuring out squared-off sections of the yard a
 
 It was also more difficult to shovel into the wheelbarrow than the gravel. I ended up using a garden spade and shoveling it into a smaller bucket and pouring it where I needed extra. My husband was much more adept in using the transfer shovel and wheelbarrow, so we tag-teamed the yard that way. Then the same rules applied- shovel, pour, and spread.
 
+![](/uploads/9-nick-shoveling-guadalupe-rock.jpg)
+
 We also used [landscape edging](https://www.lowes.com/pd/Suncast-Dig-In-20-ft-Flexscape-Green-Edging-Green-Plastic-Landscape-Edging-Roll/1000573733) where the yard met the curb so that there would be a barrier for the rocks to lay against versus rolling into the street. I used a pair of hand pruners to cut it and that worked perfectly.
 
 It took about 4 days of working in the mornings and evenings to get it done, but we did it.
