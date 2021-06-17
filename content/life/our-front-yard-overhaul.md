@@ -24,7 +24,9 @@ We tried for a moment to bring the grass back and it worked well in the backyard
 
 Xeriscaping is "a style of landscape design requiring little or no irrigation or other maintenance." I love it. I love that it's better for the environment and I love that it saves me a small fortune on my water bill.
 
-I've always enjoyed interesting landscaping, but never really got to try it out as we'd been renters for so long.
+I've always enjoyed interesting landscaping, but never really got to try it out as we'd been renters for so long. Now that we own a home, we've both been eager to try lots of DIYs, including the yard which would be our biggest one yet.
+
+I suggest perusing Pinterest for ideas for landscaping and figuring out what you like. We decided to get rid of _all_ of our grass, but you may want some as accents. I wouldn't have minded some grass, but you still have to take care of it and it might be a hassle to mow around rocks. Pick what works for you.
 
 ## Ideas
 
