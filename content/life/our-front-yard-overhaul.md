@@ -42,6 +42,8 @@ This is where a lot of the "winging it" took place. We made two large garden bed
 
 Most plants were from Lowe's, but several we got from our local discovery center's semi-annual plant sale. Nurseries around the metroplex donate to them and they sell them at ridiculously low prices to help fund the center. I'm talking $2.50 low. It's worth checking out if your city has something like this too.
 
-## Walkway
+## Walkway + black rocks
+
+I've always loved how large pavers look when set in black rock. It's so modern and is pretty popular right now. Hopefully, it still will be whenever we decide to sell!
 
 ## Yard
