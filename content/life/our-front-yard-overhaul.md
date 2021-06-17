@@ -32,9 +32,15 @@ I suggest perusing Pinterest for ideas for landscaping and figuring out what you
 
 The first step was to draw out some ideas in my notebook. We mocked up several iterations, but there was honestly a lot of winging it as well.
 
+I wanted a lot of drought-tolerant plants because I didn't want to baby anything. We also like going on vacations so I didn't want to come back to a dead yard either.
+
+Another problem we have is deer. They are magical creatures until you live with them. Then the truth comes out: they are giant rodents who will devour and poop over all of your hard work. Finding deer-resistant plants is imperative and let me tell you, a lot of plants that tell you they are deer resistant are not.
+
+Plants I've found that deer actually won't eat: lavender, cacti, century plants, lantanas (they still might get the flower buds though), mealy blue sage, and more cacti. 
+
 ## Dethatching
 
-Dethatching is an important step when you have a ton of dead grass as we did. It was super, super thick and would have made anything on top of it lay crooked.
+Dethatching is an important first step when you have a ton of dead grass as we did. It was super, super thick and would have made anything on top of it lay crooked.
 
 The process is simple but laborious. We took a [normal, metal rake](lowes.com/pd/CRAFTSMAN-58-in-L-Wood-Handle-Welded-steel-Garden-Rake/1000604757) and ripped up as much of the dead grass as we could throughout the yard. You're just looking to get it a little flatter and maybe expose dirt underneath.
 
