@@ -120,7 +120,7 @@ So.
 
 That idea was tossed out real quick and I decided we could use them as accent rocks. We bought two 50lbs bags for a much more modest price of $40 and I set to work on a design.
 
-I actually had several more than I thought I would get, so my design ended up being fairly detailed. I think I might change it into a sun later, but for now, this is pretty cute.
+I actually had several more than I thought I would, so my design ended up being fairly detailed. I think I might change it into a sun later, but for now, this is pretty cute.
 
 ![](/uploads/z-love-rainbow-rocks.jpg)
 
