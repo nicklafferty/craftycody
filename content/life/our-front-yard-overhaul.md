@@ -34,7 +34,7 @@ There are also dethatching tools that can make this job easier. Our front yard i
 
 ## Landscape Fabric
 
-Wherever you plan on putting rocks or beds, absolutely
+Wherever you plan on putting rocks or beds, absolutely put down landscape fabric. You don't want to get stuck unsteadily walking over rocks while pulling out tiny weeds. We rolled it out over our entire yard. Be sure to get landscape pins to secure it into the ground. 
 
 ## Garden Beds
 
