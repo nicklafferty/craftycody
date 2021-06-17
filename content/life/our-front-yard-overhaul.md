@@ -4,7 +4,7 @@ description = "So, so many rocks. Just way too many."
 draft = true
 image = ""
 slug = "front-yard-xeriscape"
-tags = ["diy", "yard"]
+tags = ["diy", "video"]
 title = "Our Front Yard Xeriscape Overhaul"
 
 +++
