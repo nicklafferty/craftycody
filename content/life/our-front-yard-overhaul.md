@@ -64,7 +64,7 @@ Done, except for the entire rest of the yard. We knew this would be the actual h
 
 We wanted to use a different colored and larger rock for the remaining yard. We settled on Guadalupe river rock which is mainly off-white and tans.
 
-I did the same thing as before- measuring our squared-off sections of the yard and adding it up to find the area. This time, I had to measure our awkwardly shaped garden beds and subtract them from the total. That was kind of a pain, I will admit. Geometry was never my favorite subject in school.
+I did the same thing as before- measuring out squared-off sections of the yard and adding it up to find the area. This time, I had to measure our awkwardly shaped garden beds and subtract them from the total. That was kind of a pain, I will admit. Geometry was never my favorite subject in school.
 
 It was also more difficult to shovel into the wheelbarrow than the gravel. I ended up using a garden spade and shoveling it into a smaller bucket and pouring it where I needed extra. My husband was much more adept in using the transfer shovel and wheelbarrow, so we tag-teamed the yard that way. Then the same rules applied- shovel, pour, and spread.
 
