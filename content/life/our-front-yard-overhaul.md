@@ -1,7 +1,6 @@
 +++
-date = ""
+date = 2021-06-17T05:00:00Z
 description = "So, so many rocks. Just way too many."
-draft = true
 image = "/uploads/front-yard-xeriscape-header.png"
 slug = "front-yard-xeriscape"
 tags = ["diy", "video"]
