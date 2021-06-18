@@ -7,6 +7,9 @@ tags = ["diy", "video"]
 title = "Our Front Yard Xeriscape Overhaul"
 
 +++
+
+{{< youtube RRCYThPchi8 >}}
+
 The previous owners of our house took meticulous care of the lawn.
 
 We did not.
