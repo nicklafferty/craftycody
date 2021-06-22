@@ -52,7 +52,9 @@ Around the stepping stones, I planted some perennial seeds and mulched around th
 
 ### Yard aka Xeriscaping
 
-The grass was toast when we finally moved in. We treated it with some lawn fertilizer and it's slowly coming back, but it was a good time to start dethatching and putting in garden beds since it was dead anyway. You don't have to feel guilty about pulling up lush grass. The layer of dead grass was incredibly thick so this took some heavy elbow grease. We only used a [steel rake](https://www.lowes.com/pd/Blue-Hawk-54-5-in-L-Fiberglass-Handle-Welded-Steel-Garden-Rake/3605434?cm_mmc=shp-_-c-_-prd-_-sol-_-google-_-lia-_-106-_-lawnandgardentools-_-3605434-_-0&placeholder=null&ds_rl=1286981&gclid=Cj0KCQjw6-SDBhCMARIsAGbI7UiV8kJcsmNlReYUMhWu-QNTX5nyYwR75h6GrZKxTj46_U_QMte9tkEaAl1oEALw_wcB&gclsrc=aw.ds), no fancy equipment.
+The grass was toast when we finally moved in. It was a good time to start dethatching and putting in garden beds since it was dead anyway. You don't have to feel guilty about pulling up lush grass. The layer of dead grass was incredibly thick so this took some heavy elbow grease. We only used a [steel rake](https://www.lowes.com/pd/Blue-Hawk-54-5-in-L-Fiberglass-Handle-Welded-Steel-Garden-Rake/3605434?cm_mmc=shp-_-c-_-prd-_-sol-_-google-_-lia-_-106-_-lawnandgardentools-_-3605434-_-0&placeholder=null&ds_rl=1286981&gclid=Cj0KCQjw6-SDBhCMARIsAGbI7UiV8kJcsmNlReYUMhWu-QNTX5nyYwR75h6GrZKxTj46_U_QMte9tkEaAl1oEALw_wcB&gclsrc=aw.ds), no fancy equipment.
+
+Then the rocks came. I linked to it above, but check out the [entire process here](https://craftycody.com/life/front-yard-xeriscape/).
 
 ### Plant beds
 
