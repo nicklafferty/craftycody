@@ -58,7 +58,7 @@ Then the rocks came. I linked to it above, but check out the [entire process her
 
 ### Plant beds
 
-We've added two, large plant beds to the front of the yard. Both are filled with drought and deer-resistant plants, most kinds you would find in the desert.
+We've added two, large plant beds to the front of the yard. Both are filled with drought and deer-resistant plants, most kinds you would find in the desert. Landscape fabric goes down first, then mulch, then plants.
 
 ## Backyard
 
