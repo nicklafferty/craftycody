@@ -34,7 +34,7 @@ You can find lots of ideas and tips on [Pinterest](https://www.pinterest.com/). 
 
 Our front yard was in the roughest shape. The trees aren't big enough to provide much shade and the sun just beats down all day, every day. The grass was fried. There were two garden beds under the windows that had less than ideal plants- particularly the bed under our large, picture window. These beds were the first things we changed.
 
-We just finished xeriscaping the entire yard. Check out everything we did here.
+We just finished xeriscaping the entire yard. [Check out everything we did here.](https://craftycody.com/life/front-yard-xeriscape/)
 
 ### Window beds
 
@@ -50,13 +50,13 @@ There were stepping stones leading from the sidewalk to the driveway. I thought 
 
 Around the stepping stones, I planted some perennial seeds and mulched around the new beds. Hopefully, these grow like crazy and add some new color to the yard.
 
-### Yard
+### Yard aka Xeriscaping
 
 The grass was toast when we finally moved in. We treated it with some lawn fertilizer and it's slowly coming back, but it was a good time to start dethatching and putting in garden beds since it was dead anyway. You don't have to feel guilty about pulling up lush grass. The layer of dead grass was incredibly thick so this took some heavy elbow grease. We only used a [steel rake](https://www.lowes.com/pd/Blue-Hawk-54-5-in-L-Fiberglass-Handle-Welded-Steel-Garden-Rake/3605434?cm_mmc=shp-_-c-_-prd-_-sol-_-google-_-lia-_-106-_-lawnandgardentools-_-3605434-_-0&placeholder=null&ds_rl=1286981&gclid=Cj0KCQjw6-SDBhCMARIsAGbI7UiV8kJcsmNlReYUMhWu-QNTX5nyYwR75h6GrZKxTj46_U_QMte9tkEaAl1oEALw_wcB&gclsrc=aw.ds), no fancy equipment.
 
 ### Plant beds
 
-We've added two, large plant beds to the front of the yard. Both are filled with drought and deer-resistant plants, most kinds you would find in the desert. 
+We've added two, large plant beds to the front of the yard. Both are filled with drought and deer-resistant plants, most kinds you would find in the desert.
 
 ## Backyard
 
