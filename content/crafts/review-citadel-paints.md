@@ -24,6 +24,8 @@ However, I liked the idea of a set because you get to try several types of paint
 
 First thoughts are that they are _slightly_ worth the cost. They go on quite opaque on the minis and that's something that bugged me with my acrylics. This includes metallic paints which are great for armor. I was quite pleased.
 
+I didn't find them so great that I would be getting all the colors I needed for my minis though. I don't feel as bad mixing and watering down my acrylics to get new colors or the transparency I need as I do with the Citadel paints. It really is connected directly to cost. You could easily spend hundreds on paints and that's even before you get your minis, which can also be really pricey if you're buying everything new.
+
 ## Brush
 
 ## Thoughts
