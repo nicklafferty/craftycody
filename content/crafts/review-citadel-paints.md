@@ -8,3 +8,22 @@ tags = []
 title = "Review: Citadel Paints"
 
 +++
+Let me start off by saying I am a total beginner when it comes to painting miniatures. I got into the hobby on a whim and bought some minis from a local comic store. I started off by using normal acrylic paints and my crappy brushes.
+
+I've been wanting to get paints that the pros use after painting several models with some success. I figured there would be some differences between Citadel's paints and basic acrylics and there are, but not as many as I had thought.
+
+## Set and Price
+
+After a lot of back and forth, I decided to get [this paint and tools set](https://www.games-workshop.com/en-US/40k-Paint-and-Tool-Set-EN-ES-2020) for $45. The reason being that the paints are $7.50 each and shipping was $10 if you spent under $35 and free if you spent over. So you're at almost $20 for _one_ bottle of paint.
+
+That being said, $7.50 is steep for a small container of paint. I don't like paying that and it's difficult for me when the acrylics I get are $0.79 each and you get more paint.
+
+However, I liked the idea of a set because you get to try several types of paints and got a nice paintbrush that truly is ideal for painting minis. I bit the bullet and it arrived fairly quickly.
+
+## Paints
+
+First thoughts are that they are _slightly_ worth the cost. They go on quite opaque on the minis and that's something that bugged me with my acrylics. This includes metallic paints which are great for armor. I was quite pleased.
+
+## Brush
+
+## Thoughts
