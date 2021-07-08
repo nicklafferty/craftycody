@@ -34,7 +34,7 @@ The brush is worth every penny.
 
 The bristles are glued together and the tip stays pointy even when painting. This thing has made all the difference. I can paint strands of hair and eyes now!
 
-I'll be researching brushes now and getting a smaller one for tinier details.
+I'll be researching brushes now and getting a smaller one for tinier details. Maybe even some for texture, but that will be later.
 
 The brush feels like it's even more important than the paints.
 
