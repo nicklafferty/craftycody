@@ -26,6 +26,8 @@ First thoughts are that they are _slightly_ worth the cost. They go on quite opa
 
 I didn't find them so great that I would be getting all the colors I needed for my minis though. I don't feel as bad mixing and watering down my acrylics to get new colors or the transparency I need as I do with the Citadel paints. It really is connected directly to cost. You could easily spend hundreds on paints and that's even before you get your minis, which can also be really pricey if you're buying everything new.
 
+The main reason I wanted to try these paints is for the "shade" paints. These are super thin paints that magically add tons of detail to your minis by getting in all the crevices that are hard to paint normally. Originally I'd been watering down black paint, and honestly? Kind of what the shade paints are. I've been having trouble getting it only in those crevices whereas all the videos I've watched do one big brushed stroke over the model and poof, it looks amazing. That's also the advice given as well, that it's just so easy. I kind of feel dumb, but I'm not getting the same simple results with the shades.
+
 ## Brush
 
-## Thoughts
+## Final Thoughts
