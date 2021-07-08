@@ -12,7 +12,7 @@ Let me start off by saying I am a total beginner when it comes to painting minia
 
 I've been wanting to get paints that the pros use after painting several models with some success. I figured there would be some differences between Citadel's paints and basic acrylics and there are, but not as many as I had thought.
 
-## Set and Price
+## Price
 
 After a lot of back and forth, I decided to get [this paint and tools set](https://www.games-workshop.com/en-US/40k-Paint-and-Tool-Set-EN-ES-2020) for $45. The reason being that the paints are $7.50 each and shipping was $10 if you spent under $35 and free if you spent over. So you're at almost $20 for _one_ bottle of paint.
 
