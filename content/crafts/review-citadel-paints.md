@@ -39,3 +39,7 @@ I'll be researching brushes now and getting a smaller one for tinier details. Ma
 The brush feels like it's even more important than the paints.
 
 ## Final Thoughts
+
+I think a great resource if you want to get into painting minis is eBay. Tons of people are selling the actual figures and you can get big discounts on lots if you're building an army. I've found some listings on discounted paints, but it might be harder to find colors you need for a good price. They're expensive, they just are.
+
+I don't think I'll be buying any more Citadel paints as I can't justify the costs. However, I will definitely be getting more brushes and they have made it 100% easier to paint my minis.
