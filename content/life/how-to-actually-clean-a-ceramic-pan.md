@@ -26,10 +26,16 @@ A lot of these techniques never work for me. I follow instructions to the letter
 
 So I had to experiment.
 
-As I was cleaning it in the sink, I had the thought to try one of those Magic Erasers (we have a pack of name-brand ones from Costco, but I'm sure the generics from Amazon work).
+As I was cleaning it in the sink, I had the thought to try one of those **Magic Erasers** (we have a pack of name-brand ones from Costco, but I'm sure the generics from Amazon work).
 
 Lo and behold.
 
 There was a lot of elbow grease involved, but oh my God the difference! All those stains were actually coming off!
 
 I smooshed the sponge every which way to get in crevices and along the rim. Really experiment here. My arms were tired when I finished, but it looked almost new again.
+
+I got it in a good place and rinsed it out. I also decided to look up how to re-season ceramic pans. It's fairly similar to cast iron in that way. I followed these instructions.
+
+I used grapeseed oil, spread it all over the pan, and heated it on med-low till it smoked. After it cooled a bit, I wiped it out.
+
+That helped repair some of the non-stick coating. Admittedly, it isn't perfect, but it's better than where it was.
