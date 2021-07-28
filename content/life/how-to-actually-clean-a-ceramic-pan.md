@@ -15,3 +15,11 @@ Sidebar, the best way to clean copper pans is salt and vinegar. The salt scrapes
 I recently bought a pair of ceramic pans to replace our old Teflon ones. I have a pressure cooker that utilizes a ceramic pot inside and am always impressed with how easily it wipes clean no matter what I cook in it. I figured this would be the way to go for day-to-day cooking.
 
 I was right, for the most part. The bigger pan is still in near-mint condition despite being used fairly often, however, the smaller one started losing its non-stick capabilities and food/oil was burning into the pan. I mean it was literally becoming a part of the pan itself. Like, it will be assimilated and resistance is futile kind of bond.
+
+I didn't understand why, but I wanted to fix it so I took to the internet.
+
+I feel like the go-to cleaning tip is _always_ baking soda and vinegar. Oh, it just cleans _everything_! Use it on silver, countertops, clothes, your dog! Everything will be spotless and look brand new!
+
+Lies.
+
+A lot of these techniques never work for me. I follow instructions to the letter- boiling water, putting the vinegar and baking soda in, letting it go for 15 minutes to overnight. But it _never_ wipes clean. Maybe it works on easier messes, but as I said, this crap was so burnt into this pan that when you ran a finger over it, it was smooth.
