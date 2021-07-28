@@ -42,7 +42,7 @@ I smooshed the sponge every which way to get in crevices and along the rim. Real
 
 ![](/uploads/pxl_20210726_220244613-mp.jpg)
 
-I got it in a good place and rinsed it out. I also decided to look up how to re-season ceramic pans. It's fairly similar to cast iron in that way. I followed these instructions.
+I got it in a good place and rinsed it out. I also decided to look up how to re-season ceramic pans. It's fairly similar to cast iron in that way. I followed [these instructions](https://chefspick.co.uk/how-to-season-ceramic-frying-pan/).
 
 I used grapeseed oil, spread it all over the pan, and heated it on med-low till it smoked. After it cooled a bit, I wiped it out.
 
