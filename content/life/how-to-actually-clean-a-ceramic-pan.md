@@ -41,3 +41,5 @@ I got it in a good place and rinsed it out. I also decided to look up how to re-
 I used grapeseed oil, spread it all over the pan, and heated it on med-low till it smoked. After it cooled a bit, I wiped it out.
 
 That helped repair some of the non-stick coating. Admittedly, it isn't perfect, but it's better than where it was.
+
+I hope this helps someone else! It can be frustrating when you think you found a solution that works for everyone, but not for you.
