@@ -2,9 +2,9 @@
 date = ""
 description = "Sometimes baking soda and vinegar doesn't cut it."
 draft = true
-image = ""
+image = "/uploads/clean-ceramic-pans.png"
 slug = "clean-ceramic-pans"
-tags = []
+tags = ["diy"]
 title = "How to actually clean a ceramic pan"
 
 +++
@@ -15,6 +15,8 @@ Sidebar, the best way to clean copper pans is salt and vinegar. The salt scrapes
 I recently bought a pair of ceramic pans to replace our old Teflon ones. I have a pressure cooker that utilizes a ceramic pot inside and am always impressed with how easily it wipes clean no matter what I cook in it. I figured this would be the way to go for day-to-day cooking.
 
 I was right, for the most part. The bigger pan is still in near-mint condition despite being used fairly often, however, the smaller one started losing its non-stick capabilities and food/oil was burning into the pan. I mean it was literally becoming a part of the pan itself. Like, it will be assimilated and resistance is futile kind of bond.
+
+![](/uploads/pxl_20210726_214937680-mp.jpg)
 
 I didn't understand why, but I wanted to fix it so I took to the internet.
 
@@ -32,9 +34,13 @@ As I was washing it in the sink, I had the thought to try one of those **Magic E
 
 Lo and behold.
 
+![](/uploads/pxl_20210726_214923152-mp.jpg)
+
 There was a lot of elbow grease involved, but oh my God the difference! All those stains were actually coming off!
 
 I smooshed the sponge every which way to get in crevices and along the rim. Really experiment here. My arms were tired when I finished, but it looked almost new again.
+
+![](/uploads/pxl_20210726_220244613-mp.jpg)
 
 I got it in a good place and rinsed it out. I also decided to look up how to re-season ceramic pans. It's fairly similar to cast iron in that way. I followed these instructions.
 
