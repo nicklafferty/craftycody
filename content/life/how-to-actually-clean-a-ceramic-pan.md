@@ -22,4 +22,14 @@ I feel like the go-to cleaning tip is _always_ baking soda and vinegar. Oh, it j
 
 Lies.
 
-A lot of these techniques never work for me. I follow instructions to the letter- boiling water, putting the vinegar and baking soda in, letting it go for 15 minutes to overnight. But it _never_ wipes clean. Maybe it works on easier messes, but as I said, this crap was so burnt into this pan that when you ran a finger over it, it was smooth.
+A lot of these techniques never work for me. I follow instructions to the letter- boiling water, putting the vinegar and baking soda in, letting it go for 15 minutes to overnight. But it _never_ wipes clean. Maybe it works on easier messes, but as I said, this crap was so burnt into this pan that when you ran a finger over it, it was smooth. It was really frustrating.
+
+So I had to experiment.
+
+As I was cleaning it in the sink, I had the thought to try one of those Magic Erasers (we have a pack of name-brand ones from Costco, but I'm sure the generics from Amazon work).
+
+Lo and behold.
+
+There was a lot of elbow grease involved, but oh my God the difference! All those stains were actually coming off!
+
+I smooshed the sponge every which way to get in crevices and along the rim. Really experiment here. My arms were tired when I finished, but it looked almost new again.
