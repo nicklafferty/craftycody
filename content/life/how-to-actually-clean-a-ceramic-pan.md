@@ -24,7 +24,7 @@ I feel like the go-to cleaning tip is _always_ baking soda and vinegar. Oh, it j
 
 Lies.
 
-A lot of these techniques never work for me. I follow instructions to the letter- boiling water, putting the vinegar and baking soda in, letting it go for 15 minutes to overnight. But it _never_ wipes clean. Maybe it works on easier messes, but as I said, this crap was so burnt into this pan that when you ran a finger over it, it was smooth. It was really frustrating.
+A lot of these techniques never work for me. I follow instructions to the letter- boiling water, putting the vinegar and baking soda in, letting it soak for 15 minutes or overnight. But it _never_ wipes clean. Maybe it works on easier messes, but as I said, this crap was so burnt into this pan that when you ran a finger over it, it was smooth. It was really frustrating.
 
 So I had to experiment.
 
