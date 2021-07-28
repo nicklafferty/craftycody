@@ -26,6 +26,8 @@ A lot of these techniques never work for me. I follow instructions to the letter
 
 So I had to experiment.
 
+## Cleaning your ceramic pan
+
 As I was cleaning it in the sink, I had the thought to try one of those **Magic Erasers** (we have a pack of name-brand ones from Costco, but I'm sure the generics from Amazon work).
 
 Lo and behold.
