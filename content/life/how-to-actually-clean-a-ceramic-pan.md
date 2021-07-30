@@ -48,3 +48,7 @@ I used grapeseed oil, spread it all over the pan, and heated it on med-low till 
 That helped repair some of the non-stick coating. Admittedly, it isn't perfect, but it's better than where it was.
 
 I hope this helps someone else! It can be frustrating when you think you found a solution that works for everyone, but not for you.
+
+**UPDATE 7/30/2021:**
+
+The pan got gross again- I think _someone_ in the house uses too high of heat. I recleaned and re-oiled yesterday. Then, it was dinner time and I needed to heat up some tortillas. So, I lightly spread some more oil around, heated a tortilla on med-low, and re-oiled in between the following tortillas. This morning I re-oiled again before making eggs and there was _no_ burnt-on mess and the little scraps that did stick easily came off. I used a wet paper towel to get any leftovers out, patted dry, and re-oiled again. This seems to be like a good technique to really get the non-stick back. Note, that I re-oil with grapeseed oil and did **not **use any other oil in the pan when making eggs.
