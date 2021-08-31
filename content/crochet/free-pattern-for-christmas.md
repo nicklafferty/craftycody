@@ -1,7 +1,7 @@
 +++
+date = 2019-12-29T06:00:00Z
 description = "Cute pup you can crochet and take around with you!"
 image = "/uploads/corgi-on-table.jpg"
-date = 2019-12-29T06:00:00Z
 slug = "corgi-free-crochet-pattern"
 tags = ["crochet", "pattern"]
 title = "Free pattern for Christmas!"
@@ -9,7 +9,7 @@ title = "Free pattern for Christmas!"
 +++
 ## Merry Christmas!
 
-Edit: I just [added a PDF version to my store](https://codyscraftcorner.square.site/product/-digital-pattern-only-corgi-puppuccino-crochet-pattern/5?cs=true) if you’d like to donate to the yarn fund!
+Edit: I just [added a PDF version to my store](https://www.ravelry.com/patterns/library/corgi-coffee-amigurumi) if you’d like to donate to the yarn fund!
 
 I have been off this whole last week and I’m off all of next week because I could not be more done or enjoying myself more than I am right now.
 
