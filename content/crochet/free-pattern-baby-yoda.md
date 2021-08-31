@@ -1,13 +1,13 @@
 +++
+date = 2020-02-23T06:00:00Z
 description = "Free crochet pattern to create your own Child or Baby Yoda,"
 image = "/uploads/baby-yoda-crochet-pattern-main.jpg"
-date = 2020-02-23T06:00:00Z
 slug = "baby-yoda-crochet-pattern"
 tags = ["crochet", "pattern"]
 title = "Free pattern: Baby Yoda!"
 
 +++
-I have a [PDF of this pattern for sale in my store ](https://codyscraftcorner.square.site/product/-digital-pattern-only-baby-yoda-crochet-pattern/4?cs=true)if you’d like to donate to the yarn fund!
+I have a [PDF of this pattern for sale in my store](https://www.ravelry.com/patterns/library/grogu-the-child-pattern) if you’d like to donate to the yarn fund!
 
 Over the weekend, I made some modifications to my [corgi puppercino](https://craftycody.com/crochet/corgi-free-crochet-pattern/) pattern I posted a couple of weeks ago. Everyone loves free patterns so whenever the Mandalorian (cue space flute) comes back you can cuddle with this little guy. Works up quickly and turns out pretty cute!
 
