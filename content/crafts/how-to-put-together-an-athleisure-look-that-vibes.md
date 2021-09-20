@@ -8,6 +8,6 @@ tags = []
 title = "How to put together an athleisure look that vibes"
 
 +++
-One night I was hit with inspiration and began to scour Pinterest for the perfect athleisure look. I wanted leggings, crop tops, sweaters, shrug, sports bras, sneakers..._I wanted it all_. 
+}>M?{<ook. I wanted leggings, crop tops, sweaters, shrug, sports bras, sneakers..._I wanted it all_.
 
-It all started with Blade Runner 2049.
+It all started with [Blade Runner 2049](https://www.imdb.com/title/tt1856101/). Joi is one of my favorite characters. She's absolutely adorable and if household holograms were a thing, I would want one of her too. One of her outfits 9039456708-
