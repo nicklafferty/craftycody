@@ -10,7 +10,7 @@ title = "Review: Citadel Paints"
 +++
 Let me start off by saying I am a total beginner when it comes to painting miniatures. I got into the hobby on a whim and bought some minis from a local comic store. I started off by using normal acrylic paints and my cheap, crappy brushes.
 
-I've been wanting to get paints that the pros use after painting several models with some success. I figured there would be some differences between Citadel's paints and basic acrylics and there are, but not as many as I had thought.
+I've been wanting to get paints that the pros use after painting several models with some success. I figured there would be some differences between Citadel's paints and basic acrylics and there are, but just not as many as I had thought.
 
 ## Price
 
