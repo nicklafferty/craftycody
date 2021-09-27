@@ -40,4 +40,4 @@ I've since bought a little set of brushes on Amazon and they are _amazing_. I di
 
 I think a great resource if you want to get into painting minis is eBay. Tons of people are selling the actual figures and you can get big discounts on lots if you're building an army. I've found some listings on discounted paints, but it might be harder to find colors you need for a good price. They're expensive, they just are.
 
-I don't think I'll be buying any more Citadel paints as I can't justify the costs. However, I will definitely be getting more brushes and they have made it 100% easier to paint my minis.
+I don't think I'll be buying any more Citadel paints as I can't justify the costs- for now anyway. Perhaps as I dive more into the hobby, I'll start acquiring better paints. There are some really interesting ones that add different kinds of textures to models. They're called 'technical' paints and can create things like gritty asphalt and blood or slime that normal acrylics cannot. I think I will look into these more to add details to my minis.
