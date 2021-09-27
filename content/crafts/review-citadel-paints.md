@@ -26,17 +26,15 @@ First thoughts are that they are _slightly_ worth the cost. They go on quite opa
 
 I didn't find them so great that I would be getting all the colors I needed for my minis though. I don't feel as bad mixing and watering down my acrylics to get new colors or the transparency I need as I do with the Citadel paints. It really is connected directly to cost and is a definite mental block for me. You could easily spend hundreds on paints and that's even before you get your minis, which can also be really pricey if you're buying everything new.
 
-The main reason I wanted to try these paints is for the "shade" paints. These are super thin paints that magically add tons of detail to your minis by getting in all the crevices that are hard to paint normally. Originally I'd been watering down black paint, and honestly? Kind of what the shade paints are. I've been having trouble getting it only in those crevices whereas all the videos I've watched do one big brush stroke over the model and poof, it looks amazing. That's also the advice given as well, that it's just so easy. I kind of feel dumb, but I'm not getting the same simple results with the shades.
+The main reason I wanted to try these paints is for the "shade" paints. These are super thin paints that magically add tons of detail to your minis by getting in all the crevices that are hard to paint normally. Originally I'd been watering down black paint, and honestly? Kind of what the shade paints are. I've been having trouble getting it only in those crevices whereas all the videos I've watched do one big brush stroke over the model and poof, it looks amazing. That's also the advice given as well, that it's just so easy. I kind of feel dumb, but I'm not getting the same simple results with the shades. I figure this is a practice and technique thing, so I will keep using it and will hopefully get better.
 
 ## Brush
 
 The brush is worth every penny.
 
-The bristles are glued together and the tip stays pointy even when painting. This thing has made all the difference. I can paint strands of hair and eyes now!
+The bristles are glued together and the tip stays pointy even when painting. This thing has made all the difference. I can paint strands of hair and eyes now! The brush feels like it's even more important than the paints.
 
-I'll be researching brushes now and getting a smaller one for tinier details. Maybe even some for texture, but that will be later.
-
-The brush feels like it's even more important than the paints.
+I've since bought a little set of brushes on Amazon and they are _amazing_. I didn't splurge for expensive, name-brand ones either. The tips have all stayed pointy and they have upped my painting game.
 
 ## Final Thoughts
 
