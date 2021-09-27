@@ -18,7 +18,7 @@ After a lot of back and forth, I decided to get [this paint and tools set](https
 
 That being said, $7.50 is steep for a small container of paint. I don't like paying that and it's difficult for me when the acrylics I get are $0.79 each and you get more paint.
 
-However, I liked the idea of a set because you get to try several types of paints and got a nice paintbrush that truly is ideal for painting minis. I bit the bullet and it arrived fairly quickly.
+However, I liked the idea of a set because you get to try several types of paints, the cost per paint goes down, and you get a nice paintbrush that truly is ideal for painting minis. I bit the bullet and it arrived fairly quickly.
 
 ## Paints
 
