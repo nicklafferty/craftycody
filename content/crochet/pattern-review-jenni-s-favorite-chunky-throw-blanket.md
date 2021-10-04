@@ -14,11 +14,15 @@ I found [Jenni's Favorite Chunky Throw Blanket](http://byjennidesigns.blogspot.c
 
 I picked this totally cute, soft pink color and they, thankfully, had enough for the pattern. All too often you'll find a color you like and they'll only have one or two skeins.
 
+All this being said, I did run out of yarn before I finished the pattern which made me grumpy. I typically crochet quite tight (I try to keep my stitches loose!) so I usually have leftover yarn and a smaller finished project.
+
+I knew I was running low, so I cut the blanket short and still ran out before finished the border.
+
 ## Review
 
 I'll be honest, there really isn't a lot to review. That's a good thing though! The whole blanket is made of one repeating row over and over again. What I like most about these kinds of patterns is that I can watch TV or hold a conversation while doing them. The simple repetition also ensures it works up quickly.
 
-She gives three options for a border at the end and they all look very nice. A border really completes the blanket.
+She gives three options for a border at the end and they all look very nice. A border really completes the blanket. I chose the ribbed border for my blanket.
 
 ## Yarn
 
@@ -30,4 +34,4 @@ I wish I could do more projects using it, but it gets expensive so quickly.
 
 ## Mods
 
-I didn't make any mods to this pattern.
+I ended up having
