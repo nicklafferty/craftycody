@@ -16,7 +16,7 @@ I picked this totally cute, soft pink color and they, thankfully, had enough for
 
 All this being said, I did run out of yarn before I finished the pattern which made me grumpy. I typically crochet quite tight (I try to keep my stitches loose!) so I usually have leftover yarn and a smaller finished project.
 
-I knew I was running low, so I cut the blanket short and still ran out before finished the border.
+I knew I was running low, so I cut the blanket short and still ran out before finished the border. Lesson learned: always buy an extra skein.
 
 ## Review
 
