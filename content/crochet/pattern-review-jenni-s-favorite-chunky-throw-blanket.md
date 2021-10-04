@@ -24,6 +24,8 @@ I'll be honest, there really isn't a lot to review. That's a good thing though! 
 
 She gives three options for a border at the end and they all look very nice. A border really completes the blanket. I chose the ribbed border for my blanket.
 
+However, I am a little irked at running out of yarn before my blanket was completed. This isn't the pattern's fault since I'm sure they're all made with a max of 880 yards. I don't know why mine worked up the way it did, my stitches don't seem particularly big or loose. Just go ahead and get **5 skeins of blanket yarn** if you're going to do this project. Better safe than sorry. I suppose I can make a matching hat with my leftovers!
+
 ## Yarn
 
 As I said above, Michaels was having a sale on [Bernat Baby Blanket](https://www.michaels.com/bernat-baby-blanket-yarn/M20003611.html?dwvar_M20003611_size=10.5%20oz&dwvar_M20003611_color=Light%20Sky) yarn and I bought four skeins in tan pink for $24.
@@ -34,4 +36,4 @@ I wish I could do more projects using it, but it gets expensive so quickly.
 
 ## Mods
 
-I ended up having
+Like I said above, I had to cut the blanket short in order to try and finish the border. I went to 50 rows on the blanket itself instead of the listed 62. I still ran out of yarn and had to order one more skein on eBay because Michael's doesn't sell it anymore, of course.
