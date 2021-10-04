@@ -36,4 +36,4 @@ I wish I could do more projects using it, but it gets expensive so quickly.
 
 ## Mods
 
-Like I said above, I had to cut the blanket short in order to try and finish the border. I went to 50 rows on the blanket itself instead of the listed 62. I still ran out of yarn and had to order one more skein on eBay because Michael's doesn't sell it anymore, of course.
+Like I said above, I had to cut the blanket short in order to try and finish the border. I went to 50 rows on the blanket itself instead of the listed 62. I still ran out of yarn and had to order one more skein on eBay because Michael's doesn't sell it anymore, of course. That's the only modification I had to make.
