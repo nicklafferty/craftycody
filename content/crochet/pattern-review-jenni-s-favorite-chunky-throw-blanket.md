@@ -24,7 +24,7 @@ I'll be honest, there really isn't a lot to review. That's a good thing though! 
 
 She gives three options for a border at the end and they all look very nice. A border really completes the blanket. I chose the ribbed border for my blanket.
 
-However, I am a little irked at running out of yarn before my blanket was completed. This isn't the pattern's fault since I'm sure they're all made with a max of 880 yards. I don't know why mine worked up the way it did, my stitches don't seem particularly big or loose. Just go ahead and get **5 skeins of blanket yarn** if you're going to do this project. Better safe than sorry. I suppose I can make a matching hat with my leftovers!
+However, I am a little irked at running out of yarn before my blanket was completed. This isn't the pattern's fault since I'm sure they're all made with a max of 880 yards. I don't know why mine worked up the way it did, my stitches don't seem particularly big or loose. Just go ahead and get **5 skeins of blanket yarn** if you're going to do this project. Better safe than sorry. I suppose I can make a matching hat with my leftovers. Hmm...or maybe hair ties?
 
 ## Yarn
 
