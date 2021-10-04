@@ -30,6 +30,8 @@ However, I am a little irked at running out of yarn before my blanket was comple
 
 As I said above, Michaels was having a sale on [Bernat Baby Blanket](https://www.michaels.com/bernat-baby-blanket-yarn/M20003611.html?dwvar_M20003611_size=10.5%20oz&dwvar_M20003611_color=Light%20Sky) yarn and I bought four skeins in "tan pink" for $24.
 
+But then, I had to buy a spare skein on eBay for about $9. So, the total was more like $33.
+
 I _love_ blanket yarn. It's one of my favorites to work with. There are no strands for the hook to go through and it's satisfying how quickly projects work up. Plus it's incredibly soft and cozy.
 
 I wish I could do more projects using it, but it gets expensive so quickly.
