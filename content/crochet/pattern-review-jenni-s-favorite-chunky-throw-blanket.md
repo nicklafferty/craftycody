@@ -18,8 +18,6 @@ All this being said, I did run out of yarn before I finished the pattern which m
 
 I knew I was running low, so I cut the blanket short and still ran out before finished the border. Lesson learned: always buy an extra skein.
 
-![](/uploads/close-up-crochet-blanket-with-hook.jpg)
-
 ## Review
 
 I'll be honest, there really isn't a lot to review. That's a good thing though! The whole blanket is made of one repeating row over and over again. What I like most about these kinds of patterns is that I can watch TV or hold a conversation while doing them. The simple repetition also ensures it works up quickly.
