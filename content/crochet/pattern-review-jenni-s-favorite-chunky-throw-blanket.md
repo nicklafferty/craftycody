@@ -1,6 +1,6 @@
 +++
 date = 2021-10-05T05:00:00Z
-description = "A quick blanket pattern that won't break the bank."
+description = "A quick blanket pattern that won't break the bank and is super cozy."
 draft = true
 image = "/uploads/jenni-s-favorite-chunky-throw-blanket.png"
 slug = "jennis-blanket-pattern-review"
