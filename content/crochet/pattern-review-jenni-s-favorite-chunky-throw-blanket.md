@@ -36,9 +36,7 @@ As I said above, Michaels was having a sale on [Bernat Baby Blanket](https://www
 
 But then, I had to buy a spare skein on eBay for about $9. So, the total was more like $33.
 
-I _love_ blanket yarn. It's one of my favorites to work with. There are no strands for the hook to go through and it's satisfying how quickly projects work up. Plus it's incredibly soft and cozy. What I appreciate the most is the high yardage with this yarn. Sometimes, you only get 30 or so yards with heavier yarns and it's frustrating to have to buy 10 skeins for a project.
-
-I wish I could do more projects using it, but it gets expensive so quickly.
+I _love_ blanket yarn. It's one of my favorites to work with. There are no strands for the hook to go through and it's satisfying how quickly projects work up. Plus it's incredibly soft and cozy. What I appreciate the most is the high yardage with this yarn. Sometimes, you only get 30 or so yards with heavier yarns and it's frustrating to have to buy 10 or so skeins for a project. Another blanket I made used 6 skeins, so it's not too bad if you find a BOGO deal.
 
 ![](/uploads/four-skeins-bernat-blanket-yarn-tan-pink.jpg)
 
