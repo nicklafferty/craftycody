@@ -4,7 +4,7 @@ description = "A quick blanket pattern that won't break the bank."
 draft = true
 image = ""
 slug = "jennis-blanket-pattern-review"
-tags = ["review"]
+tags = ["review", "crochet"]
 title = "Pattern Review: Jenni's Favorite Chunky Throw Blanket"
 
 +++
