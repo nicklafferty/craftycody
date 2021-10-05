@@ -18,6 +18,8 @@ All this being said, I did run out of yarn before I finished the pattern which m
 
 I knew I was running low, so I cut the blanket short and still ran out before finished the border. Lesson learned: always buy an extra skein.
 
+![](/uploads/close-up-crochet-blanket-with-hook.jpg)
+
 ## Review
 
 I'll be honest, there really isn't a lot to review. That's a good thing though! The whole blanket is made of one repeating row over and over again. What I like most about these kinds of patterns is that I can watch TV or hold a conversation while doing them. The simple repetition also ensures it works up quickly.
@@ -25,6 +27,8 @@ I'll be honest, there really isn't a lot to review. That's a good thing though! 
 She gives three options for a border at the end and they all look very nice. A border really completes the blanket. I chose the ribbed border for my blanket.
 
 However, I am a little irked at running out of yarn before my blanket was completed. This isn't the pattern's fault since I'm sure they're all made with a max of 880 yards. I don't know why mine worked up the way it did, my stitches don't seem particularly big or loose. Just go ahead and get **5 skeins of blanket yarn** if you're going to do this project. Better safe than sorry. I suppose I can make a matching hat with my leftovers. Hmm...or maybe hair ties? Or neck warmer/cowl?
+
+![](/uploads/vito-dog-looking-at-camera-with-yarn.jpg)
 
 ## Yarn
 
