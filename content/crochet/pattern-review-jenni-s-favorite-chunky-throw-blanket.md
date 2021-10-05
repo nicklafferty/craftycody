@@ -30,6 +30,8 @@ However, I am a little irked at running out of yarn before my blanket was comple
 
 ![](/uploads/vito-dog-looking-at-camera-with-yarn.jpg)
 
+You can practically hear Vito asking what the heck is on his footies.
+
 ## Yarn
 
 As I said above, Michaels was having a sale on [Bernat Baby Blanket](https://www.michaels.com/bernat-baby-blanket-yarn/M20003611.html?dwvar_M20003611_size=10.5%20oz&dwvar_M20003611_color=Light%20Sky) yarn and I bought four skeins in "tan pink" for $24.
