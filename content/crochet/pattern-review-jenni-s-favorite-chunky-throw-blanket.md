@@ -1,8 +1,8 @@
 +++
-date = ""
+date = 2021-10-05T05:00:00Z
 description = "A quick blanket pattern that won't break the bank."
 draft = true
-image = ""
+image = "/uploads/jenni-s-favorite-chunky-throw-blanket.png"
 slug = "jennis-blanket-pattern-review"
 tags = ["review", "crochet"]
 title = "Pattern Review: Jenni's Favorite Chunky Throw Blanket"
@@ -49,3 +49,7 @@ To be fair, I don't know if 5 skeins would have gotten me the full-sized blanket
 Overall, it's a cute and quick blanket that's inexpensive whether you get 4 or 5 skeins of blanket yarn. It'll be very nice in the Texas winter.
 
 [Check out more of her designs here!](http://byjennidesigns.blogspot.com/)
+
+![](/uploads/crochet-blanket-close-up.jpg)
+
+![](/uploads/crochet-blanket-on-chair-full-view.jpg)
