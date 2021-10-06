@@ -28,3 +28,7 @@ I'll go over the issues I ran into, the exact supplies I bought, and do my best 
 8. Outdoor caulk for waterproofing
 
 ## How-to:
+
+Those links are to the exact products I used in this project.
+
+We decided we wanted a camera for the front of our house and chose a spot where an old, worn-out light was installed. The wiring would already be there, so it should be fairly straightforward. And, it was thankfully. I did have to run to Lowe's a second time after buying the junction box to get all the masonry screws because I was hoping to be able to install the camera using what was already there, but it wouldn't have fit.
