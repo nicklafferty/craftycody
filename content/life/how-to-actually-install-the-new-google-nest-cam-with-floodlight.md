@@ -43,4 +43,4 @@ Once all the old light stuff was off, I was left with a hole, a black wire, a wh
 
 Next, I put my new junction box against the brick and used a sharpie to mark where the two mounting holes landed. Be sure to drill into the brick itself and NOT the mortar.
 
-Using that 5/32" drill bit in my hammer drill
+Using that 5/32" drill bit in my hammer drill, I drilled into those marked spots and through the brick. You need to pre-drill otherwise you risk cracking the brick- the same as pre-drilling through wood. Also, be sure to pre-drill longer than the length of your screws.
