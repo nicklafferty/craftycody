@@ -67,3 +67,7 @@ Line up the holes on the mounting plate with the brackets on the floodlight and 
 The camera has a powerful magnet in it and pops onto the front of the floodlight. The little wire connector on the floodlight plugs into the bottom of the camera.
 
 Second gripe. It was time to put in the anti-theft screws, but the included Allen wrench was too small for the screw that goes on the bottom of the floodlight. I have a set of Allen wrenches and _none_ of them worked. I got it in there as best I could, but whatever. There is also an anti-theft screw on the bottom of the camera (it's the larger of those screws) and that one when in just fine.
+
+All you have to do now is turn the power back on and make sure it works. I'll light up and do that Google chime thing. If it does, you can connect it to your app. If it doesn't, then...I don't know. Good luck, I guess.
+
+AND THAT'S IT.
