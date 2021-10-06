@@ -46,7 +46,7 @@ Using that 5/32" drill bit in my hammer drill, I drilled into those marked spots
 
 What was nice about the concrete screws were the instructions on the back. They said the exact size drill bit you would need to predrill as well as the size of the nut driver to drill in the screws themselves. Another bonus is that all of these products are pretty inexpensive so I ran around the store grabbing everything I needed.
 
-Time to mount the junction box. I positioned mine up and down so the screws would land in the middle of those bricks versus being a little too close to the mortar. I attached my new nut driver to my impact driver (you can use a hammer drill for this, but make sure the hammer function is off) and screwed in the top and bottom screws until secure. Don't over tighten, otherwise you will crack the brick.
+Time to mount the junction box. I positioned mine up and down so the screws would land in the middle of those bricks versus being a little too close to the mortar. I attached my new nut driver to my impact driver (you can use a hammer drill for this, but make sure the hammer function is off) and screwed in the top and bottom screws until secure. Don't overtighten, otherwise, you will crack the brick.
 
 I attached the ground wire onto the ground screw of the junction box and made sure to run the black and white wires through.
 
