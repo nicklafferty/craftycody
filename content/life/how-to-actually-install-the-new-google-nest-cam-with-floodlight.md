@@ -1,14 +1,14 @@
 +++
 date = ""
-description = "We're drilling into brick and hoping for the best."
+description = "Problems I ran into and DIY fixes."
 draft = true
 image = ""
 slug = ""
 tags = []
-title = "How to (actually) install the new Google Nest Cam with Floodlight"
+title = "How to install the new Google Nest Cam with Floodlight"
 
 +++
-I literally just finished packing up my tools from this project and wanted to write a quick tutorial of how I install our new Google Nest floodlight.
+I literally just finished packing up my tools from this project and wanted to write a quick tutorial of how I installed our new Google Nest floodlight.
 
 My husband has been eyeing this thing for what seemed like months and it was _finally_ released the other day. We ran to Best Buy to pick one up and to Lowe's for a junction box then I got started the next morning on the install.
 
