@@ -56,4 +56,8 @@ Here is my first gripe with the Nest Cam. When I went to screw the mounting plat
 
 Make sure the plate is level then screw in and tighten your mounting screws. I placed one at the top and bottom. Feed the white and black wires through.
 
-The mounting plate cover goes on next. Remember to make sure the arrow and "G" are upright and snap it onto the mounting plate. There are 4 screws included that secure the cover to the plate. Feed the black and white wires through (last time).
+The mounting plate cover goes on next. Remember to make sure the arrow and "G" are upright and snap it onto the mounting plate (it will make a click sound). There are 4 screws included that secure the cover to the plate. Feed the black and white wires through (last time).
+
+Now, grab the floodlight and that 'S' hook that's also included in the box. There's a little hole on the bottom of the floodlight where you can hook that 'S' onto, then hook the other end onto the plate cover you just installed. You're now hands-free and can hook up the electrical. This is the greatest invention ever, in my opinion.
+
+With the included caps, connect the black wire from the wall and black wire from the floodlight and twist on one of the caps over the wire ends. Then do the same for the white wires. Now, shove those bad boys back through the hold and into the junction box to get them out of the way. You can be a little rough, those caps are super secure.
