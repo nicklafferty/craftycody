@@ -23,7 +23,8 @@ Hammer Drill (you have to have this when drilling into brick)
 Concrete Screws  
 Drill bit  
 Hex bit  
-Compressed air (for cleaning dust)  
-Junction box
+Compressed air for cleaning dust  
+Junction box  
+Outdoor caulk for waterproofing
 
 ## How-to:
