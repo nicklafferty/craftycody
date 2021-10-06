@@ -34,7 +34,7 @@ I'll go over the issues I ran into, the exact supplies I bought, and do my best 
 
 Those links are to the exact products I used in this project.
 
-We decided we wanted a camera for the front of our house and chose a spot where an old, worn-out light was installed. The wiring would already be there, so it should be fairly straightforward. And, it was thankfully. I did have to run to Lowe's a second time after buying the junction box to get all the masonry screws because I was hoping to be able to install the camera using what was already there, but it wouldn't have fit.
+When decided we wanted a camera for the front of our house and chose a spot where an old, worn-out lamp was installed. The wiring would already be there, so it should be fairly straightforward. And, it was thankfully. I did have to run to Lowe's a second time after buying the junction box to get all the masonry screws because I was hoping to be able to install the camera using what was already there, but it wouldn't have fit.
 
 The first step is to turn the power off to the light at the breaker- MAKE SURE YOU DO THIS. Once the power is 100% off, I started to dismantle the old light. Simple enough- take off mounting screws, take off light, clip connected wires (white, black, and ground), throw light away, and then take off the old mounting hardware. There was a surprise junction box already inside of the brick, but it had no way to connect all the new stuff, so I'm glad we went ahead a got a new box.
 
