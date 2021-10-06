@@ -38,12 +38,18 @@ We decided we wanted a camera for the front of our house and chose a spot where 
 
 The first step is to turn the power off to the light at the breaker- MAKE SURE YOU DO THIS. Once the power is 100% off, I started to dismantle the old light. Simple enough- take off mounting screws, take off light, clip connected wires (white, black, and ground), throw light away, and then take off the old mounting hardware. There was a surprise junction box already inside of the brick, but it had no way to connect all the new stuff, so I'm glad we went ahead a got a new box.
 
-What was nice about the concrete screws was the instructions on the back. They said the exact size drill bit you would need to predrill as well as the size of the nut driver to drill in the screws themselves. Another bonus is that all of these products are pretty inexpensive so I ran around the store grabbing everything I needed.
-
 Once all the old light stuff was off, I was left with a hole, a black wire, a white wire, and a loose ground wire because it was secured to one of the little brackets holding up the old lamp. This ending up being fine, so don't worry if yours doesn't come out of the wall either.
 
 Next, I put my new junction box against the brick and used a sharpie to mark where the two mounting holes landed. Be sure to drill into the brick itself and NOT the mortar.
 
 Using that 5/32" drill bit in my hammer drill, I drilled into those marked spots and through the brick. You need to pre-drill otherwise you risk cracking the brick- the same as pre-drilling through wood. Also, be sure to pre-drill longer than the length of your screws. Clean out the holes with compressed air or a vacuum. You want it clean so the screws can really dig into the brick itself and not the dust.
 
-Time to mount the junction box. I positioned mine up and down so the screws would land in the middle of those bricks versus being a little too close to the mortar. I attached my new nut driver to my impact driver (you can use a hammer drill for this, but make sure the hammer function is off) and screwed in the top and bottom screws until secure
+What was nice about the concrete screws were the instructions on the back. They said the exact size drill bit you would need to predrill as well as the size of the nut driver to drill in the screws themselves. Another bonus is that all of these products are pretty inexpensive so I ran around the store grabbing everything I needed.
+
+Time to mount the junction box. I positioned mine up and down so the screws would land in the middle of those bricks versus being a little too close to the mortar. I attached my new nut driver to my impact driver (you can use a hammer drill for this, but make sure the hammer function is off) and screwed in the top and bottom screws until secure.
+
+I attached the ground wire onto the ground screw of the junction box and made sure to run the black and white wires through.
+
+Now it was time to attach the mounting plate to the junction box. When you're positioning it, test the fit with the mounting plate cover to make sure it's upright. The arrow and "G" on the cover need to be upright and level.
+
+Here is a gripe. When I went to screw the mounting plate to the junction box, the included junction box screws with the Nest Cam DID NOT FIT. They were too skinny for the holes in the junction box. Thankfully, it came with its own screws that I used to attach the plate to the box.
