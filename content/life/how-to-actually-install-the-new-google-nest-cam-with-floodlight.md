@@ -20,14 +20,15 @@ I'll go over the issues I ran into, the exact supplies I bought, and do my best 
 
  1. [Google Nest Cam with floodlight](https://store.google.com/us/product/nest_cam_floodlight?hl=en-US)
  2. [Hammer Drill](https://www.lowes.com/pd/DEWALT-1-2-in-Corded-Hammer-Drill/3032367) (you have to have this when drilling into brick)
- 3. [Concrete Screws](https://www.lowes.com/pd/Tapcon-8-Pack-1-1-4-in-x-3-16-in-Concrete-Anchors/3044002) (3/16"; 1 1/4" length)
- 4. [Drill bit](https://www.lowes.com/pd/Tapcon-3-1-2-in-Carbide-Masonry-Drill-Bit-for-Hammer-Drill/1260139) (5/32")
- 5. [Nut driver with hex bit ](https://www.lowes.com/pd/DEWALT-1-4-in-x-1-7-8-in-Standard-SAE-Hex-Nut-Driver/999928912)(1/4")
- 6. Compressed air for cleaning dust
- 7. [Junction box](https://www.lowes.com/pd/Sigma-Electric-Round-Weatherproof-Box-White-Metal-Weatherproof-New-Work-Standard-Round-Exterior-Electrical-Box/3152543)
- 8. Outdoor caulk for waterproofing
- 9. Safety glasses
-10. Ear protection
+ 3. [Impact Driver](https://www.lowes.com/pd/DEWALT-XR-20-Volt-Max-1-4-in-Variable-Speed-Brushless-Cordless-Impact-Driver/1000217089)
+ 4. [Concrete Screws](https://www.lowes.com/pd/Tapcon-8-Pack-1-1-4-in-x-3-16-in-Concrete-Anchors/3044002) (3/16"; 1 1/4" length)
+ 5. [Drill bit](https://www.lowes.com/pd/Tapcon-3-1-2-in-Carbide-Masonry-Drill-Bit-for-Hammer-Drill/1260139) (5/32")
+ 6. [Nut driver with hex bit ](https://www.lowes.com/pd/DEWALT-1-4-in-x-1-7-8-in-Standard-SAE-Hex-Nut-Driver/999928912)(1/4")
+ 7. Compressed air for cleaning dust
+ 8. [Junction box](https://www.lowes.com/pd/Sigma-Electric-Round-Weatherproof-Box-White-Metal-Weatherproof-New-Work-Standard-Round-Exterior-Electrical-Box/3152543)
+ 9. Outdoor caulk for waterproofing
+10. Safety glasses
+11. Ear protection
 
 ## How-to:
 
@@ -43,4 +44,6 @@ Once all the old light stuff was off, I was left with a hole, a black wire, a wh
 
 Next, I put my new junction box against the brick and used a sharpie to mark where the two mounting holes landed. Be sure to drill into the brick itself and NOT the mortar.
 
-Using that 5/32" drill bit in my hammer drill, I drilled into those marked spots and through the brick. You need to pre-drill otherwise you risk cracking the brick- the same as pre-drilling through wood. Also, be sure to pre-drill longer than the length of your screws.
+Using that 5/32" drill bit in my hammer drill, I drilled into those marked spots and through the brick. You need to pre-drill otherwise you risk cracking the brick- the same as pre-drilling through wood. Also, be sure to pre-drill longer than the length of your screws. Clean out the holes with compressed air or a vacuum. You want it clean so the screws can really dig into the brick itself and not the dust.
+
+Time to mount the junction box. I positioned mine up and down so the screws would land in the middle of those bricks versus being a little too close to the mortar. I attached my new nut driver to my impact driver (you can use a hammer drill for this, but make sure the hammer function is off) and screwed in the top and bottom screws until secure
