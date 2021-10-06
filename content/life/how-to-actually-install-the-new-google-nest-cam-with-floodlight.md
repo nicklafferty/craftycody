@@ -18,13 +18,13 @@ I'll go over the issues I ran into and do my best to explain how I installed our
 
 ## Supplies:
 
-Google Nest Cam with floodlight  
-Hammer Drill (you have to have this when drilling into brick)  
-Concrete Screws  
-Drill bit  
-Hex bit  
-Compressed air for cleaning dust  
-Junction box  
-Outdoor caulk for waterproofing
+1. Google Nest Cam with floodlight
+2. Hammer Drill (you have to have this when drilling into brick)
+3. Concrete Screws
+4. Drill bit
+5. Hex bit
+6. Compressed air for cleaning dust
+7. Junction box
+8. Outdoor caulk for waterproofing
 
 ## How-to:
