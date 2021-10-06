@@ -14,17 +14,17 @@ My husband has been eyeing this thing for what seemed like months and it was _fi
 
 Spoiler alert: there was one more Lowe's run in my future.
 
-I'll go over the issues I ran into and do my best to explain how I installed our floodlight into a brick wall.
+I'll go over the issues I ran into, the exact supplies I bought, and do my best to explain how I installed our floodlight into a brick wall.
 
 ## Supplies:
 
-1. Google Nest Cam with floodlight
-2. Hammer Drill (you have to have this when drilling into brick)
-3. Concrete Screws
-4. Drill bit
-5. Hex bit
+1. [Google Nest Cam with floodlight](https://store.google.com/us/product/nest_cam_floodlight?hl=en-US)
+2. [Hammer Drill](https://www.lowes.com/pd/DEWALT-1-2-in-Corded-Hammer-Drill/3032367) (you have to have this when drilling into brick)
+3. [Concrete Screws](https://www.lowes.com/pd/Tapcon-8-Pack-1-1-4-in-x-3-16-in-Concrete-Anchors/3044002) (3/16"; 1 1/4" length)
+4. [Drill bit](https://www.lowes.com/pd/Tapcon-3-1-2-in-Carbide-Masonry-Drill-Bit-for-Hammer-Drill/1260139) (5/32")
+5. [Nut driver with hex bit ](https://www.lowes.com/pd/DEWALT-1-4-in-x-1-7-8-in-Standard-SAE-Hex-Nut-Driver/999928912)(1/4")
 6. Compressed air for cleaning dust
-7. Junction box
+7. [Junction box](https://www.lowes.com/pd/Sigma-Electric-Round-Weatherproof-Box-White-Metal-Weatherproof-New-Work-Standard-Round-Exterior-Electrical-Box/3152543)
 8. Outdoor caulk for waterproofing
 
 ## How-to:
