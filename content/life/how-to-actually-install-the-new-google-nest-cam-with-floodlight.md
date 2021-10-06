@@ -42,7 +42,7 @@ Once all the old light stuff was off, I was left with a hole, a black wire, a wh
 
 Next, I put my new junction box against the brick and used a sharpie to mark where the two mounting holes landed. Be sure to drill into the brick itself and NOT the mortar.
 
-Using that 5/32" drill bit in my hammer drill, I drilled into those marked spots and through the brick. You need to pre-drill otherwise you risk cracking the brick- the same as pre-drilling through wood. Also, be sure to pre-drill longer than the length of your screws. Clean out the holes with compressed air or a vacuum. You want it clean so the screws can really dig into the brick itself and not the dust.
+Using that 5/32" drill bit in my hammer drill, I drilled into those marked spots and through the brick. You need to pre-drill otherwise you risk cracking the brick- the same as pre-drilling through wood. Also, be sure to drill the hole longer than the length of your screws. Clean out the holes with compressed air or a vacuum. You want it clean so the screws can really dig into the brick itself and not the dust.
 
 What was nice about the concrete screws were the instructions on the back. They said the exact size drill bit you would need to predrill as well as the size of the nut driver to drill in the screws themselves. Another bonus is that all of these products are pretty inexpensive so I ran around the store grabbing everything I needed.
 
