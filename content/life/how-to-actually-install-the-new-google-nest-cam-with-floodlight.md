@@ -50,6 +50,10 @@ Time to mount the junction box. I positioned mine up and down so the screws woul
 
 I attached the ground wire onto the ground screw of the junction box and made sure to run the black and white wires through.
 
-Now it was time to attach the mounting plate to the junction box. When you're positioning it, test the fit with the mounting plate cover to make sure it's upright. The arrow and "G" on the cover need to be upright and level.
+Now it was time to attach the mounting plate to the junction box. When you're positioning it, test the fit with the mounting plate cover to make sure it's upright. The arrow and "G" on the cover need to be upright and level. Be sure to connect the other end of your ground wire to the mounting plate because that side goes inside the junction box.
 
-Here is a gripe. When I went to screw the mounting plate to the junction box, the included junction box screws with the Nest Cam DID NOT FIT. They were too skinny for the holes in the junction box. Thankfully, it came with its own screws that I used to attach the plate to the box.
+Here is my first gripe with the Nest Cam. When I went to screw the mounting plate to the junction box, the included junction box screws with the Nest Cam DID NOT FIT. They were too skinny for the holes in the junction box. Thankfully, it came with its own screws that I used to attach the plate to the box.
+
+Make sure the plate is level then screw in and tighten your mounting screws. I placed one at the top and bottom. Feed the white and black wires through.
+
+The mounting plate cover goes on next. Remember to make sure the arrow and "G" are upright and snap it onto the mounting plate. There are 4 screws included that secure the cover to the plate. Feed the black and white wires through (last time).
