@@ -38,7 +38,7 @@ When decided we wanted a camera for the front of our house and chose a spot wher
 
 The first step is to turn the power off to the light at the breaker- MAKE SURE YOU DO THIS. Once the power is 100% off, I started to dismantle the old light. Simple enough- take off mounting screws, take off light, clip connected wires (white, black, and ground), throw light away, and then take off the old mounting hardware. There was a surprise junction box already inside of the brick, but it had no way to connect all the new stuff, so I'm glad we went ahead a got a new box.
 
-Once all the old light stuff was off, I was left with a hole, a black wire, a white wire, and a loose ground wire because it was secured to one of the little brackets holding up the old lamp. This ending up being fine, so don't worry if yours doesn't come out of the wall either.
+Once all the old light stuff was off, I was left with a hole, a black wire, a white wire, and a loose ground wire because it was secured to one of the little brackets holding up the old lamp. This ended up being fine, so don't worry if yours doesn't come out of the wall either.
 
 Next, I put my new junction box against the brick and used a sharpie to mark where the two mounting holes landed. Be sure to drill into the brick itself and NOT the mortar.
 
