@@ -1,6 +1,6 @@
 +++
 date = 2021-10-11T05:00:00Z
-description = "Drilling into brick, problems, and DIY fixes to get your new camera up and running."
+description = "Drilling into brick, troublshooting, and DIY fixes to get your new camera up and running."
 image = "/uploads/how-to-install-the-google-nest-cam-with-floodlight.png"
 slug = "how-to-install-google-nest-cam-floodlight"
 tags = ["diy"]
