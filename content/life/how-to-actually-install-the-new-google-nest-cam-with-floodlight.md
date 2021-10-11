@@ -1,7 +1,6 @@
 +++
 date = 2021-10-11T05:00:00Z
 description = "Problems I ran into and DIY fixes."
-draft = true
 image = "/uploads/how-to-install-the-google-nest-cam-with-floodlight.png"
 slug = "how-to-install-google-nest-cam-floodlight"
 tags = ["diy"]
