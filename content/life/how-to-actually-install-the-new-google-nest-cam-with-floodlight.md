@@ -3,7 +3,7 @@ date = ""
 description = "Problems I ran into and DIY fixes."
 draft = true
 image = ""
-slug = ""
+slug = "how-to-install-google-nest-cam-floodlight"
 tags = ["diy"]
 title = "How to install the new Google Nest Cam with Floodlight"
 
