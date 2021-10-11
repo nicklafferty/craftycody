@@ -2,7 +2,7 @@
 date = ""
 description = "Problems I ran into and DIY fixes."
 draft = true
-image = ""
+image = "/uploads/how-to-install-the-google-nest-cam-with-floodlight.png"
 slug = "how-to-install-google-nest-cam-floodlight"
 tags = ["diy"]
 title = "How to install the new Google Nest Cam with Floodlight"
@@ -44,9 +44,15 @@ Next, I put my new junction box against the brick and used a sharpie to mark whe
 
 Using that 5/32" drill bit in my hammer drill, I drilled into those marked spots and through the brick. You need to pre-drill otherwise you risk cracking the brick- the same as pre-drilling through wood. Also, be sure to drill the hole longer than the length of your screws. Clean out the holes with compressed air or a vacuum. You want it clean so the screws can really dig into the brick itself and not the dust.
 
+![](/uploads/tapcon-masonry-drill-bit.jpg)
+
 What was nice about the concrete screws were the instructions on the back. They said the exact size drill bit you would need to predrill as well as the size of the nut driver to drill in the screws themselves. Another bonus is that all of these products are pretty inexpensive so I ran around the store grabbing everything I needed.
 
+![](/uploads/tapcon-concrete-screws.jpg)
+
 Time to mount the junction box. I positioned mine up and down so the screws would land in the middle of those bricks versus being a little too close to the mortar. I attached my new nut driver to my impact driver (you can use a hammer drill for this, but make sure the hammer function is off) and screwed in the top and bottom screws until secure. Don't overtighten, otherwise, you will crack the brick.
+
+![](/uploads/dewalt-nut-driver-hex-bit.jpg)
 
 I attached the ground wire onto the ground screw of the junction box and made sure to run the black and white wires through.
 
@@ -71,3 +77,7 @@ Second gripe. It was time to put in the anti-theft screws, but the included Alle
 All you have to do now is turn the power back on and make sure it works. I'll light up and do that Google chime thing. If it does, you can connect it to your app. If it doesn't, then...I don't know. Good luck, I guess.
 
 AND THAT'S IT.
+
+![](/uploads/close-up-google-nest-cam-floodlight.jpg)
+
+![](/uploads/wide-img-google-nest-cam-outside.jpg)
