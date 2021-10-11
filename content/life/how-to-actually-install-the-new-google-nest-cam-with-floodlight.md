@@ -41,7 +41,7 @@ Once all the old light stuff was off, I was left with a hole, a black wire, a wh
 
 Next, I put my new junction box against the brick and used a sharpie to mark where the two mounting holes landed. Be sure to drill into the brick itself and NOT the mortar.
 
-Using that 5/32" drill bit in my hammer drill, I drilled into those marked spots and through the brick. **You need to pre-drill** otherwise you risk cracking the brick- the same as pre-drilling through wood. Also, be sure to drill the hole longer than the length of your screws. Clean out the holes with compressed air or a vacuum. You want it clean so the screws can really dig into the brick itself and not the dust.
+Using that 5/32" drill bit in my hammer drill, I drilled into those marked spots and through the brick. **You need to pre-drill** otherwise you risk cracking the brick- the same as pre-drilling through wood. Also, be sure to drill the hole longer than the length of your screws. Clean out the holes with compressed air or a vacuum. You want it clean so the screws can really dig into the brick itself and not the dust. Also, be sure to wear ear protection. Hammer drills are very loud.
 
 ![](/uploads/tapcon-masonry-drill-bit.jpg)
 
@@ -59,7 +59,7 @@ Now it was time to attach the mounting plate to the junction box. When you're po
 
 Here is my first gripe with the Nest Cam. When I went to screw the mounting plate to the junction box, the included junction box screws with the Nest Cam DID NOT FIT. They were too skinny for the holes in the junction box. Thankfully, it came with its own screws that I used to attach the plate to the box.
 
-Make sure the plate is level then screw in and tighten your mounting screws. I placed one at the top and bottom. Feed the white and black wires through. Also, be sure to wear ear protection. Hammer drills are very loud.
+Make sure the plate is level then screw in and tighten your mounting screws. I placed one at the top and bottom. Feed the white and black wires through.
 
 The mounting plate cover goes on next. Remember to **make sure the arrow and "G" are upright** and snap it onto the mounting plate (it will make a click sound). There are 4 screws included that secure the cover to the plate. Feed the black and white wires through (last time).
 
