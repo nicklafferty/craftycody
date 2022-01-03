@@ -46,3 +46,7 @@ I glued and clamped the edges together and let them dry for 30 minutes. Waiting 
 When the sides were dry, I hammered in 2 nails per corner. I like the look, but feel free to skip this step if you feel the glue is enough. I figure it makes it more secure and the nails look good in the wood.
 
 Next, I drilled a hole through the bottom and glued it in place.
+
+Do any extra sanding to make it ACAP (as cute as possible) then stain or paint if you'd like. I like the natural color of this wood so I left it.
+
+The last step is to seal with a water sealer because this thing is about to constantly be wet. You could also use it as a decorative pot that a planter goes into if you don't want to drill a hole through the bottom.
