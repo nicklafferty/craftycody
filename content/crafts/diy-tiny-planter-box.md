@@ -14,7 +14,7 @@ I live and die by these words.
 
 And our little plant friends deserve cute, little houses that also go well with our boho or farmhouse decor, right? So right.
 
-Today I made a charming planter box from scrap wood. All you need is a piece of scrap, a saw, ruler, sander, and wood glue.
+Today I made a charming planter box from scrap wood. All you need is a piece of scrap and a few common tools.
 
 ## Supplies:
 
