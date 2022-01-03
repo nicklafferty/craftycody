@@ -44,3 +44,5 @@ With my 5 pieces cut, I got to sanding. Got rid of all the splintery bits and ro
 I glued and clamped the edges together and let them dry for 30 minutes. Waiting for the glue to set was the longest process as I had to do this 2 more times.
 
 When the sides were dry, I hammered in 2 nails per corner. I like the look, but feel free to skip this step if you feel the glue is enough. I figure it makes it more secure and the nails look good in the wood.
+
+Next, I drilled a hole through the bottom and glued it in place.
