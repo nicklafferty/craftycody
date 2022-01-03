@@ -37,3 +37,5 @@ Measure out your piece and divide by 5 (4 sides and the bottom). The fractions I
 I measured with a tape measure then drew my cut lines on with a speed square so that they would be straight. Then, I got to cutting which is the fastest part.
 
 With my 5 pieces cut, I got to sanding. Got rid of all the splintery bits and rounded off the edges that would be the top and bottom. It gives it a cute look but is purely aesthetic.
+
+I glued and clamped the edges together and let them dry for 30 minutes.
