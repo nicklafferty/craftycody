@@ -28,6 +28,8 @@ Today I made a charming planter box from scrap wood. All you need is a piece of 
  8. Hammer
  9. Drill (for drainage hole)
 10. Pencil
+11. Sealer
+12. Stain (optional)
 
 ## Process:
 
