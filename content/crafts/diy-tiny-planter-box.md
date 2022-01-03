@@ -50,3 +50,5 @@ Next, I drilled a hole through the bottom and glued it in place.
 Do any extra sanding to make it ACAP (as cute as possible) then stain or paint if you'd like. I like the natural color of this wood so I left it.
 
 The last step is to seal with a water sealer because this thing is about to constantly be wet. You could also use it as a decorative pot that a planter goes into if you don't want to drill a hole through the bottom.
+
+No matter what route you chose, once everything is dry it's time for the best step- adding a plant! You can make this planter whatever size and shape you would like, just be sure to measure!
