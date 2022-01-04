@@ -20,7 +20,7 @@ Today I made a charming planter box from scrap wood. All you need is a piece of 
 
  1. Scrap wood (I used a \~25in 1x4)
  2. Jigsaw (you could hand saw if needed)
- 3. Ruler and speed square
+ 3. Ruler and [speed square](https://www.google.com/search?q=speed+square&rlz=1C1CHBF_enUS847US847&oq=speed+square&aqs=chrome..69i57j0i512l9.2212j0j7&sourceid=chrome&ie=UTF-8)
  4. Sander (you can sand by hand)
  5. Wood glue
  6. Clamps
