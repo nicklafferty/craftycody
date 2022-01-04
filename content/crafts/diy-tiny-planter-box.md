@@ -2,7 +2,7 @@
 date = ""
 description = "A cute little wood planter box that costs pennies to make"
 draft = true
-image = ""
+image = "/uploads/tiny-wood-planter-box.png"
 slug = "tiny-planter-box"
 tags = ["DIY"]
 title = "DIY: Tiny planter box"
