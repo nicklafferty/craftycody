@@ -55,7 +55,7 @@ I glued and clamped the edges together and let them dry for 30 minutes. Waiting 
 
 ![](/uploads/pxl_20220103_210414110.jpg)
 
-When the sides were dry, I hammered in 2 nails per corner. I like the look, but feel free to skip this step if you feel the glue is enough. I figure it makes it more secure and the nails look good in the wood.
+When the sides were dry, I hammered in 2 nails per corner. I like the look, but feel free to skip this step if you feel the glue is enough. I figure it makes it more secure and the nails look good in the wood. Also, I did not wait the 24 hour cure time for the glue before I put the nails in and I didn't have any issues with the box coming apart.
 
 ![](/uploads/pxl_20220103_214135113.jpg)
 
