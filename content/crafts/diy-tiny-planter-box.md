@@ -24,7 +24,7 @@ Today I made a charming planter box from scrap wood. All you need is a piece of 
  4. Sander (you can sand by hand)
  5. Wood glue
  6. Clamps
- 7. Nails
+ 7. Nails (1.5" construction nails- these are all I have)
  8. Hammer
  9. Drill (for drainage hole)
 10. Pencil
