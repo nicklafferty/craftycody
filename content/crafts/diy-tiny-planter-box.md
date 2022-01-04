@@ -35,13 +35,25 @@ Today I made a charming planter box from scrap wood. All you need is a piece of 
 
 I dug around in my wood box for a small, but not too small, piece of wood and landed on an old 1x4 from a finished project. It was about 25 inches long, but not quite.
 
+![](/uploads/pxl_20220103_194546298.jpg)
+
 Measure out your piece and divide by 5 (4 sides and the bottom). The fractions I was dealing with were nuts, so I cut 4 pieces at 4 1/8" and my last piece was 5 inches long and had to be trimmed down so it wouldn't extend past the planter. You're probably going to want that bottom piece to be a touch longer than the other 4 just to make sure it will span the width of the planter.
+
+![](/uploads/pxl_20220103_194732862.jpg)
 
 I measured with a tape measure then drew my cut lines on with a speed square so that they would be straight. Then, I got to cutting which is the fastest part.
 
+![](/uploads/pxl_20220103_195528366.jpg)
+
 With my 5 pieces cut, I got to sanding. Got rid of all the splintery bits and rounded off the edges that would be the top and bottom. It gives it a cute look but is purely aesthetic.
 
+![](/uploads/pxl_20220103_200720544.jpg)
+
 I glued and clamped the edges together and let them dry for 30 minutes. Waiting for the glue to set was the longest process as I had to do this 2 more times.
+
+![](/uploads/pxl_20220103_202241791.jpg)
+
+![](/uploads/pxl_20220103_210414110.jpg)
 
 When the sides were dry, I hammered in 2 nails per corner. I like the look, but feel free to skip this step if you feel the glue is enough. I figure it makes it more secure and the nails look good in the wood.
 
