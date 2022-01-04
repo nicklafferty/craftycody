@@ -1,5 +1,5 @@
 +++
-date = ""
+date = 2022-01-03T06:00:00Z
 description = "A cute little wood planter box that costs pennies to make"
 draft = true
 image = "/uploads/tiny-wood-planter-box.png"
@@ -18,7 +18,7 @@ Today I made a charming planter box from scrap wood. All you need is a piece of 
 
 ## Supplies:
 
- 1. Scrap wood (I used a \~25-in 1x4)
+ 1. Scrap wood (I used a \~25in 1x4)
  2. Jigsaw (you could hand saw if needed)
  3. Ruler and speed square
  4. Sander (you can sand by hand)
