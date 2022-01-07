@@ -3,7 +3,7 @@ date = 2022-01-03T06:00:00Z
 description = "A cute little wood planter box that costs pennies to make"
 image = "/uploads/tiny-wood-planter-box.png"
 slug = "tiny-planter-box"
-tags = ["DIY"]
+tags = ["DIY", "video"]
 title = "DIY: Tiny planter box"
 
 +++
