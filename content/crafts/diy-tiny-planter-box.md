@@ -7,7 +7,7 @@ tags = ["DIY"]
 title = "DIY: Tiny planter box"
 
 +++
-{{<kmY3YA5M4ck&t>}}
+{{<kmY3YA5M4ck>}}
 
 Pets are the new kids and plants are the new pets.
 
