@@ -26,4 +26,4 @@ Since it's been hanging out for the better part of a year, I thought I could cut
 
 So that's what I did.
 
-I cut around the center as cutting through the stuffing was difficult and got to sewing. I had to hand stitch the whole thing since I don't have a sewing machine. I don't actually really care for sewing, but here we are.
+I cut around the center as cutting through the stuffing was difficult and then got to sewing. I had to hand stitch the whole thing since I don't have a sewing machine. I don't actually really care for sewing, but here we are.
