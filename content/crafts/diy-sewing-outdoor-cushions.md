@@ -26,4 +26,8 @@ Since it's been hanging out for the better part of a year, I thought I could cut
 
 So that's what I did.
 
-I cut around the center as cutting through the stuffing was difficult and then got to sewing. I had to hand stitch the whole thing since I don't have a sewing machine. I don't actually really care for sewing, but here we are.
+I cut around the center as cutting through the stuffing was difficult and then got to sewing. I had to hand stitch the whole thing since I don't have a sewing machine. I don't actually really care for sewing, but here we are. As I went, I made sure to smash the stuffing back in and pinched the two pieces of fabric together so it would hold.
+
+I used whatever the thickest needle was in a variety pack I had and sewing thread I got from Hobby Lobby.
+
+It took me about an hour to finish both cushions which I was surprised about. I assumed it would take me all day. I cannot stress enough how much I don't like to sew.
