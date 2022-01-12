@@ -31,3 +31,5 @@ I cut around the center as cutting through the stuffing was difficult and then g
 I used whatever the thickest needle was in a variety pack I had and sewing thread I got from Hobby Lobby.
 
 It took me about an hour to finish both cushions which I was surprised about. I assumed it would take me all day. I cannot stress enough how much I don't like to sew.
+
+And that's really it. They fit well on the chairs, maybe a little small, but they were free!
