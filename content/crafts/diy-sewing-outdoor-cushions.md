@@ -8,7 +8,7 @@ title = "DIY: Sewing Outdoor Cushions"
 
 +++
 
-{{< youtube id_here_please >}}
+{{< youtube GlyP9T2SWSo >}}
 
 This will be a short post as there isn't much to this DIY.
 
