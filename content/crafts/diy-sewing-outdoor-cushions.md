@@ -3,7 +3,7 @@ date = 2022-01-12T06:00:00Z
 description = "Actually repurposing an old, larger cushion into two smaller ones."
 image = "/uploads/sew-and-refresh-old-outdoor-cushions.png"
 slug = "quick-outdoor-cushions"
-tags = ["DIY"]
+tags = ["DIY", "video"]
 title = "DIY: Sewing Outdoor Cushions"
 
 +++
