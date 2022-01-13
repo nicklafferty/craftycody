@@ -1,13 +1,15 @@
 +++
 date = ""
 description = "Actually repurposing an old, larger cushion into two smaller ones."
-draft = true
 image = "/uploads/sew-and-refresh-old-outdoor-cushions.png"
 slug = "quick-outdoor-cushions"
 tags = ["DIY"]
 title = "DIY: Sewing Outdoor Cushions"
 
 +++
+
+{{< youtube id_here_please >}}
+
 This will be a short post as there isn't much to this DIY.
 
 It's hardly a true DIY, but I figured I'd post about it anyway in case it helps someone out.
@@ -33,3 +35,5 @@ I used whatever the thickest needle was in a variety pack I had and sewing threa
 It took me about an hour to finish both cushions which I was surprised about. I assumed it would take me all day. I cannot stress enough how much I don't like to sew.
 
 And that's really it. They fit well on the chairs, maybe a little small, but they were free!
+
+![](/uploads/outdoor-setup.jpg)
