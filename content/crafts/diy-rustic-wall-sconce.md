@@ -21,7 +21,7 @@ I found some similar ones on Lowe's and Wayfair for around $50-$100, which is an
  3. Miter saw
  4. Drill
  5. Drill bits
- 6. Torx screws (4-in)
+ 6. Torx screws (x4: 4-in)
  7. Clamps
  8. Wood glue
  9. Polyurathane
