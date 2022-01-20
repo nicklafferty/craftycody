@@ -24,14 +24,17 @@ I found some similar ones on Lowe's and Wayfair for around $50-$100, which is an
  6. Torx screws (x4: 4-in)
  7. Clamps
  8. Wood glue
- 9. Polyurathane
-10. Stain
-11. Hangers (the toothy kind)
-12. Ruler
-13. Speed square
-14. Gloves
-15. Eyewear
-16. Earmuffs
-17. Pencil
+ 9. L-brackets (x2)
+10. Polyurathane
+11. Stain (I used 2 colors)
+12. Hangers (the toothy kind)
+13. Ruler
+14. Speed square
+15. Gloves
+16. Eyewear
+17. Earmuffs
+18. Pencil
 
-Process
+## Process
+
+Let me start off by saying I had this grand idea to use dowel pins instead of screws for this project. I quickly found out it's quite difficult to drill perfectly straight down without a drill press. After I had put the whole thing together, I realized it wasn't going to work and rolled with my plan B: wood screws
