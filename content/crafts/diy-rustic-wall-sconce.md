@@ -46,4 +46,6 @@ I decided I wanted my sconce's frame to be 10x14 which meant the opening would b
 
 I measured out two 10" pieces and two 14" pieces and used a speed square to make sure the cut lines were straight. Then I clamped the whole board down to my miter saw and made my cuts. I did the same for the 2x4.
 
-A
+After all the pieces were cut, I gave them a good sanding.
+
+Decide where you'd like your shelf to be and glue then clamp all the pieces together. If you're using L-brackets, wait to attach the bottom 10-inch piece until you've put those on. It will be a tight fit for the drill if that's in your way. Believe me.
