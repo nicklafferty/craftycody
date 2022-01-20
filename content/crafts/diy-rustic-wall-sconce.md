@@ -22,18 +22,19 @@ I found some similar ones on Lowe's and Wayfair for around $50-$100, which is an
  4. Drill
  5. Drill bits
  6. Torx screws (x4: 4-in)
- 7. Clamps
- 8. Wood glue
- 9. L-brackets (x2)
-10. Polyurathane
-11. Stain (I used 2 colors)
-12. Hangers (the toothy kind)
-13. Ruler
-14. Speed square
-15. Gloves
-16. Eyewear
-17. Earmuffs
-18. Pencil
+ 7. Sander
+ 8. Clamps
+ 9. Wood glue
+10. L-brackets (x2)
+11. Polyurathane
+12. Stain (I used 2 colors)
+13. Hangers (the toothy kind)
+14. Ruler
+15. Speed square
+16. Gloves
+17. Eyewear
+18. Earmuffs
+19. Pencil
 
 ## Process
 
@@ -41,4 +42,8 @@ Let me start off by saying I had this grand idea to use dowel pins instead of sc
 
 An important note to keep in mind is the _actual_ dimensions of lumber. Carpentry is all math and those real numbers can really bite you in the bum. My 2x2 was actually about 1.5x1.5 so I did my measurement accordingly.
 
-I decided I wanted my sconce's frame to be 10x14 which meant the opening would be 7x14 since I would be putting the two smaller pieces on top and not losing any of the length.
+I decided I wanted my sconce's frame to be 10x14 which meant the opening would be 7x14 since I would be putting the two smaller pieces on top and not losing any of the length. This means I needed to cut a 7-inch piece off of the 2x4 to fit in the middle of the sconce. With these measurements, you can get two sconces out of an 8ft board.
+
+I measured out two 10" pieces and two 14" pieces and used a speed square to make sure the cut lines were straight. Then I clamped the whole board down to my miter saw and made my cuts. I did the same for the 2x4.
+
+A
