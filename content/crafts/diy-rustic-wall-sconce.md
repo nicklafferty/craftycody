@@ -37,4 +37,4 @@ I found some similar ones on Lowe's and Wayfair for around $50-$100, which is an
 
 ## Process
 
-Let me start off by saying I had this grand idea to use dowel pins instead of screws for this project. I quickly found out it's quite difficult to drill perfectly straight down without a drill press. After I had put the whole thing together, I realized it wasn't going to work and rolled with my plan B: wood screws
+Let me start off by saying I had this grand idea to use dowel pins instead of screws for this project. I quickly found out it's quite difficult to drill perfectly straight down without a drill press. After I had put the whole thing together, I realized it wasn't going to work and rolled with my plan B: wood screws. I was upset because I was excited to do something different, but alas it's all a learning experiment. Using screws did shorten my blog and video though, so that's good for you guys!
