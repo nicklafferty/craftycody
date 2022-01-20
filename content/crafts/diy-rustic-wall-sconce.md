@@ -23,8 +23,15 @@ I found some similar ones on Lowe's and Wayfair for around $50-$100, which is an
  5. Drill bits
  6. Torx screws (4-in)
  7. Clamps
- 8. Polyurathane
- 9. Stain
-10. 
+ 8. Wood glue
+ 9. Polyurathane
+10. Stain
+11. Hangers (the toothy kind)
+12. Ruler
+13. Speed square
+14. Gloves
+15. Eyewear
+16. Earmuffs
+17. Pencil
 
 Process
