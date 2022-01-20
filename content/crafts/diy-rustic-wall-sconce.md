@@ -49,3 +49,11 @@ I measured out two 10" pieces and two 14" pieces and used a speed square to make
 After all the pieces were cut, I gave them a good sanding. I'd also recommend staining your pieces now especially if you're doing different colors.
 
 Decide where you'd like your shelf to be and glue then clamp all the pieces together. If you're using L-brackets, wait to attach the bottom 10-inch piece until you've put those on. It will be a tight fit for the drill if that's in your way. Believe me.
+
+When the glue has set (about 30 minutes), predrill two holes into the top and bottom where the 2x2's meet. You'll want to use a bit that's smaller than your screws, but it's important to not skip this step otherwise you risk cracking the wood.
+
+Now you can drill your screws in. I also decided to go with the L-brackets because I didn't want two screws to be obvious on the sides of the sconce.
+
+Spray a few coats of poly to protect the wood.
+
+The last step is to add the hangers. Those tooth hangers have the TINIEST nails to attach them. Use a pair of needlenose pliers to hold the nail in lieu of your fingers and they'll go in much faster.
