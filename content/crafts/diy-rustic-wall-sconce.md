@@ -38,3 +38,7 @@ I found some similar ones on Lowe's and Wayfair for around $50-$100, which is an
 ## Process
 
 Let me start off by saying I had this grand idea to use dowel pins instead of screws for this project. I quickly found out it's quite difficult to drill perfectly straight down without a drill press. After I had put the whole thing together, I realized it wasn't going to work and rolled with my plan B: wood screws. I was upset because I was excited to do something different, but alas it's all a learning experiment. Using screws did shorten my blog and video though, so that's good for you guys!
+
+An important note to keep in mind is the _actual_ dimensions of lumber. Carpentry is all math and those real numbers can really bite you in the bum. My 2x2 was actually about 1.5x1.5 so I did my measurement accordingly.
+
+I decided I wanted my sconce's frame to be 10x14 which meant the opening would be 7x14 since I would be putting the two smaller pieces on top and not losing any of the length.
