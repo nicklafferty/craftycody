@@ -57,3 +57,5 @@ Now you can drill your screws in. I also decided to go with the L-brackets becau
 Spray a few coats of poly to protect the wood.
 
 The last step is to add the hangers. Those tooth hangers have the TINIEST nails to attach them. Use a pair of needlenose pliers to hold the nail in lieu of your fingers and they'll go in much faster.
+
+Now go hang it up and put a plant on it!
