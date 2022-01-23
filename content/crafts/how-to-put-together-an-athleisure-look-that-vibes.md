@@ -17,3 +17,13 @@ It all started with [Blade Runner 2049](https://www.imdb.com/title/tt1856101/). 
 An off-the-shoulder black top with a black sports bra underneath. So. Cute.
 
 However, I don't look like Ana de Armas so I had to find some items that worked for me. You will too and that's okay. It's all about experimentation and finding what you feel great in.
+
+It took me a minute to figure out what I looked okay in. I, like a lot of women, have body issues and I feel like my weight fluctuates all over the place. Finding what you feel good in is so important, so I took some time to find thoughtful pieces that would work well together and I could mix and match. 
+
+We're going to run through some questions that may help you find your style.
+
+What is athleisure?
+
+What do you like?
+
+What to start with?
