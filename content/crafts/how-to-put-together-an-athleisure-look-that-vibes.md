@@ -22,8 +22,10 @@ It took me a minute to figure out what I looked okay in. I, like a lot of women,
 
 We're going to run through some questions that may help you find your style.
 
-What is athleisure?
+### What is athleisure?
 
-What do you like?
+Athleisure is a portmanteau of athletic and leisurewear. It's an everyday casual look that you can take to the gym, shopping, school, and sometimes even work.
 
-What to start with?
+### What do you like?
+
+### What to start with?
