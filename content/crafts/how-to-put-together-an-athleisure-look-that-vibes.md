@@ -15,3 +15,5 @@ One night, I was hit with inspiration and began to scour [Pinterest](https://www
 It all started with [Blade Runner 2049](https://www.imdb.com/title/tt1856101/). Joi is one of my favorite characters. She's absolutely adorable and if household holograms were a thing, I would want one of her too. One of her outfits is what sparked this whole journey.
 
 An off-the-shoulder black top with a black sports bra underneath. So. Cute.
+
+However, I don't look like Ana de Armas so I had to find some items that worked for me. You will too and that's okay. It's all about experimentation and finding what you feel great in.
