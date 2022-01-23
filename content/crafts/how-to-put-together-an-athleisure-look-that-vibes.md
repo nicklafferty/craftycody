@@ -24,7 +24,9 @@ We're going to run through some questions that may help you find your style.
 
 #### What is athleisure?
 
-Athleisure is a portmanteau of athletic and leisurewear. It's an everyday casual look that you can take to the gym, shopping, school, and sometimes even work.
+Athleisure is a portmanteau of athletic and leisurewear. It's an everyday casual look that you can take to the gym, shopping, school, and sometimes even work. It's also great for traveling.
+
+We've come a long way from the tracksuits of the 80s and sweatpants of the 90s. Today's athleisure is comfortable _and_ stylish making frumpiness a thing of the past. No longer are we bound to jeans and slacks, but instead a form-fitting, practical yoga pant.
 
 #### What do you like?
 
