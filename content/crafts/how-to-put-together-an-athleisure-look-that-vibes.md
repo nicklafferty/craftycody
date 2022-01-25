@@ -92,6 +92,8 @@ My go-to pairs right now are the [Lebron 18 'Los Angeles By Night'](https://www.
 
 This will sound silly, but my dream pair right now are the [Adidas Superstars](https://www.adidas.com/us/superstar-shoes/FV3284.html) in white with black stripes. I think they're classic, simple, and versatile that I would love a pair for every day. They also are fairly affordable brand new and go on sale a lot. They come in about 1000 cute color combinations so you're sure to find something you like. It's a good place to start if you're leary about going as nutty as I did.
 
+### Accessories
+
 ## What brands to buy?
 
 lululemon, amazon, Walmart, target. thrifting
