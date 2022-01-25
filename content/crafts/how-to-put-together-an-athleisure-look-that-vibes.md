@@ -42,6 +42,8 @@ Grab whatever it is and start building out from there. You could even use pictur
 
 ## What are the essentials?
 
+Ideally, we want to grab solid basics that can intermingle with one another so you can layer as needed.
+
 ### Bottoms
 
 yoga pants
