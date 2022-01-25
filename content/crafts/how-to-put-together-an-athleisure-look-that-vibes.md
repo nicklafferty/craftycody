@@ -62,6 +62,8 @@ I got my first pair of bicycle (or yoga) shorts a few weeks ago and I love them.
 
 ### Tops
 
+Extra points for thumb holes on any long-sleeved option. 
+
 There are a lot so let's dive in.
 
 #### Sweaters
@@ -72,7 +74,7 @@ No matter what kind of outfit I put together, I usually like either my top or bo
 
 #### Hoodies
 
-My second favorite.
+My second favorite. Really the same as sweaters, but with a hood and front pocket.
 
 #### Crop tops
 
