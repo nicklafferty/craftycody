@@ -100,6 +100,8 @@ This will sound silly, but my dream pair right now are the [Adidas Superstars](h
 
 ### Accessories
 
+Sunglasses, hoop earrings, and baseball hats.
+
 ## What brands to buy?
 
 lululemon, amazon, Walmart, target. thrifting
