@@ -30,9 +30,11 @@ We've come a long way from the tracksuits of the 80s and sweatpants of the 90s. 
 
 ## How To Get Started
 
-Listen, I'm not a fashion or clothing person and it can be overwhelming to put together a whole look. I have a hard time finding clothes that look good on me or that I even like.
+Listen, I'm not a fashion or clothing person and it can be overwhelming to put together a whole look. I have a hard time finding clothes that look good on me or that I even like. Anything I find on Pinterest won't work for me, I'm obviously not an Instagram model, and honestly? Most people aren't.
 
-So start with one piece of clothing that you really like and build around it.
+So. My advice:
+
+Start with one piece of clothing that you really like and build around it.
 
 ## What are the essentials?
 
