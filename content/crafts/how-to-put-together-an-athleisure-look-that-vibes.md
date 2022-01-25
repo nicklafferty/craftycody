@@ -66,7 +66,11 @@ There are a lot so let's dive in.
 
 #### Sweaters
 
+My favorite. My life goal is maximum coziness and you get there with sweaters, blankets, and coffee.
+
 #### Hoodies
+
+My second favorite.
 
 #### Crop tops
 
