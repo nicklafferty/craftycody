@@ -46,9 +46,9 @@ Ideally, we want to grab solid basics that can intermingle with one another so y
 
 ### Bottoms
 
-At this point, yoga pants should be a given. I remember when women were just starting to wear leggings by themselves and never thought it would catch on. I thought, "They're so see-through!" or "Where are your pants??" I now almost exclusively wear them. Funny how the world works.
+At this point, yoga pants should be a given. I remember when women were just starting to wear leggings by themselves and never thought it would catch on. I thought, "They're so see-through!" or "Where are your pants??" I now almost exclusively wear them. Funny how the world works. I used to only wear the capri style, but now have a few full-length pairs that I love. It's all about variety.
 
-joggers
+Joggers are great if you'd like workout pants with a little extra room. I can typically move better in them and there is a much lower chance of someone being able to see your underwear since you have extra material versus tight yoga pants.
 
 bicycle or yoga shorts
 
