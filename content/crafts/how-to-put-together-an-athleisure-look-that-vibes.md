@@ -67,3 +67,7 @@ cropped sweaters
 full-zip jackets
 
 vests (han solo look)
+
+## What brands to buy?
+
+lululemon, amazon, walmart, target
