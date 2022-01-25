@@ -36,6 +36,10 @@ So. My advice:
 
 Start with one piece of clothing that you really like and build around it.
 
+Do you have some pants that make your butt look awesome? Top that hugs or shows the right curves? A fly pair of shoes?
+
+Grab whatever it is and start building out from there. You could even use pictures of clothes and drag and drop them into outfits in photoshop.
+
 ## What are the essentials?
 
 ### Bottoms
