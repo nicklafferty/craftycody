@@ -36,8 +36,6 @@ I'm not a fashion person so its' hard.
 
 So start with one piece of clothing that you really like and build around it.
 
-### Anchor around one item
-
 ## What are the essentials?
 
 ### Bottoms
