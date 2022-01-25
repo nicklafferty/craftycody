@@ -34,19 +34,23 @@ It can be overwhelming to put together a whole look.
 
 I'm not a fashion person so its' hard.
 
-So start with one piece of clothing that you really like and build around it. 
+So start with one piece of clothing that you really like and build around it.
 
 ### Anchor around one item
 
-## What are the essentials? 
+## What are the essentials?
 
 ### Bottoms
 
 yoga pants
 
+joggers
+
+bicycle or yoga shorts
+
 ### Tops
 
-cozy, soft, 
+cozy, soft,
 
 long sleeves
 
@@ -54,7 +58,7 @@ long sleeves
 
 lebrons, basketball shoes
 
-addidas
+Adidas
 
 ### Sweaters
 
