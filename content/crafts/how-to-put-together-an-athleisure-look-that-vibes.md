@@ -3,8 +3,8 @@ date = ""
 description = "I love athletic wear and I love the 80s, so let's combine them."
 draft = true
 image = ""
-slug = "athleisure-look-vibe"
-tags = []
+slug = "athleisure-look-vibes"
+tags = ["clothing"]
 title = "How to put together an athleisure look that vibes"
 
 +++
