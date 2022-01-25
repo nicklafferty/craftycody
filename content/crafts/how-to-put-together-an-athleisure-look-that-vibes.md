@@ -58,6 +58,10 @@ long sleeves
 
 ### Shoes
 
+Shoes are usually where I start because they're my favorite. I love unusual-looking sneakers with vibrant colors.
+
+My go-to pairs right now are the [Lebron 18 'Los Angeles By Night'](https://www.goat.com/sneakers/lebron-18-db8148-600?utm_source=google_int&utm_medium=google_shopping_int&utm_campaign=14323870519_134709671228&utm_content=540105504230_&utm_term=194497786315&gclid=CjwKCAiA3L6PBhBvEiwAINlJ9HRGkxbSBje_DiSm0Vvn9QpltUMEwYSN23UHOrKNj8BqliOd0mzG3BoCPSkQAvD_BwE), these[ Asics Noosa Tri 13s in Hot Pink/Sour Yuzu](https://www.asics.com/us/en-us/noosa-tri-13/p/ANA_1012B010-700.html?width=Standard), and
+
 lebrons, basketball shoes
 
 Adidas
