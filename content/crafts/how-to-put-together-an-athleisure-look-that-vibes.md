@@ -62,6 +62,8 @@ I got my first pair of bicycle (or yoga) shorts a few weeks ago and I love them.
 
 ### Tops
 
+There are a lot so let's dive in.
+
 #### Sweaters
 
 #### Hoodies
