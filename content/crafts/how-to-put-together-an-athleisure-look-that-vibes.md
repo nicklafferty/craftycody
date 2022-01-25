@@ -62,19 +62,19 @@ I got my first pair of bicycle (or yoga) shorts a few weeks ago and I love them.
 
 ### Tops
 
-Sweaters
+#### Sweaters
 
-Hoodies
+#### Hoodies
 
-Crop tops
+#### Crop tops
 
-Sports Bra
+#### Sports Bra
 
-T-shirts
+#### T-shirts
 
-Jackets
+#### Jackets
 
-Vests
+#### Vests
 
 ### Shoes
 
