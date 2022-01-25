@@ -30,9 +30,7 @@ We've come a long way from the tracksuits of the 80s and sweatpants of the 90s. 
 
 ## How To Get Started
 
-It can be overwhelming to put together a whole look.
-
-I'm not a fashion person so its' hard.
+Listen, I'm not a fashion or clothing person and it can be overwhelming to put together a whole look. I have a hard time finding clothes that look good on me or that I even like.
 
 So start with one piece of clothing that you really like and build around it.
 
