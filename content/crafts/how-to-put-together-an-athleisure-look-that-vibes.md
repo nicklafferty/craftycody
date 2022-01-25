@@ -42,7 +42,7 @@ Grab whatever it is and start building out from there. You could even use pictur
 
 ## What are the essentials?
 
-Ideally, we want to grab solid basics that can intermingle with one another so you can layer as needed. You also want to be able to take everything from summer to winter to back again. This is a lifestyle, people. 
+Ideally, we want to grab solid basics that can intermingle with one another so you can layer as needed. You also want to be able to take everything from summer to winter and back again. This is a lifestyle, people. 
 
 I jest, but it's nice to have options all year.
 
