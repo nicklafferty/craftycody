@@ -46,7 +46,7 @@ Ideally, we want to grab solid basics that can intermingle with one another so y
 
 ### Bottoms
 
-yoga pants
+At this point, yoga pants should be a given. I remember when women were just starting to wear leggings by themselves and never thought it would catch on. I thought, "They're so see-through!" or "Where are your pants??" I now almost exclusively wear them. Funny how the world works.
 
 joggers
 
