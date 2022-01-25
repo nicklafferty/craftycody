@@ -74,4 +74,4 @@ vests (han solo look)
 
 ## What brands to buy?
 
-lululemon, amazon, walmart, target
+lululemon, amazon, Walmart, target. thrifting
