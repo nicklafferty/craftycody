@@ -78,6 +78,10 @@ My second favorite. Really the same as sweaters, but with a hood and front pocke
 
 #### Crop tops
 
+I'm warming up to these as they are getting more and more popular. If you can't beat 'em, join 'em.
+
+Since I'm not a fan of my mid-section, I pair crop tops with high-waisted bottoms when I can. Sometimes I can show off a little ribcage which I don't mind, but can still hide the parts I don't like.
+
 #### Sports Bra
 
 #### T-shirts
