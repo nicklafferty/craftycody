@@ -66,7 +66,9 @@ There are a lot so let's dive in.
 
 #### Sweaters
 
-My favorite. My life goal is maximum coziness and you get there with sweaters, blankets, and coffee.
+My favorite. My life goal is maximum coziness and you get there with sweaters, blankets, and coffee. 
+
+No matter what kind of outfit I put together, I usually like either my top or bottoms to be tight while the other is loose. So wearing an oversized sweater with leggings is right up my alley.
 
 #### Hoodies
 
