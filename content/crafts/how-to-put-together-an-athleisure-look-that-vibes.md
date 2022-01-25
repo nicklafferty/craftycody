@@ -58,7 +58,7 @@ Joggers are great if you'd like workout pants with a little extra room. I can ty
 
 #### Shorts
 
-I got my first pair of bicycle (or yoga) shorts a few weeks ago and I love them. They're black, so they match everything, and fit great. I've always had issues of shorts being too tight in the waist but way too baggy on the leg. They would make my legs look like sticks and it was a disaster. These shorts do a great job of hugging my thighs while being comfortable about my middle.
+I got my first pair of bicycle (or yoga) shorts a few weeks ago and I love them. They're black, so they match everything, and fit great. I've always had issues of shorts being too tight in the waist but way too baggy on the leg. They would make my legs look like sticks and it was a disaster. These shorts do a great job of hugging my thighs while being comfortable around my middle.
 
 ### Tops
 
