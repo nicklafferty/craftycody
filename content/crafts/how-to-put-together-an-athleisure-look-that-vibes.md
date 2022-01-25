@@ -74,7 +74,7 @@ No matter what kind of outfit I put together, I usually like either my top or bo
 
 #### Hoodies
 
-My second favorite. Really the same as sweaters, but with a hood and front pocket.
+My second favorite. Really the same as sweaters, but with a hood and front pocket for convenient storage.
 
 #### Crop tops
 
