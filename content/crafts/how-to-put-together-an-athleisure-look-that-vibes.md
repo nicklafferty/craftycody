@@ -8,7 +8,7 @@ tags = ["clothing"]
 title = "How to put together an athleisure look that vibes"
 
 +++
-This is going to be a little bit different post than my usual craftiness. It may also contain affiliate links from Amazon.
+**_This is going to be a little bit different post than my usual craftiness. It may also contain affiliate links from Amazon. It costs you nothing, but I make a little commission if you buy some cute clothes._**
 
 One night, I was hit with inspiration and began to scour [Pinterest](https://www.pinterest.com/codyscraftcorner) looking for the perfect athleisure look. I wanted leggings, crop tops, sweaters, shrug, sports bras, sneakers..._I wanted it all_.
 
