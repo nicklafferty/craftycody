@@ -94,6 +94,8 @@ I also let them peak out of most of my shirts since I have several with wider co
 
 #### T-shirts
 
+I like fitted t-shirts myself.
+
 #### Jackets
 
 #### Vests
