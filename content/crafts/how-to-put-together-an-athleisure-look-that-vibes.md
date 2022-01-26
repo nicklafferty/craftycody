@@ -100,6 +100,8 @@ Another plus with baggy tees is you can cut them up to make crop tops or really 
 
 #### Jackets
 
+Yay, outerwear! 
+
 #### Vests
 
 ### Shoes
