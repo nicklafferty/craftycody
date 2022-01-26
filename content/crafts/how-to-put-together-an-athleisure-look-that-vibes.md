@@ -124,7 +124,7 @@ This will sound silly, but my dream pair right now are the [Adidas Superstars](h
 
 ### Accessories
 
-Sunglasses, hoop earrings, leg warmers, and baseball hats.
+Sunglasses, hoop earrings, leg warmers, and hats.
 
 ## What brands to buy?
 
