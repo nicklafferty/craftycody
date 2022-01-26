@@ -120,7 +120,7 @@ Shoes are usually where I start because they're my favorite. I love unusual-look
 
 My go-to pairs right now are the [Lebron 18 'Los Angeles By Night'](https://www.goat.com/sneakers/lebron-18-db8148-600?utm_source=google_int&utm_medium=google_shopping_int&utm_campaign=14323870519_134709671228&utm_content=540105504230_&utm_term=194497786315&gclid=CjwKCAiA3L6PBhBvEiwAINlJ9HRGkxbSBje_DiSm0Vvn9QpltUMEwYSN23UHOrKNj8BqliOd0mzG3BoCPSkQAvD_BwE), these[ Asics Noosa Tri 13s in Hot Pink/Sour Yuzu](https://www.asics.com/us/en-us/noosa-tri-13/p/ANA_1012B010-700.html?width=Standard), and the [Puma Sky basketball shoe](https://www.amazon.com/PUMA-Modern-Easter-Basketball-Sneakers/dp/B08HDPMB8X).
 
-This will sound silly, but my dream pair right now are the [Adidas Superstars](https://www.adidas.com/us/superstar-shoes/FV3284.html) in white with black stripes. I think they're classic, simple, and versatile that I would love a pair for every day. They also are fairly affordable brand new and go on sale a lot. They come in about 1000 cute color combinations so you're sure to find something you like. It's a good place to start if you're leary about going as nutty as I did.
+This will sound silly, but my dream pair right now are the [Adidas Superstars](https://www.adidas.com/us/superstar-shoes/FV3284.html) in white with black stripes. I think they're so classic, simple, and versatile that I would love a pair for every day. They also are fairly affordable brand new and go on sale a lot. They come in about 1000 cute color combinations so you're sure to find something you like. It's a good place to start if you're leary about going as nutty as I did.
 
 ### Accessories
 
