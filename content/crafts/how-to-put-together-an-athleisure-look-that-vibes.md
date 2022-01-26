@@ -48,6 +48,8 @@ I jest, but it's nice to have options all year.
 
 ### Bottoms
 
+Elastic waistbands only, please.
+
 #### Yoga Pants
 
 At this point, yoga pants should be a given. I remember when women were just starting to wear leggings by themselves and never thought it would catch on. I thought, "They're so see-through!" or "Where are your pants??" I now almost exclusively wear them. Funny how the world works. I used to only wear the capri style, but now have a few full-length pairs that I love. It's all about variety.
