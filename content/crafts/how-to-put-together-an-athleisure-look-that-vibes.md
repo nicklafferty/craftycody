@@ -138,7 +138,7 @@ Hats are a good accessory for the athleisure look. Baseball caps and beanies wor
 
 Let's be real- athletic clothing is sold just about everywhere. If you're environmentally conscious then I suggest going thrifting and buying secondhand clothes. With how popular the style is, you're sure to find deals at Goodwill, Uptown Cheapskate, or Plato's Closet. Those are the stores around me and I can usually find something I like at a good price.
 
-I don't shop too often at name-brand stores because it's expensive. I get targeted ads for lululemon and Fabletics, neither of which I've tried. We do have a large outlet mall with a lululemon store that I've been meaning to go to. Maybe I'll report back on [Instagram](https://www.instagram.com/codyscraftcorner/) if I go.
+I don't often shop at name-brand stores because it's expensive. I get targeted ads for lululemon and Fabletics, neither of which I've tried. We do have a large outlet mall with a lululemon store that I've been meaning to go to. Maybe I'll report back on [Instagram](https://www.instagram.com/codyscraftcorner/) if I go.
 
 The big box stores I frequent are Target and Walmart. Both have extensive athletic wear departments. Walmart is obviously much more affordable, but Target often has sales online that they will price match in store. I also think Target has cuter clothes overall.
 
