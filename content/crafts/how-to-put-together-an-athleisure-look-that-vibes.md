@@ -58,11 +58,11 @@ This is a [pair I got from Amazon](https://www.amazon.com/gp/product/B07XJNKP19/
 
 #### Joggers
 
-Joggers are great if you'd like workout pants with a little extra room. I can typically move better in them and there is a much lower chance of someone being able to see your underwear since you have extra material versus tight yoga pants.
+[Joggers are great]() if you'd like workout pants with a little extra room. I can typically move better in them and there is a much lower chance of someone being able to see your underwear since you have extra material versus tight yoga pants.
 
 #### Shorts
 
-I got my first pair of bicycle (or yoga) shorts a few weeks ago and I love them. They're black, so they match everything, and fit great. I've always had issues of shorts being too tight in the waist but way too baggy on the leg. They would make my legs look like sticks and it was a disaster. These shorts do a great job of hugging my thighs while being comfortable around my middle.
+I got my first pair of [bicycle (or yoga) shorts]() a few weeks ago and I love them. They're black, so they match everything, and fit great. I've always had issues of shorts being too tight in the waist but way too baggy on the leg. They would make my legs look like sticks and it was a disaster. These shorts do a great job of hugging my thighs while being comfortable around my middle.
 
 ### Tops
 
