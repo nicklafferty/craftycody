@@ -42,7 +42,7 @@ Grab whatever it is and start building out from there. You could even use pictur
 
 ## What are the essentials?
 
-Ideally, we want to grab solid basics that can intermingle with one another so you can layer as needed. You also want to be able to take everything from summer to winter and back again. This is a lifestyle, people. 
+Ideally, we want to grab solid basics that can intermingle with one another so you can layer as needed. You also want to be able to take everything from summer to winter and back again. This is a lifestyle, people.
 
 I jest, but it's nice to have options all year.
 
@@ -62,13 +62,13 @@ I got my first pair of bicycle (or yoga) shorts a few weeks ago and I love them.
 
 ### Tops
 
-Extra points for thumb holes on any long-sleeved option. 
+Extra points for thumb holes on any long-sleeved option.
 
 There are a lot so let's dive in.
 
 #### Sweaters
 
-My favorite. My life goal is maximum coziness and you get there with sweaters, blankets, and coffee. 
+My favorite. My life goal is maximum coziness and you get there with sweaters, blankets, and coffee.
 
 No matter what kind of outfit I put together, I usually like either my top or bottoms to be tight while the other is loose. So wearing an oversized sweater with leggings is right up my alley.
 
@@ -111,3 +111,11 @@ Sunglasses, hoop earrings, and baseball hats.
 ## What brands to buy?
 
 lululemon, amazon, Walmart, target. thrifting
+
+### Table title
+
+| Header | Header | Header |
+| --- | --- | --- |
+| Cell | Cell | Cell |
+| Cell | Cell | Cell |
+| Cell | Cell | Cell |
