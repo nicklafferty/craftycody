@@ -94,7 +94,7 @@ I also let them peak out of most of my shirts since I have several with wider co
 
 #### T-shirts
 
-I like fitted t-shirts myself.
+I like fitted t-shirts but mostly wear baggy ones admittedly. Doing something simple like rolling up the sleeves helps create a more structured look.
 
 #### Jackets
 
