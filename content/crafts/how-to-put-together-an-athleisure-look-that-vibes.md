@@ -112,6 +112,8 @@ Then there are puffy coats for when it's hella cold. Pair with sherpa-lined legg
 
 #### Vests
 
+I have exactly one vest and included the header because where would athleisure be today without the Han Solo look? Grab your white long sleeve, vest, black leggings, and simple trainers and you're good to go to Starbucks.
+
 ### Shoes
 
 Shoes are usually where I start because they're my favorite. I love unusual-looking sneakers with vibrant colors. You can express yourself so fully with an awesome pair of kicks.
