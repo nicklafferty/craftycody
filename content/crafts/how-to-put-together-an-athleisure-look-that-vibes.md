@@ -54,6 +54,8 @@ Elastic waistbands only, please.
 
 At this point, yoga pants should be a given. I remember when women were just starting to wear leggings by themselves and never thought it would catch on. I thought, "They're so see-through!" or "Where are your pants??" I now almost exclusively wear them. Funny how the world works. I used to only wear the capri style, but now have a few full-length pairs that I love. It's all about variety.
 
+This is a [pair I got from Amazon](https://www.amazon.com/gp/product/B07XJNKP19/ref=as_li_qf_asin_il_tl?ie=UTF8&tag=craftycody-20&creative=9325&linkCode=as2&creativeASIN=B07XJNKP19&linkId=0a9f7f29ec91e1925d7093b501f3b931). They look great but are a touch see-through in the butt so be aware. I also have a pair of [Danskin leggings](https://www.danskin.com/collections/leggings) that I got from Costco. I absolutely love them. They are thick and have pockets for your phone.
+
 #### Joggers
 
 Joggers are great if you'd like workout pants with a little extra room. I can typically move better in them and there is a much lower chance of someone being able to see your underwear since you have extra material versus tight yoga pants.
