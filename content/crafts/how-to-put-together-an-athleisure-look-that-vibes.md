@@ -108,6 +108,8 @@ The obvious starting place would be track jackets. What you go running in when i
 
 Windbreakers are in the same family as modern track jackets. They've made they're way back from the 80s/90s and are in the mainstream. Good for a workout look while having a little extra room to move in. I have one with Cheetos branding. Very cute.
 
+Then there are puffy coats for when it's hella cold. Pair with sherpa-lined leggings and ear warmers.
+
 #### Vests
 
 ### Shoes
