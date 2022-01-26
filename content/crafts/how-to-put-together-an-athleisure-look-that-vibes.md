@@ -124,7 +124,11 @@ This will sound silly, but my dream pair right now are the [Adidas Superstars](h
 
 ### Accessories
 
-Sunglasses, hoop earrings, leg warmers, and hats.
+I typically roll with a more muted outfit and use shoes/accessories to add flavor. Time to _really_ express yourself now.
+
+It seems like leg warmers are making a resurgence and I am here for it. I used to buy all kinds of huge socks and leg warmers but felt a little weird wearing them in public. I never got any weird looks (that I noticed anyway), but I never saw anyone else wearing them. UNTIL NOW. Apparently, [TikTok]() is pushing the thigh-high leg warmer agenda and I just bought a pair on Amazon.
+
+Sunglasses, hoop earrings, and hats.
 
 ## What brands to buy?
 
