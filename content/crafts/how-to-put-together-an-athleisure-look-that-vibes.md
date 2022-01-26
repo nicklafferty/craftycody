@@ -96,6 +96,8 @@ I also let them peak out of most of my shirts since I have several with wider co
 
 I like fitted t-shirts but mostly wear baggy ones admittedly. Doing something simple like rolling up the sleeves helps create a more structured look.
 
+Another plus with baggy tees is you can cut them up to make crop tops or really anything. There are tons of tutorials about transforming old t-shirts into something new. Very cost-effective and good for the environment.
+
 #### Jackets
 
 #### Vests
