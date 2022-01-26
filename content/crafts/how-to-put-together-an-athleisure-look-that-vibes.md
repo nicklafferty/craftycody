@@ -106,7 +106,7 @@ Yay, outerwear!
 
 The obvious starting place would be track jackets. What you go running in when it's a little chilly out. They often have matching sports bras and/or leggings to complete an outfit.
 
-Windbreakers are in the same family as modern track jackets.
+Windbreakers are in the same family as modern track jackets. They've made they're way back from the 80s/90s and are in the mainstream. Good for a workout look while having a little extra room to move in. I have one with Cheetos branding. Very cute.
 
 #### Vests
 
