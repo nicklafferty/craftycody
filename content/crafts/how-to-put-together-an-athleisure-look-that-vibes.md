@@ -111,11 +111,3 @@ Sunglasses, hoop earrings, and baseball hats.
 ## What brands to buy?
 
 lululemon, amazon, Walmart, target. thrifting
-
-### Table title
-
-| Header | Header | Header |
-| --- | --- | --- |
-| Cell | Cell | Cell |
-| Cell | Cell | Cell |
-| Cell | Cell | Cell |
