@@ -76,6 +76,8 @@ No matter what kind of outfit I put together, I usually like either my top or bo
 
 My second favorite. Really the same as sweaters, but with a hood and front pocket for convenient storage.
 
+I love slimmer hoodies with large hoods, but they're hard to find. Usually have to look in the men's department because women's hoods always make me look like Kenny from South Park.
+
 #### Crop tops
 
 I'm warming up to these as they are getting more and more popular. If you can't beat 'em, join 'em.
