@@ -24,8 +24,8 @@ We're going to run through some questions that may help you find your style.
 Table of Contents:  
 [What is athleisure?](#what-is-athleisure?)  
 [How to get started](#how-to-get-started)  
-[What are the essentials?](#what-are-the-essentials?)  
-[Where to buy?](#where-to-buy?)  
+[What are the essentials?](#what-are-the-essentials)  
+[Where to buy?](#where-to-buy)  
 [Final thoughts](#final-thoughts)
 
 ## What is athleisure?
