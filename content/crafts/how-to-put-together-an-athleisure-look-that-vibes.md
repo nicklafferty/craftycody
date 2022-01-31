@@ -155,6 +155,10 @@ I'm kind of getting into matching sets. I'm not sure why. Maybe it reminds me of
 
 I have two sets right now and they're both green (big surprise). One is a jacket and shorts set and the other is more loungewear, but I think I could get away with wearing it out. I got them at the Gap and Old Navy respectively.
 
+![](/uploads/set_gapset.jpg)
+
+![](/uploads/set_oldnavylounge.jpg)
+
 What's nice about sets is that the outfit is already made and you can also use them in other outfits as well.
 
 ### Shoes
