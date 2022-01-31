@@ -155,3 +155,5 @@ The big box stores I frequent are Target and Walmart. Both have extensive athlet
 Last, but not least, is Amazon. If you can't find something you like in the real world, chances are it's online at the biggest retailer on the planet. The trouble with buying online is you don't really know what you're getting or if it'll even look good. I stick to highly reviewed items with lots of photos and/or things that come in only one size like leg warmers.
 
 ## Final thoughts
+
+As with anything in life, all the decisions are up to you and what you like. I hope this blog has given you some ideas on where to begin.
