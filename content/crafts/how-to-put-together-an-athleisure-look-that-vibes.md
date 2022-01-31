@@ -2,7 +2,7 @@
 date = ""
 description = "I love athletic wear and I love the 80s, so let's combine them."
 draft = true
-image = ""
+image = "/uploads/athleisure_look.png"
 slug = "athleisure-look-vibes"
 tags = ["clothing"]
 title = "How to put together an athleisure look that vibes"
@@ -108,6 +108,10 @@ I also let them peak out of most of my shirts since I have several with wider co
 I like fitted t-shirts but mostly wear baggy ones admittedly. Doing something simple like rolling up the sleeves helps create a more structured look.
 
 Another plus with baggy tees is you can cut them up to make crop tops or really anything. There are tons of tutorials about transforming old t-shirts into something new. Very cost-effective and good for the environment.
+
+![](/uploads/outfit_croppolaroid.jpg)
+
+Like this look here. That's a medium-sized t-shirt I bought at Five Below. I cut the bottom half off just below the graphic and cut around the collar to make it an off-the-shoulder top.
 
 #### Jackets
 
