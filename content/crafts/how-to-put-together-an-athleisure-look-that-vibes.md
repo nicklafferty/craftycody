@@ -69,7 +69,17 @@ This is a [pair I got from Amazon](https://www.amazon.com/gp/product/B07XJNKP19/
 
 #### Shorts
 
-I got my first pair of [bicycle (or yoga) shorts]() a few weeks ago and I love them. They're black, so they match everything, and fit great. I've always had issues of shorts being too tight in the waist but way too baggy on the leg. They would make my legs look like sticks and it was a disaster. These shorts do a great job of hugging my thighs while being comfortable around my middle.
+I got my first pair of [bicycle (or yoga) shorts]() a few weeks ago and I love them. They're black, so they match everything, and fit great. 
+
+![](/uploads/bikeshorts.jpg)
+
+I've always had issues of shorts being too tight in the waist but way too baggy on the leg. They would make my legs look like sticks and it was a disaster. These shorts do a great job of hugging my thighs while being comfortable around my middle.
+
+There are all kinds of athletic shorts available. When I was in school, 'Soffes' were super popular with girls who played volleyball and as an all-around cute pair of shorts. I found some on sale at Academy recently and had to grab a brand new pair.
+
+![](/uploads/shorts.jpg)
+
+Then there are the incredibly lightweight running shorts. They always feel like they're going to rip, but are pretty durable. They scream gym and definitely contribute towards the look.
 
 ### Tops
 
