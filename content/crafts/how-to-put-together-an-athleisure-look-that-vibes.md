@@ -205,6 +205,8 @@ I don't often shop at name-brand stores because they're expensive. I get targete
 
 The big box stores I frequent are Target and Walmart. Both have extensive athletic wear departments. Walmart is obviously much more affordable, but Target often has sales online that they will price match in store. I also think Target has cuter clothes overall.
 
+![](/uploads/fulloutfit_ath.jpg)
+
 Last, but not least, is Amazon. If you can't find something you like in the real world, chances are it's online at the biggest retailer on the planet. The trouble with buying online is you don't really know what you're getting or if it'll even look good. I stick to highly reviewed items with lots of photos and/or things that come in only one size like leg warmers.
 
 ## Final thoughts
