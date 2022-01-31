@@ -65,7 +65,11 @@ This is a [pair I got from Amazon](https://www.amazon.com/gp/product/B07XJNKP19/
 
 #### Joggers
 
-[Joggers are great]() if you'd like workout pants with a little extra room. I can typically move better in them and there is a much lower chance of someone being able to see your underwear since you have extra material versus tight yoga pants.
+[Joggers are great]() if you'd like workout pants with a little extra room. 
+
+![](/uploads/joggers.jpg)
+
+I can typically move better in them and there is a much lower chance of someone being able to see your underwear since you have extra material versus tight yoga pants.
 
 #### Shorts
 
