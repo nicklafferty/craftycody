@@ -203,7 +203,7 @@ I don't often shop at name-brand stores because they're expensive. I get targete
 
 ![](/uploads/jacket_grpatagonia.jpg)
 
-The big box stores I frequent are Target and Walmart. Both have extensive athletic wear departments. Walmart is obviously much more affordable, but Target often has sales online that they will price match in store. I also think Target has cuter clothes overall.
+The big box stores I frequent are Target and Walmart. Both have extensive athletic wear departments. Walmart is obviously much more affordable, but Target often has sales online that they will price match in store. I also think Target has cuter clothes overall. It also goes without saying that Academy has a ridiculous amount of athletic wear. It can be overpriced sometimes, but they usually have several clearance racks.
 
 ![](/uploads/fulloutfit_ath.jpg)
 
