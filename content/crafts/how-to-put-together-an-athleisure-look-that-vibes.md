@@ -140,7 +140,7 @@ Let's be real- athletic clothing is sold just about everywhere. If you're enviro
 
 Marshall's and Ross.
 
-I don't often shop at name-brand stores because it's expensive. I get targeted ads for lululemon and Fabletics, neither of which I've tried. We do have a large outlet mall with a lululemon store that I've been meaning to go to. Maybe I'll report back on [Instagram](https://www.instagram.com/codyscraftcorner/) if I go.
+I don't often shop at name-brand stores because they're expensive. I get targeted ads for lululemon and Fabletics, neither of which I've tried. We do have a large outlet mall with a lululemon store that I've been meaning to go to. Maybe I'll report back on [Instagram](https://www.instagram.com/codyscraftcorner/) if I go.
 
 The big box stores I frequent are Target and Walmart. Both have extensive athletic wear departments. Walmart is obviously much more affordable, but Target often has sales online that they will price match in store. I also think Target has cuter clothes overall.
 
