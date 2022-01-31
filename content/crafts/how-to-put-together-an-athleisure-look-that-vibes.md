@@ -138,7 +138,7 @@ Hats are a good accessory for the athleisure look. Baseball caps and beanies wor
 
 Let's be real- athletic clothing is sold just about everywhere. If you're environmentally conscious then I suggest going thrifting and buying secondhand clothes. With how popular the style is, you're sure to find deals at Goodwill, Uptown Cheapskate, or Plato's Closet. Those are the stores around me and I can usually find something I like at a good price.
 
-Marshalls and Ross are great secondary options if you don't have a thrift store close by. I've been shopping at Ross for years and have always been able to find good deals on all sorts of things, athletic wear included. Where I live, we have a Marshalls next door to a Ross so it's a fun little shopping trip. I've found better deals at Ross, but have found Marshalls has more name brands.
+Marshalls and Ross are great secondary options if you don't have a thrift store close by. I've been shopping at Ross for years and have always been able to find good deals on all sorts of things, athletic wear included. Where I live, we have a Marshalls next door to a Ross so it's a fun little shopping trip. I've found better deals at Ross, but Marshalls has more name brands albeit at a slightly higher price.
 
 I don't often shop at name-brand stores because they're expensive. I get targeted ads for lululemon and Fabletics, neither of which I've tried. We do have a large outlet mall with a lululemon store that I've been meaning to go to. Maybe I'll report back on [Instagram](https://www.instagram.com/codyscraftcorner/) if I go.
 
