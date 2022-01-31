@@ -131,7 +131,11 @@ Like this look here. That's a medium-sized t-shirt I bought at Five Below. I cut
 
 Yay, outerwear!
 
+![](/uploads/jacket_ylpatagonia.jpg)
+
 The obvious starting place would be track jackets. What you go running in when it's a little chilly out. They often have matching sports bras and/or leggings to complete an outfit.
+
+![](/uploads/jacket_cheetos.jpg)
 
 Windbreakers are in the same family as modern track jackets. They've made their way back from the 80s/90s and are in the mainstream. Good for a workout look while having a little extra room to move in. I have one with Cheetos branding. Very cute.
 
@@ -176,6 +180,8 @@ Marshalls and Ross are great secondary options if you don't have a thrift store 
 I don't often shop at name-brand stores because they're expensive. I get targeted ads for lululemon and Fabletics, neither of which I've tried. We do have a large outlet mall with a lululemon store that I've been meaning to go to. Maybe I'll report back on [Instagram](https://www.instagram.com/codyscraftcorner/) if I go.
 
 [Patagonia]() is an eco-conscious name brand that I can recommend. My husband is a big fan and likes almost everything they have. I have a few pieces myself. I peruse the [Worn Wear]() section to find a good deal.
+
+![](/uploads/jacket_grpatagonia.jpg)
 
 The big box stores I frequent are Target and Walmart. Both have extensive athletic wear departments. Walmart is obviously much more affordable, but Target often has sales online that they will price match in store. I also think Target has cuter clothes overall.
 
