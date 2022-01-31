@@ -22,6 +22,13 @@ It took me a minute to figure out what I looked okay in. I, like a lot of women,
 
 We're going to run through some questions that may help you find your style.
 
+Table of Contents:  
+What is athleisure?  
+How to get started  
+What are the essentials?  
+Where to buy?  
+Final thoughts
+
 ## What is athleisure?
 
 Athleisure is a portmanteau of athletic and leisurewear. It's an everyday casual look that you can take to the gym, shopping, school, and sometimes even work. It's also great for traveling.
@@ -142,7 +149,7 @@ My only advice for [sunglasses](https://www.amazon.com/gp/product/B07CH1FVPQ/ref
 
 Hats are a good accessory for the athleisure look. Baseball caps and beanies work well with the aesthetic. If you're a crocheter like me you can make your own hats to match outfits and to save money.
 
-## What brands to buy?
+## Where to buy?
 
 Let's be real- athletic clothing is sold just about everywhere. If you're environmentally conscious then I suggest going thrifting and buying secondhand clothes. With how popular the style is, you're sure to find deals at Goodwill, Uptown Cheapskate, or Plato's Closet. Those are the stores around me and I can usually find something I like at a good price.
 
