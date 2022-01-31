@@ -157,6 +157,8 @@ Marshalls and Ross are great secondary options if you don't have a thrift store 
 
 I don't often shop at name-brand stores because they're expensive. I get targeted ads for lululemon and Fabletics, neither of which I've tried. We do have a large outlet mall with a lululemon store that I've been meaning to go to. Maybe I'll report back on [Instagram](https://www.instagram.com/codyscraftcorner/) if I go.
 
+[Patagonia]() is an eco-conscious name brand that I can recommend. My husband is a big fan and likes almost everything they have. I have a few pieces myself. I peruse the [Worn Wear]() section to find a good deal.
+
 The big box stores I frequent are Target and Walmart. Both have extensive athletic wear departments. Walmart is obviously much more affordable, but Target often has sales online that they will price match in store. I also think Target has cuter clothes overall.
 
 Last, but not least, is Amazon. If you can't find something you like in the real world, chances are it's online at the biggest retailer on the planet. The trouble with buying online is you don't really know what you're getting or if it'll even look good. I stick to highly reviewed items with lots of photos and/or things that come in only one size like leg warmers.
