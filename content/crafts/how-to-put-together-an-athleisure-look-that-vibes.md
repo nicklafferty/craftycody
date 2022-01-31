@@ -156,4 +156,6 @@ Last, but not least, is Amazon. If you can't find something you like in the real
 
 ## Final thoughts
 
+I love the athleisure look and I hope it stays around for a while. Growing up, I hated wearing jeans and always opted for sweatpants because you could play more easily. Jeans were so constricting! So athleisure was a pretty natural fashion evolution for me.
+
 As with anything in life, all the decisions are up to you and what you like. I hope this blog has given you some ideas on where to begin.
