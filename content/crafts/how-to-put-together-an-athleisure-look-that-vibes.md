@@ -132,7 +132,7 @@ It seems like leg warmers are making a resurgence and I am here for it. I used t
 
 My only advice for [sunglasses](https://www.amazon.com/gp/product/B07CH1FVPQ/ref=as_li_qf_asin_il_tl?ie=UTF8&tag=craftycody-20&creative=9325&linkCode=as2&creativeASIN=B07CH1FVPQ&linkId=c70bf4b44d2c5e11e72a076313096448) is to go crazy.
 
-Hats are a good accessory for the athleisure look. Baseball caps and beanies work well with the aesthetic.
+Hats are a good accessory for the athleisure look. Baseball caps and beanies work well with the aesthetic. If you're a crocheter like me you can make your own hats to match outfits and to save money.
 
 ## What brands to buy?
 
