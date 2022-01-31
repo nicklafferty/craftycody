@@ -23,11 +23,11 @@ It took me a minute to figure out what I looked okay in. I, like a lot of women,
 We're going to run through some questions that may help you find your style.
 
 Table of Contents:  
-What is athleisure?  
-How to get started  
-What are the essentials?  
-Where to buy?  
-Final thoughts
+[What is athleisure?](#what-is-athleisure?)  
+[How to get started](how-to-get-started)  
+[What are the essentials?](what-are-the-essentials?)  
+[Where to buy?](#where-to-buy?)  
+[Final thoughts](#final-thoughts)
 
 ## What is athleisure?
 
