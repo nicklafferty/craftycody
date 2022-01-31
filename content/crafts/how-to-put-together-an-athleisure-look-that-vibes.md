@@ -120,6 +120,10 @@ I have exactly one vest and included the header because where would athleisure b
 
 I'm kind of getting into matching sets. I'm not sure why. Maybe it reminds me of wearing Garanimals as a kid.
 
+I have two sets right now and they're both green (big surprise). One is a jacket and shorts set and the other is more loungewear, but I think I could get away with wearing it out.
+
+What's nice about sets is that the outfit is already made and you can also use them in other outfits as well.
+
 ### Shoes
 
 Shoes are usually where I start because they're my favorite. I love unusual-looking sneakers with vibrant colors. You can express yourself so fully with an awesome pair of kicks.
