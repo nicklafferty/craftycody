@@ -99,6 +99,8 @@ Since I'm not a fan of my mid-section, I pair crop tops with high-waisted bottom
 
 Same as crop tops with even less fabric. I'd say it's hard to get away with just a sports bra if you're not actively in the middle of working out, but you do you fam.
 
+![](/uploads/sports_bras.jpg)
+
 I like sports bras with interesting details such as a ripped fabric design or just some fun colors. Wearing one under a slightly unzipped jacket is a cute look and a sneaky way to forgo a shirt.
 
 I also let them peak out of most of my shirts since I have several with wider collars or are off the shoulder entirely.
