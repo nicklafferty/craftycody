@@ -49,3 +49,5 @@ A lovely little ornament to decorate your coffee bar with. I follow some crafter
 [**Valentine's Day Mug Cozy**](https://yarnandchai.com/valentines-day-mug-cozy/) **by Rebecca Langford**
 
 I could (and should) make a mug cozy for every holiday and mood. I love them and yarn lends itself well to insulating your hands against a hot mug. I love the button detail as those kinds of things really step up crochet projects. I know this one will work up quickly and is great if you have several gifts to give.
+
+And there you have it! Nine easy-to-make patterns that are great for Valentine's Day! Or really any holiday for that matter.
