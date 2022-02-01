@@ -32,4 +32,4 @@ Definitely a unique hat perfect for Valentine's Day. Doesn't use much yarn and i
 
 [**Valentine Cupcake**](https://www.ravelry.com/patterns/library/valentine-cupcake) **by Elisa Sartori**
 
-Where would Valentine's be without dessert? I think food amigurumi are some of the cutest there are and this is no exception.
+Where would Valentine's be without dessert? I think food amigurumi are some of the cutest there are and this is no exception. Combine with her [Valentine envelope pattern](https://www.etsy.com/listing/1152231602/crochet-pattern-valentine-letter?click_key=ec49b716b47b7350d74898742864b6121faecdf5%3A1152231602&click_sum=e6004c53&ref=shop_home_recs_2&crt=1) and you have a great gift set!
