@@ -10,7 +10,7 @@ title = "My 9 Favorite Valentine's Day Crochet Patterns!"
 +++
 I'm going to try and write this up as quickly as I can. We've got exactly 14 days until Valentine's Day and it's officially crunch time. I'm not a fast crocheter so I need about 2 months notice before making anything, but some of you are super quick and can whip up incredible projects in no time.
 
-I've put together a shortlist of some of my favorite, Valentine's Day tangential patterns. I will try to only include ones that work up quickly.
+I've put together a shortlist of some of my favorite, Valentine's Day tangential patterns. I will try to only include ones that work up quickly. Most are free, some are not.
 
 Let me know if you've tried any of these or have your own!
 
