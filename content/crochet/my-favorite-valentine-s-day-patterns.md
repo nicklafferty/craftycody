@@ -17,3 +17,7 @@ Let me know if you've tried any of these or have your own!
 [**La Vie en Rose Earflap Hat**](https://kirstenhollowaydesigns.com/2016/11/la-vie-en-rose-baby-hat-3-6-months.html) **by Kirsten Holloway Designs**
 
 I've made this hat on several occasions. The first one I did a Hufflepuff theme of black and gold. There is also a [matching scarf](https://kirstenhollowaydesigns.com/2017/11/la-vie-en-rose-free-ladies-crochet-scarf-pattern.html)! The soft pink used in this pattern is so romantic, but you could use any color you'd like of course. They work up quickly, but look very intricate and would be a great gift to someone special.
+
+[**Unicorn macaron**](https://paintitcolorful.blogspot.com/2017/08/unicorn-macaron-amigurumi-pattern.html) **by A Little Love Everyday**
+
+This was one of the first amigurumi I made when I got back into crochet a few years ago. The roses on top make this little unicorn extra sweet. She also has a bunch of free amigurumi patterns that look like they'd work up quickly and are SO cute.
