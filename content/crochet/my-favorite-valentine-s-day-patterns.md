@@ -1,11 +1,11 @@
 +++
-date = ""
+date = 2022-02-01T06:00:00Z
 description = "Holidays always seems to sneak up on us, don't they?"
 draft = true
 image = ""
 slug = "fave-valentines-crochet"
 tags = ["crochet", "review"]
-title = "My 9 Favorite Valentine's Day Patterns!"
+title = "My 9 Favorite Valentine's Day Crochet Patterns!"
 
 +++
 I'm going to try and write this up as quickly as I can. We've got exactly 14 days until Valentine's Day and it's officially crunch time. I'm not a fast crocheter so I need about 2 months notice before making anything, but some of you are super quick and can whip up incredible projects in no time.
