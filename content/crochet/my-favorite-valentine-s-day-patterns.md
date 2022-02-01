@@ -28,4 +28,4 @@ Another pattern I tried years ago when getting my hooks back out after a long hi
 
 [**Valentine earflap hat**](https://www.ravelry.com/patterns/library/valentine-earflap-hat) **by Valentine Tsvyrko**
 
-Definitely a unique hat perfect for Valentine's Day.
+Definitely a unique hat perfect for Valentine's Day. Doesn't use much yarn and includes sizes from toddler to adult. You could also pick a non-pink-themed colorway to make it more subdued or go totally crazy with it.
