@@ -2,7 +2,7 @@
 date = 2022-02-01T06:00:00Z
 description = "Holidays always seems to sneak up on us, don't they?"
 draft = true
-image = ""
+image = "/uploads/valentinescrochetpatterns_header.png"
 slug = "fave-valentines-crochet"
 tags = ["crochet", "review"]
 title = "My 9 Favorite Valentine's Day Crochet Patterns!"
