@@ -33,3 +33,7 @@ Definitely a unique hat perfect for Valentine's Day. Doesn't use much yarn and i
 [**Valentine Cupcake**](https://www.ravelry.com/patterns/library/valentine-cupcake) **by Elisa Sartori**
 
 Where would Valentine's be without dessert? I think food amigurumi are some of the cutest there are and this is no exception. Combine with her [Valentine envelope pattern](https://www.etsy.com/listing/1152231602/crochet-pattern-valentine-letter?click_key=ec49b716b47b7350d74898742864b6121faecdf5%3A1152231602&click_sum=e6004c53&ref=shop_home_recs_2&crt=1) and you have a great gift set!
+
+[**Makeup remover pads**](https://www.ravelry.com/patterns/library/make-up-removerpads-puff) **by Sharon de Vaal**
+
+If you're anything like me, you wear your best makeup when going _out_. It doesn't happen often, but when it does you're busting out that smokey eye and falsies. The real problem is when you come home and you realize you're out of makeup wipes. I have a few of these in my bathroom drawer for just such an emergency. I wash them off in the sink wash some dish soap and they're as good as new.
