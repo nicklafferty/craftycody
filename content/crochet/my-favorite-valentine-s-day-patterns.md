@@ -29,3 +29,7 @@ Another pattern I tried years ago when getting my hooks back out after a long hi
 [**Valentine earflap hat**](https://www.ravelry.com/patterns/library/valentine-earflap-hat) **by Valentine Tsvyrko**
 
 Definitely a unique hat perfect for Valentine's Day. Doesn't use much yarn and includes sizes from toddler to adult. You could also pick a non-pink-themed colorway to make it more subdued or go totally crazy with it. She has several unique and stylish hats available in her Ravelry shop as well.
+
+[**Valentine Cupcake**](https://www.ravelry.com/patterns/library/valentine-cupcake) **by Elisa Sartori**
+
+Where would Valentine's be without dessert? I think food amigurumi are some of the cutest there are and this is no exception.
