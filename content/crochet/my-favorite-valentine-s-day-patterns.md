@@ -37,3 +37,7 @@ Where would Valentine's be without dessert? I think food amigurumi are some of t
 [**Makeup remover pads**](https://www.ravelry.com/patterns/library/make-up-removerpads-puff) **by Sharon de Vaal**
 
 If you're anything like me, you wear your best makeup when going _out_. It doesn't happen often, but when it does you're busting out that smokey eye and falsies. The real problem is when you come home and you realize you're out of makeup wipes. I have a few of these in my bathroom drawer for just such an emergency. I wash them off in the sink wash some dish soap and they're as good as new.
+
+[**Valentine's Heart ornament**](https://www.stonegnome.com/2018/02/a-valentines-heart-for-you.html) **by Heidi Eisner**
+
+A lovely little ornament to decorate your coffee bar with. I follow some crafters on Instagram who decorate their Christmas trees for each holiday and this would be a wonderful addition to a Valentines tree.
