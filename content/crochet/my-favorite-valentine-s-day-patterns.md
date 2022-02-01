@@ -41,3 +41,7 @@ If you're anything like me, you wear your best makeup when going _out_. It doesn
 [**Valentine's Heart ornament**](https://www.stonegnome.com/2018/02/a-valentines-heart-for-you.html) **by Heidi Eisner**
 
 A lovely little ornament to decorate your coffee bar with. I follow some crafters on Instagram who decorate their Christmas trees for each holiday and this would be a wonderful addition to a Valentines tree. She also has some helpful guides about learning Tunisian crochet if you're interested.
+
+[Valentine's Day Mug Cozy](https://yarnandchai.com/valentines-day-mug-cozy/) by Rebecca Langford
+
+I could (and should) make a mug cozy for every holiday and mood. I love them and yarn lends itself well to insulating your hands against a hot mug.
