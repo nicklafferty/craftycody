@@ -21,3 +21,11 @@ I've made this hat on several occasions. The first one I did a Hufflepuff theme 
 [**Unicorn macaron**](https://paintitcolorful.blogspot.com/2017/08/unicorn-macaron-amigurumi-pattern.html) **by A Little Love Everyday**
 
 This was one of the first amigurumi I made when I got back into crochet a few years ago. The roses on top make this little unicorn extra sweet. She also has a bunch of free amigurumi patterns that look like they'd work up quickly and are SO cute.
+
+[**Vintage-inspired bracelet**](http://createbellacreate.blogspot.com/2012/01/vintage-inspired-crochet-bracelet.html) **by Bella Feagins**
+
+Another pattern I tried years ago when getting my hooks back out after a long hiatus. I love 1800s antiques and clothing and this fits the bill. It's very dainty and works up super fast. You could make matching cuffs to go with your outfit.
+
+[**Valentine earflap hat**](https://www.ravelry.com/patterns/library/valentine-earflap-hat) **by Valentine Tsvyrko**
+
+Definitely a unique hat perfect for Valentine's Day.
