@@ -21,3 +21,5 @@ Then came high heels. Hoo boy. Now heels I absolutely had a metric ton of. You c
 As I got older, my care for fashion flew by the wayside. I wasn't going out nearly as much and getting together with friends consisted of movies or just hanging out at the house. There was no need for 7-inch stilettos anymore.
 
 When I started moving from house to house with my now-husband, not every pair would make the move so the collection dwindled even more. Moving is a great time to do some spring cleaning, by the way.
+
+Then the pandemic happened and no one did anything anymore.
