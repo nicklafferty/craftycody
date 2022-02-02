@@ -26,4 +26,4 @@ Then the pandemic happened and no one did anything anymore. We all devolved into
 
 Now that it's sort-of-okay-sort-of-not to go out again, I'm rediscovering my style. Spoiler alert: I still really like shoes. However, this time it's turned into sneakers. I love a good pair of kicks. Unfortunately, it's my most expensive love affair to date. Fortunately, I'm a full-grown adult now. Life works in mysterious ways.
 
-I still love unique shoes.
+I still love unique shoes and, apparently, so does everyone else because there are some _wild_ kicks out there.
