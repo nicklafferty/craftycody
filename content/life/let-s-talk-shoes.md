@@ -23,3 +23,5 @@ As I got older, my care for fashion flew by the wayside. I wasn't going out near
 When I started moving from house to house with my now-husband, not every pair would make the move so the collection dwindled even more. Moving is a great time to do some spring cleaning, by the way.
 
 Then the pandemic happened and no one did anything anymore. We all devolved into sweatpants and messy buns.
+
+Now that it's sort-of-okay-sort-of-not to go out again, I'm rediscovering my style. Spoiler alert: I still really like shoes. However, this time it's turned into sneakers. I love a good pair of kicks.
