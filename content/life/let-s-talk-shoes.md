@@ -14,6 +14,6 @@ Okay, but like. Shoes are rad.
 
 I won't say they're my kryptonite. I've never spent money I didn't have on a pair (or anything really). I have, however, always had a fondness for shoes.
 
-For a long time, I loved boots. Fur boots, leather boots, thigh-high boots- you name it. I never had too many, but I had curated a nice collection some of which I still have.
+For a long time, it was boots. Fur boots, leather boots, thigh-high boots- you name it. I never had too many, but I had curated a nice collection some of which I still have.
 
 Then came high heels. Hoo boy. Now heels I absolutely had a metric ton of. You could find them so cheap and there was so much variety. I love unique things and heels were no exception. I wish I had photos at the peak of my collection, but alas.
