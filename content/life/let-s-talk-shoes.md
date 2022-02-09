@@ -8,7 +8,7 @@ tags = []
 title = "Let's talk shoes."
 
 +++
-Listen, I am well aware of the tired, old stereotype that all women love shoes. Oh and well all need huge closets for all our shoes and oops! We keep maxing out our poor husband's credit cards.
+Listen, I am well aware of the tired, old stereotype that all women love shoes. Oh and we all need huge closets for all our shoes and oops! We keep maxing out our poor husband's credit cards.
 
 Okay, but like. Shoes are rad.
 
