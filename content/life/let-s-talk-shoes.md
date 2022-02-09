@@ -4,7 +4,7 @@ description = "To say I like shoes would be an understatement."
 draft = true
 image = ""
 slug = "talking-about-shoes"
-tags = []
+tags = ["clothing"]
 title = "Let's talk shoes."
 
 +++
