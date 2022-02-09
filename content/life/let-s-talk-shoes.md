@@ -24,6 +24,6 @@ When I started moving from house to house with my now-husband, not every pair wo
 
 Then the pandemic happened and no one did anything anymore. We all devolved into sweatpants and messy buns. Which I honestly lived for. Masks were/are a great excuse to not feel like you have to plaster a full-face of makeup on just to run errands.
 
-Now that it's sort-of-okay-sort-of-not to go out again, I'm rediscovering my style. Spoiler alert: I still really like shoes. However, this time it's turned into sneakers. I love a good pair of kicks. Unfortunately, it's my most expensive love affair to date. Fortunately, I'm a full-grown adult now. Life works in mysterious ways.
+Now that it's sort-of-okay-sort-of-not to go out again, I'm rediscovering my style. Spoiler alert: I still really like shoes. However, this time it's turned into sneakers. I love a good pair of kicks. Unfortunately, it's my most expensive love affair to date. Fortunately, I'm a full-grown adult now. Life works in mysterious ways, doesn't it?
 
 I still love unique shoes and, apparently, so does everyone else because there are some _wild_ kicks out there.
