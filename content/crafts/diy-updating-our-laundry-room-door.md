@@ -23,3 +23,5 @@ Anyway, we knew we wanted a simple design and scoured through countless sites tr
 As I've said, I bought a brilliant shade of emerald for the door, but also got a dark green for one of the fronds as well as gold for the other.
 
 I do want to make a note that this gold paint is a nightmare. It sounds dramatic, but it's true. It's incredibly thick, like pancake batter, and it was difficult to peel the stencil off without peeling all the paint off with it. I had to be careful.
+
+When the stencil came in, it also came with a few bonus stencils. There was a border one, a rhino, and a cat. We lost our cat to cancer about a year prior so I thought it would be cute to put the cat stencil on the other side as a little nod to her.
