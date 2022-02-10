@@ -19,3 +19,7 @@ I would paint everything in here some shade of green if I could and this door wa
 The hard part was finding a design we wanted to paint over it. I'm pretty crafty, but I'm not a great painter. I didn't feel like I could freehand some beautiful mural and didn't want it to be too busy either. This led us to start looking into stencils. They're really popular right now and I've seen people use them to refresh all kinds of spaces. One of my favorites is using them on tile versus ripping it all up and laying new stuff.
 
 Anyway, we knew we wanted a simple design and scoured through countless sites trying to find the right one. We finally settled on this [palm frond from Cutting Edge Stencils](https://www.cuttingedgestencils.com/palm-leaf-stencil-tropical-wallpaper-stencils.html). We liked the example picture so much that we decided to do something similar on our door.
+
+As I've said, I bought a brilliant shade of emerald for the door, but also got a dark green for one of the fronds as well as gold for the other.
+
+I do want to make a note that this gold paint is a nightmare. It sounds dramatic, but it's true. It's incredibly thick, like pancake batter, and it was difficult to peel the stencil off without peeling all the paint off with it. I had to be careful.
