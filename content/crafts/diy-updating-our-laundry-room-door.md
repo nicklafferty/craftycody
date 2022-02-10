@@ -28,4 +28,6 @@ Painting the door was simple enough. I taped around the trim and took off the li
 
 I had never worked with stencils before and I was slightly intimidated about the size of this one. I started with the dark green leaf by sliding the stencil into the door gap and taping with painter's tape. Once you start, the paint itself also helps hold the stencil in place. The dark green went on easily and I had no trouble peeling the stencil off when I was done.
 
-Then came the gold frond. I do want to make a note that this gold paint is a nightmare. It sounds dramatic, but it's true. It's incredibly thick, like pancake batter, and it was difficult to peel the stencil off without peeling all the paint off with it. It didn't behave like normal paint so I had to be careful.
+Then came the gold frond. I do want to make a note that this gold paint is a nightmare. It sounds dramatic, but it's true. It's incredibly thick, like pancake batter, and it was difficult to peel the stencil off without peeling all the paint off with it. It didn't behave like normal paint so I had to be careful. I also had to do two coats because it went on fairly see-through.
+
+The real trouble with this stuff came when I was painting in the cat stencil on the back. When I went to peel off the stencil, this gold paint had spot-welded itself to the stencil and everything underneath it so I had this huge chunk of paint just peel right off. I had to redo the emerald and then decided to use dark green for the cat instead. This went much better!
