@@ -20,8 +20,12 @@ The hard part was finding a design we wanted to paint over it. I'm pretty crafty
 
 Anyway, we knew we wanted a simple design and scoured through countless sites trying to find the right one. We finally settled on this [palm frond from Cutting Edge Stencils](https://www.cuttingedgestencils.com/palm-leaf-stencil-tropical-wallpaper-stencils.html). We liked the example picture so much that we decided to do something similar on our door.
 
+When the stencil came in, it also came with a few bonus stencils. There was a border one, a rhino, and a cat. We lost our cat to cancer about a year prior so I thought it would be cute to put the cat stencil on the other side as a little nod to her.
+
 As I've said, I bought a brilliant shade of emerald for the door, but also got a dark green for one of the fronds as well as gold for the other.
 
-I do want to make a note that this gold paint is a nightmare. It sounds dramatic, but it's true. It's incredibly thick, like pancake batter, and it was difficult to peel the stencil off without peeling all the paint off with it. I had to be careful.
+Painting the door was simple enough. I taped around the trim and took off the little latch that all pocket doors have. I spray-painted that black and left it to dry outside. If I remember correctly, the door took about two coats to be covered completely.
 
-When the stencil came in, it also came with a few bonus stencils. There was a border one, a rhino, and a cat. We lost our cat to cancer about a year prior so I thought it would be cute to put the cat stencil on the other side as a little nod to her.
+I had never worked with stencils before and I was slightly intimidated about the size of this one. I started with the dark green leaf by sliding the stencil into the door gap and taping with painter's tape. Once you start, the paint itself also helps hold the stencil in place. The dark green went on easily and I had no trouble peeling the stencil off when I was done.
+
+Then came the gold frond. I do want to make a note that this gold paint is a nightmare. It sounds dramatic, but it's true. It's incredibly thick, like pancake batter, and it was difficult to peel the stencil off without peeling all the paint off with it. I had to be careful.
