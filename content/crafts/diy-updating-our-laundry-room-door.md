@@ -14,7 +14,7 @@ We have a pocket door that leads into the laundry room from the kitchen and, gue
 
 Then he also threw out that we should put a design on it too. I was over the moon, to say the least.
 
-I would paint everything in here some shade of green if I could and this door was no exception. I bought a lovely shade of emerald green from home depot.
+I would paint everything some shade of green if I could and this door was no exception. I bought a lovely shade of emerald green from home depot.
 
 The hard part was finding a design we wanted to paint over it. I'm pretty crafty, but I'm not a great painter. I didn't feel like I could freehand some beautiful mural and didn't want it to be too busy either. This led us to start looking into stencils. They're really popular right now and I've seen people use them to refresh all kinds of spaces. One of my favorites is using them on tile versus ripping it all up and laying new stuff.
 
@@ -28,4 +28,4 @@ Painting the door was simple enough. I taped around the trim and took off the li
 
 I had never worked with stencils before and I was slightly intimidated about the size of this one. I started with the dark green leaf by sliding the stencil into the door gap and taping with painter's tape. Once you start, the paint itself also helps hold the stencil in place. The dark green went on easily and I had no trouble peeling the stencil off when I was done.
 
-Then came the gold frond. I do want to make a note that this gold paint is a nightmare. It sounds dramatic, but it's true. It's incredibly thick, like pancake batter, and it was difficult to peel the stencil off without peeling all the paint off with it. I had to be careful.
+Then came the gold frond. I do want to make a note that this gold paint is a nightmare. It sounds dramatic, but it's true. It's incredibly thick, like pancake batter, and it was difficult to peel the stencil off without peeling all the paint off with it. It didn't behave like normal paint so I had to be careful.
