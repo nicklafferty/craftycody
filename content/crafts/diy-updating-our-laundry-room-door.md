@@ -1,7 +1,6 @@
 +++
 date = 2022-02-11T06:00:00Z
 description = "My first brush using stencils."
-draft = true
 image = "/uploads/laundry-door-refresh.png"
 slug = "update-laundry-door"
 tags = ["diy"]
