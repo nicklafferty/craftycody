@@ -30,7 +30,7 @@ Painting the door was simple enough. I taped around the trim and took off the li
 
 ![](/uploads/doorwithgreenpaint.jpg)
 
-I had never worked with stencils before and I was slightly intimidated about the size of this one. I started with the dark green leaf by sliding the stencil into the door gap and taping with painter's tape. I used a foam brush I had laying around to apply. Once you start, the paint itself also helps hold the stencil in place. The dark green went on easily and I had no trouble peeling the stencil off when I was done.
+I had never worked with stencils before and I was slightly intimidated about the size of this one. I started with the dark green leaf by sliding the stencil into the door gap and taping with painter's tape. I used a foam brush I had laying around to apply. Once you start, the paint itself also helps hold the stencil in place. I've also heard spray adhesive helps, but I was hesitant since the door paint hadn't had time to fully cure (which can take a month or more). The dark green went on easily and I had no trouble peeling the stencil off when I was done.
 
 ![](/uploads/doordarkpalmfrond.jpg)
 
