@@ -28,10 +28,18 @@ As I've said, I bought a brilliant shade of emerald for the door, but also got a
 
 Painting the door was simple enough. I taped around the trim and took off the little latch that all pocket doors have. I spray-painted that black and left it to dry outside. If I remember correctly, the door took about two coats to be covered completely.
 
+![](/uploads/doorwithgreenpaint.jpg)
+
 I had never worked with stencils before and I was slightly intimidated about the size of this one. I started with the dark green leaf by sliding the stencil into the door gap and taping with painter's tape. I used a foam brush I had laying around to apply. Once you start, the paint itself also helps hold the stencil in place. The dark green went on easily and I had no trouble peeling the stencil off when I was done.
+
+![](/uploads/doordarkpalmfrond.jpg)
 
 Then came the gold frond. I do want to make a note that this gold paint is a nightmare. It sounds dramatic, but it's true. It's incredibly thick, like pancake batter, and it was difficult to peel the stencil off without peeling all the paint off with it. It didn't behave like normal paint so I had to be careful. I also had to do two coats because it went on fairly see-through.
 
+![](/uploads/doorcompleted.jpg)
+
 The real trouble with this stuff came when I was painting in the cat stencil on the back. When I went to peel off the stencil, this gold paint had spot-welded itself to the stencil and everything underneath it so I had this huge chunk of paint just peel right off. I had to redo the emerald and then decided to use dark green for the cat instead. This went much better!
+
+![](/uploads/doorbackdoubleimg.png)
 
 When everything was dry, I reattached the latch and it was done! It was a little difficult to get the edges of the door because of the trim, but I covered as much as I could and definitely everything I could see.
