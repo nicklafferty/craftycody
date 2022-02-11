@@ -43,3 +43,5 @@ The real trouble with this stuff came when I was painting in the cat stencil on 
 ![](/uploads/doorbackdoubleimg.png)
 
 When everything was dry, I reattached the latch and it was done! It was a little difficult to get the edges of the door because of the trim, but I covered as much as I could and definitely everything I could see.
+
+I just order another stencil today so get ready to see that DIY soon!
