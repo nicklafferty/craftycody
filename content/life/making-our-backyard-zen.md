@@ -19,3 +19,7 @@ We've been here almost 2 years and I've always known that I wanted to do a Japan
 ## Planning
 
 What's unfortunate about landscape design is the time it takes to get the results you want. Many plants take a _long_ time to grow and your garden can feel empty while you're waiting for it to fill out. I know I felt that way when it came to our front yard, but now that most plants are super bushy and full I can finally start seeing the vision come to life.
+
+Drawing
+
+Start small
