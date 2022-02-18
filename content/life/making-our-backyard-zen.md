@@ -28,7 +28,7 @@ Besides growth time, there are plenty of things to keep in mind when making a la
 
 Soil type also plays a big part in what you can and cannot plant. One thing that's always recommended is getting your soil tested and finding out its pH as well as what kind of chemical makeup you've got going on in there. Some plants can be extremely temperamental when it comes to pH which can lead to making some overly complicated fertilizers.
 
-There are a ton of things to keep in mind when it comes to designing your outdoor space. I'll probably be dedicating an entire blog post to that later. For now, the main thing I wanted to convey what the aesthetic of the space itself. What is the vibe you're going for? As I said earlier, I've been wanting a zen-esque garden to relax in and listen to the rain.
+There are a ton of things to keep in mind when it comes to designing your outdoor space. I'll probably be dedicating an entire blog post to that later. For now, the main thing I wanted to convey was the aesthetic of the space itself. What is the vibe you're going for? As I said earlier, I've been wanting a zen-esque garden to relax in and listen to the rain.
 
 ## Drawing
 
