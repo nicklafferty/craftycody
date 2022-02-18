@@ -46,6 +46,16 @@ I am usually right about it, though.
 
 ## Prepping
 
+Arguably the most time-consuming step in _any_ project. 
+
+I hate prepping. 
+
+I hate roasting a butternut squash just to make soup out of it. I hate taping before painting. I hate digging holes before planting.
+
+It sucks, but you have to do it.
+
+Prepping our space meant ripping out grass so the ground would be level and mitigating the risk of it growing through the rocks.
+
 ## Creating
 
 ## Relaxing
