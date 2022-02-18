@@ -24,10 +24,12 @@ You have to take all those growth times into account. I'm sure we're all guilty 
 
 Besides growth time, there are plenty of things to keep in mind when making a landscape design. Always check a plant's hardiness zone. We're in zone 8 which means we can plant things rated for zone 8 and down (i.e zone 7, 6, 5, etc.). These zones are your cold hardiness ratings. This means if I get a plant that's rated for zone 10, I need to keep it in a pot and bring it inside when it gets too cold or keep it in a greenhouse otherwise it won't make it.
 
-Soil type also plays a big part in what you can and cannot plant. One thing that's always recommended is getting your soil tested and finding out its pH as well as what kind of chemical makeup you've got going on in there. Some plants can be extremely temperamental when it comes to pH which can lead to making some overly complicated fertilizers. 
+Soil type also plays a big part in what you can and cannot plant. One thing that's always recommended is getting your soil tested and finding out its pH as well as what kind of chemical makeup you've got going on in there. Some plants can be extremely temperamental when it comes to pH which can lead to making some overly complicated fertilizers.
 
 Then there's the space itself.
 
 ## Drawing
 
-## Start small
+## Creating
+
+## Relaxing
