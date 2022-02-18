@@ -16,6 +16,8 @@ Our backyard was a total blank slate. As was our [front yard](https://craftycody
 
 We've been here almost 2 years and I've always known that I wanted to do a Japanese-inspired garden back there. Maybe not as elaborate as some of the ones I found on Google, but definitely taking themes from those images and incorporating them into the yard.
 
+This is how we did it.
+
 ## Planning
 
 What's unfortunate about landscape design is the time it takes to get the results you want. Many plants take a _long_ time to grow and your garden can feel empty while you're waiting for it to fill out. I know I felt that way when it came to our front yard, but now that most plants are super bushy and full I can finally start seeing the vision come to life.
