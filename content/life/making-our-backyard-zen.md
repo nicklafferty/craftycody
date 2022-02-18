@@ -16,7 +16,7 @@ Our backyard was a total blank slate. As was our [front yard](https://craftycody
 
 We've been here almost 2 years and I've always known that I wanted to do a Japanese-inspired garden back there. Maybe not as elaborate as some of the ones I found on Google, but definitely taking themes from those images and incorporating them into the yard.
 
-This is how we did it.
+So this is what we did.
 
 ## Planning
 
