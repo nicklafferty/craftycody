@@ -30,6 +30,12 @@ There are a ton of things to keep in mind when it comes to designing your outdoo
 
 ## Drawing
 
+The single best thing you can do is to draw everything out. Is it a pain? Yes. Does it help to have everything to scale? Yes. Can you absolutely drown in math? Yes.
+
+I'm going to let you all in on a secret- I don't draw to scale. If I was a professional, sure I would. But for my own personal projects? No way, no one has time for that.
+
+Drawing a design plan helps to visualize what you want.
+
 ## Creating
 
 ## Relaxing
