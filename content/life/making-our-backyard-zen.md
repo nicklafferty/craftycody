@@ -46,7 +46,7 @@ I am usually right about it, though.
 
 ## Prepping
 
-Arguably the most time-consuming step in _any_ project. 
+Arguably the most time-consuming and least fun step in _any_ project. 
 
 I hate prepping. 
 
