@@ -54,7 +54,7 @@ I hate roasting a butternut squash just to make soup out of it. I hate taping be
 
 It sucks, but you have to do it.
 
-Prepping our space meant ripping out grass so the ground would be level and mitigating the risk of it growing through the rocks.
+Prepping our space meant ripping out grass so the ground would be level and mitigating the risk of it growing through the rocks. This was pretty much the only thing that needed to be done, but it took forever. I'm thankful the weather was so nice.
 
 ## Creating
 
