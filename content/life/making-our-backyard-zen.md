@@ -30,6 +30,8 @@ Soil type also plays a big part in what you can and cannot plant. One thing that
 
 There are a ton of things to consider when it comes to designing your outdoor space. I'll probably be dedicating an entire blog post to that later. For now, the main thing I wanted to convey was the aesthetic of the space itself. What is the vibe you're going for? As I said earlier, I've been wanting a zen-esque garden to relax in and listen to the rain.
 
+Get ideas from all over and create those mood boards. I'm a creative person, yet I'm not good at design, but the internet sure is.
+
 ## Drawing
 
 The single best thing you can do is to draw everything out. Is it a pain? Yes. Does it help to have everything to scale? Yes. Can you absolutely drown in math? Yes.
