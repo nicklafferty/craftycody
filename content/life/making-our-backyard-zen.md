@@ -42,21 +42,23 @@ Regardless, putting it down on paper is step one. You can place plants before di
 
 If you're going to be buying pebbles as we did, then you'll definitely need to be doing some math which is where a drawing also helps. Writing down all your measurements and where they are is a huge help in keeping everything organized.
 
-Drawing a design plan helps to visualize what you want...or help your partner visualize what you want. Sometimes saying. "I promise it'll look good!" won't be enough to convince them. Trust me, I've tried. 
+Drawing a design plan helps to visualize what you want...or help your partner visualize what you want. Sometimes saying. "I promise it'll look good!" won't be enough to convince them. Trust me, I've tried.
 
 I am usually right about it, though.
 
 ## Prepping
 
-Arguably the most time-consuming and least fun step in _any_ project. 
+Arguably the most time-consuming and least fun step in _any_ project.
 
-I hate prepping. 
+I hate prepping.
 
 I hate roasting a butternut squash just to make soup out of it. I hate taping before painting. I hate digging holes before planting.
 
 It sucks, but you have to do it.
 
 Prepping our space meant ripping out grass so the ground would be level and mitigating the risk of it growing through the rocks. This was pretty much the only thing that needed to be done, but it took forever. I'm thankful the weather was so nice.
+
+There are better tools to use, but I had my trusty [hori hori knife](https://www.amazon.com/gp/product/B016BBM6FI/ref=as_li_qf_asin_il_tl?ie=UTF8&tag=craftycody-20&creative=9325&linkCode=as2&creativeASIN=B016BBM6FI&linkId=de6c7cc7aff74190d2313d0c0423c899) to help me rip through roots and grass. If you don't have one, I suggest looking into them because they are great for gardening. They make quick work of weeds or digging a small hole. They also look totally badass.
 
 ## Creating
 
