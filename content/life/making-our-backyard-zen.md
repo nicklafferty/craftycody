@@ -3,7 +3,7 @@ date = ""
 description = "Chipping away at the daunting task of designing our backyard from scratch."
 draft = true
 image = ""
-slug = ""
+slug = "backyard-zen-garden"
 tags = ["diy", "gardening"]
 title = "Creating a zen backyard space"
 
