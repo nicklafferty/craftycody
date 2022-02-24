@@ -19,7 +19,7 @@ I fell in love with this [chinoiserie-style stencil](https://www.cuttingedgesten
 1. Stencil
 2. Paint (I used 'Ivy League' from Valspar)
 3. Foam roller
-4. Spray adhesive
+4. Spray adhesive (recommended, but I don't use it)
 5. Painter's tape
 
 ## Process
