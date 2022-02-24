@@ -4,7 +4,7 @@ description = "Easier than wallpaper? Maybe."
 draft = true
 image = ""
 slug = "stencil-accent-wall"
-tags = ["diy"]
+tags = ["diy", "video"]
 title = "DIY: Stenciling an accent wall in my sunroom"
 
 +++
