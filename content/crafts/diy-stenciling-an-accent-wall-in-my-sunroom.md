@@ -29,3 +29,5 @@ This will be very similar to the pocket door I did except I have to move this on
 My main advice when stenciling would be to make sure you're using a foam roller or foam brush. They absorb a lot of your paint, but they apply it so thinly and that helps mitigate bleeding. I got plenty of it with this particular stencil anyway because of the super-thin dividing lines, but there would have been tons more if I had used a traditional brush or roller.
 
 Since the stencil is so large, I decided to start on the edge of the wall and in the middle versus the top or bottom. I wanted to make sure a full print of the stencil was happening at eye level. It created more work for me, so decide how you want your stencil to repeat in a way that works for you.
+
+Getting the stencil level was easy since I could butt it against the corner of the wall. Then, I smoothed it out with my hands and hung it with painter's tape. It's also recommended you use a light spray adhesive to help attach to the surface you're painting on.
