@@ -26,4 +26,4 @@ I fell in love with this [chinoiserie-style stencil](https://www.cuttingedgesten
 
 This will be very similar to the pocket door I did except I have to move this one around while lining it up for symmetry. A little added difficulty there.
 
-My main advice when stenciling would be to make sure you're using a foam roller or foam brush. They absorb a lot of your paint, but they apply it so thinly and that helps mitigate bleeding. I got plenty of it with this particular stencil anyway because of the super-thin dividing lines, but there would have been tons more if I had used a tradition brush or roller.
+My main advice when stenciling would be to make sure you're using a foam roller or foam brush. They absorb a lot of your paint, but they apply it so thinly and that helps mitigate bleeding. I got plenty of it with this particular stencil anyway because of the super-thin dividing lines, but there would have been tons more if I had used a traditional brush or roller.
