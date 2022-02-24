@@ -14,6 +14,12 @@ Our sunroom is pretty empty and could definitely use some kind of pop. We have o
 
 I fell in love with this [chinoiserie-style stencil](https://www.cuttingedgestencils.com/aviant-chinoiserie-wall-stencil-mural-panel-asian-design.html). I absolutely love this sort of print. I bought the large thinking I would only be doing our bedroom wall, so it's a little big for the sunroom, but I think it'll still turn out nice.
 
-Supplies
+## Supplies
 
-Process
+1. Stencil
+2. Paint (I used 'Ivy League' from Valspar)
+3. Foam roller
+4. Spray adhesive
+5. Painter's tape
+
+## Process
