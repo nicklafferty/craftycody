@@ -33,3 +33,9 @@ Since the stencil is so large, I decided to start on the edge of the wall and in
 Getting the stencil level was easy since I could butt it against the corner of the wall. Then, I smoothed it out with my hands and hung it with painter's tape. It's also recommended you use a light spray adhesive to help attach to the surface you're painting on. Do this. You have to get the kind that allows you to remove it and reattach over and over.
 
 So, full disclosure. My walls are textured and painting an intricate stencil was a huge pain. I didn't realize how difficult it would be. Our walls aren't that heavily textured, but I guess it's enough to wear the stencil won't lay flat and it causes a lot of bleeding. The laundry room door I did before was easy because it's completely smooth.
+
+I didn't take any pictures because it was embarrassing, but my first pass over the stencil was a disaster. None of the details came through. It was just blobs of green paint in vague shapes. I was...upset to say the least. I had to paint over it with our regular wall color which added time to this project.
+
+My second pass went better. I did a couple of techniques in smaller areas and found that the foam roller was still best, but I blotted most of the paint off onto a paper towel. There was a lot less bleeding, but I'm still going to have to go back over the design with my grey paint to bring back some of those details.
+
+After all this experimentation, we decided to only paint one "vine" from top to bottom versus doing the whole wall. I think it would also look way too busy given the size of the stencil. One repeat will still add something to the room as well as create a lot less work for me.
