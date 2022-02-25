@@ -36,6 +36,6 @@ So, full disclosure. My walls are textured and painting an intricate stencil was
 
 I didn't take any pictures because it was embarrassing, but my first pass over the stencil was a disaster. None of the details came through. It was just blobs of green paint in vague shapes. I was...upset to say the least. I had to paint over it with our regular wall color which added time to this project.
 
-My second pass went better. I did a couple of techniques in smaller areas and found that the foam roller was still best, but I blotted most of the paint off onto a paper towel. There was a lot less bleeding, but I'm still going to have to go back over the design with my grey paint to bring back some of those details.
+My second pass went better. I did a couple of techniques in smaller areas and found that the foam roller was still best, but I blotted most of the paint off onto a paper towel. There was a lot less bleeding as a result, but I'm still going to have to go back over the design with my grey paint to bring back some of those details. However, it created a watercolor-type effect that I just love.
 
 After all this experimentation, we decided to only paint one "vine" from top to bottom versus doing the whole wall. I think it would also look way too busy given the size of the stencil. One repeat will still add something to the room as well as create a lot less work for me.
