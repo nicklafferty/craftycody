@@ -62,4 +62,10 @@ There are better tools to use, but I had my trusty [hori hori knife](https://www
 
 ## Creating
 
+Once the grass was (mostly) gone, it was time to start laying landscape fabric. For this project, it was really simple and really quick- just two straight lines of fabric were all we needed.
+
+On top of the rocks I ordered to fill the space, I needed more edging to hold it all in. I bought it at the same place, but since I have a Nissan Cube, I had to make two trips to pick it all up. Needless to say, I made friends with all the guys there. We laid the edging all the way around before the gravel arrived.
+
+Sidenote: I also put a border of regular rocks from the yard all along the underside of the deck. I'm not going to pay an arm and a leg for rocks just to have them get lost under there.
+
 ## Relaxing
