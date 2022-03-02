@@ -72,4 +72,6 @@ After the landscape fabric was down, I poured and tamped down sand piles to lay 
 
 I spread the sand into a square roughly the size of the paver and make another sand square beside it. My pavers ended up being 13in apart. This was fine because they're more for looks than an actual walkway. The pavers in the front yard are 9.25in apart and are easier to walk on, for reference.
 
+Once the pavers were done, I decided to place and plant the yews. These are Japanese yews and will grow fairly big to help with shade and privacy. You can also prune them as much as you'd like to get a cool bonsai effect.
+
 ## Relaxing
