@@ -68,4 +68,6 @@ On top of the rocks I ordered to fill the space, I needed more edging to hold it
 
 Sidenote: I also put a border of regular rocks from the yard all along the underside of the deck. I'm not going to pay an arm and a leg for rocks just to have them get lost under there.
 
+After the landscape fabric was down, I poured and tamped down sand piles to lay pavers onto. I did this about 100 times in the front yard, so I've got a good system and can lay them relatively quick.
+
 ## Relaxing
