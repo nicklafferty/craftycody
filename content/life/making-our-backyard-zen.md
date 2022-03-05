@@ -85,3 +85,5 @@ When all the black gravel was down, I went back and added some fun, decorative r
 I plan on getting a nice pot for my gardenia and setting it back where it is now and I also found that cute elephant at Ross. We don't have really any outdoor decor because I think it can clutter yards quickly, but I do like some non-organic elements like that.
 
 ## Relaxing
+
+We have been hanging out back here quite a bit and are really enjoying it now that it has some identity. We're sitting out here as much as we can before summer (and the mosquitos!) rolls around again.
