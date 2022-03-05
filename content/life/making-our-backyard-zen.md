@@ -74,4 +74,6 @@ I spread the sand into a square roughly the size of the paver and make another s
 
 Once the pavers were done, I decided to place and plant the yews. These are Japanese yews and will grow fairly big to help with shade and privacy. You can also prune them as much as you'd like to get a cool bonsai effect. I gave them enough space to grow while, hopefully, gaining some privacy and shade from them once they're grown. Only time will tell!
 
+Then, it was time for the rocks.
+
 ## Relaxing
