@@ -78,4 +78,6 @@ Then, it was time for the rocks. As I said, we did all this before in [our front
 
 All you need is a wheelbarrow and a transfer shovel. Then it's just scoop, wheel it around, pour, and push it around into place. Do that about 1000 times and you're done.
 
+We ended up adding rocks into the garden bed under our bedroom window because we had so much extra. That turned out to be a nice surprise since the two beds are next to each other.
+
 ## Relaxing
