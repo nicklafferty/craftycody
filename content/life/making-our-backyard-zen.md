@@ -4,7 +4,7 @@ description = "Chipping away at the daunting task of designing our backyard from
 draft = true
 image = ""
 slug = "backyard-zen-garden"
-tags = ["diy", "gardening"]
+tags = ["diy", "gardening", "video"]
 title = "Creating a zen backyard space"
 
 +++
