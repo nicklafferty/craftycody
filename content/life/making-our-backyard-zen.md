@@ -86,4 +86,6 @@ I plan on getting a nice pot for my gardenia and setting it back where it is now
 
 ## Relaxing
 
+The whole space looks SO good! All the plants, furniture, and bistro lights tie in together so well and make this a fun outdoor space. We have enough seating out here for a couple of guests and can even light up a fire in our Solo Stove.
+
 We have been hanging out back here quite a bit and are really enjoying it now that it has some identity. We're sitting out here as much as we can before summer (and the mosquitos!) rolls around again.
