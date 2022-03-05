@@ -82,4 +82,6 @@ We ended up adding rocks into the garden bed under our bedroom window because we
 
 When all the black gravel was down, I went back and added some fun, decorative rocks I have. The first time around, I bought some rainbow river rocks and put them around the front yard, but now thought they'd have more purpose in the back. That and I could actually enjoy them! I tossed them around in a random pattern and added some other large rocks for variation.
 
+I plan on getting a nice pot for my gardenia and setting it back where it is now and I also found that cute elephant at Ross. We don't have really any outdoor decor because I think it can clutter yards quickly, but I do like some non-organic elements like that.
+
 ## Relaxing
