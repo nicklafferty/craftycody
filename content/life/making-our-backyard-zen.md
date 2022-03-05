@@ -74,6 +74,6 @@ I spread the sand into a square roughly the size of the paver and make another s
 
 Once the pavers were done, I decided to place and plant the yews. These are Japanese yews and will grow fairly big to help with shade and privacy. You can also prune them as much as you'd like to get a cool bonsai effect. I gave them enough space to grow while, hopefully, gaining some privacy and shade from them once they're grown. Only time will tell!
 
-Then, it was time for the rocks.
+Then, it was time for the rocks. Like I said, we did all this before in [our front yard](https://craftycody.com/life/front-yard-xeriscape/) and are seasoned pros at moving small rocks. It actually really did help having done this before and we had all the rock in place in about a day and a half, which is amazing. That being said, it's incredibly hard work which is why I wanted to get this project done asap before summer got here.
 
 ## Relaxing
