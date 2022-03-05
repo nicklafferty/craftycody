@@ -80,4 +80,6 @@ All you need is a wheelbarrow and a transfer shovel. Then it's just scoop, wheel
 
 We ended up adding rocks into the garden bed under our bedroom window because we had so much extra. That turned out to be a nice surprise since the two beds are next to each other.
 
+When all the black gravel was down, I went back and added some fun, decorative rocks I have. The first time around, I bought some rainbow river rocks and put them around the front yard, but now thought they'd have more purpose in the back. That and I could actually enjoy them! I tossed them around in a random pattern and added some other large rocks for variation.
+
 ## Relaxing
