@@ -1,13 +1,15 @@
 +++
 date = 2022-03-08T06:00:00Z
 description = "Easier than wallpaper? Debatable."
-draft = true
 image = "/uploads/sunroom-accent-wall-stencil-header.png"
 slug = "stencil-accent-wall"
 tags = ["diy", "video"]
 title = "DIY: Stenciling an accent wall in my sunroom"
 
 +++
+
+{{< youtube Vqdopwapexc >}}
+
 Ever since I added a stencil to our [laundry room door](https://craftycody.com/crafts/update-laundry-door/), I've been wanting to try it on a larger area. I wanted to start in our bedroom and picked out a stencil that I thought would look good. My husband suggested we also add an accent wall in our sunroom, which I thought was a great idea albeit a little surprising.
 
 Sidenote: I didn't plan for these posts to go up right after each other. TBH the laundry room door has been done for months and I just got around to blogging about it.
