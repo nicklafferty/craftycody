@@ -1,8 +1,8 @@
 +++
 date = ""
-description = "Easier than wallpaper? Maybe."
+description = "Easier than wallpaper? Debatable."
 draft = true
-image = ""
+image = "/uploads/sunroom-accent-wall-stencil-header.png"
 slug = "stencil-accent-wall"
 tags = ["diy", "video"]
 title = "DIY: Stenciling an accent wall in my sunroom"
