@@ -42,7 +42,7 @@ My second pass went better. I did a couple of techniques in smaller areas and fo
 
 After all this experimentation, we decided to only paint one "vine" from top to bottom versus doing the whole wall. I think it would also look way too busy given the size of the stencil. One repeat will still add something to the room as well as create a lot less work for me.
 
-I actually enjoyed doing the touch-ups because it felt like I was really painting instead of using a stencil. I also kind of like tedious crafts. Just a little bit. When I finished, the whole thing looked a million times better and didn't take too long in retrospect.
+I actually [enjoyed doing the touch-ups](https://www.tiktok.com/@codyscraftcorner/video/7069249209811193130?is_from_webapp=1&sender_device=pc&web_id6955495918012057093) because it felt like I was really painting instead of using a stencil. I also kind of like tedious crafts. Just a little bit. When I finished, the whole thing looked a million times better and didn't take too long in retrospect.
 
 ![](/uploads/full-wall-with-stencil-complete.jpg)
 
