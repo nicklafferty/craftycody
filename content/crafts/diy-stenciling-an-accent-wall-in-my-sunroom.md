@@ -39,3 +39,5 @@ I didn't take any pictures because it was embarrassing, but my first pass over t
 My second pass went better. I did a couple of techniques in smaller areas and found that the foam roller was still best, but I blotted most of the paint off onto a paper towel. There was a lot less bleeding as a result, but I'm still going to have to go back over the design with my grey paint to bring back some of those details. However, it created a watercolor-type effect that I just love.
 
 After all this experimentation, we decided to only paint one "vine" from top to bottom versus doing the whole wall. I think it would also look way too busy given the size of the stencil. One repeat will still add something to the room as well as create a lot less work for me.
+
+I actually enjoyed doing the touch-ups because it felt like I was really painting instead of using a stencil. I also kind of like tedious crafts. Just a little bit. When I finished, the whole thing looked a million times better and didn't take too long in retrospect.
