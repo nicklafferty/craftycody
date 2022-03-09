@@ -76,6 +76,8 @@ I spread the sand into a square roughly the size of the paver and make another s
 
 Once the pavers were done, I decided to place and plant the yews. These are Japanese yews and will grow fairly big to help with shade and privacy. You can also prune them as much as you'd like to get a cool bonsai effect. I gave them enough space to grow while, hopefully, gaining some privacy and shade from them once they're grown. Only time will tell!
 
+![](/uploads/japanese-yews.jpg)
+
 Then, it was time for the rocks. As I said, we did all this before in [our front yard](https://craftycody.com/life/front-yard-xeriscape/) and are seasoned pros at moving small rocks. It actually really did help having done this before and we had all the rock in place in about a day and a half, which is amazing. That being said, it's incredibly hard work which is why I wanted to get this project done asap before summer got here.
 
 All you need is a wheelbarrow and a transfer shovel. Then, it's just scoop, wheel it around, pour, and push it around into place. Do that about 1000 times and you're done.
@@ -91,3 +93,5 @@ I plan on getting a nice pot for my gardenia and setting it back where it is now
 The whole space looks SO good! All the plants, furniture, and bistro lights tie in together so well and make this a fun outdoor space. We have enough seating out here for a couple of guests and can even light up a fire in our Solo Stove.
 
 We have been hanging out back here quite a bit and are really enjoying it now that it has some identity. We're sitting out here as much as we can before summer (and the mosquitos!) rolls around again.
+
+![](/uploads/backyard-zen-garden-complete.jpg)
