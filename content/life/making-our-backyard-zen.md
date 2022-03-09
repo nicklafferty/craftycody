@@ -78,7 +78,7 @@ Once the pavers were done, I decided to place and plant the yews. These are Japa
 
 Then, it was time for the rocks. As I said, we did all this before in [our front yard](https://craftycody.com/life/front-yard-xeriscape/) and are seasoned pros at moving small rocks. It actually really did help having done this before and we had all the rock in place in about a day and a half, which is amazing. That being said, it's incredibly hard work which is why I wanted to get this project done asap before summer got here.
 
-All you need is a wheelbarrow and a transfer shovel. Then it's just scoop, wheel it around, pour, and push it around into place. Do that about 1000 times and you're done.
+All you need is a wheelbarrow and a transfer shovel. Then, it's just scoop, wheel it around, pour, and push it around into place. Do that about 1000 times and you're done.
 
 We ended up adding rocks into the garden bed under our bedroom window because we had so much extra. That turned out to be a nice surprise since the two beds are next to each other.
 
