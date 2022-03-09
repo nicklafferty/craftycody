@@ -42,6 +42,8 @@ Regardless, putting it down on paper is step one. You can place plants before di
 
 If you're going to be buying pebbles as we did, then you'll definitely need to be doing some math which is where a drawing also helps. Writing down all your measurements and where they are is a huge help in keeping everything organized.
 
+![](/uploads/drawing-plan-backyard-garden.jpg)
+
 Drawing a design plan helps to visualize what you want...or help your partner visualize what you want. Sometimes saying. "I promise it'll look good!" won't be enough to convince them. Trust me, I've tried.
 
 I am usually right about it, though.
