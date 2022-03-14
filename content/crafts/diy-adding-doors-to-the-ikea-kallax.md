@@ -26,4 +26,15 @@ It would create a new look without having to buy a new tv-stand (which are ridic
 
 Supplies
 
+ 1. Wood
+ 2. Miter saw
+ 3. Drill
+ 4. Screws
+ 5. Wood glue
+ 6. Clamps
+ 7. Burlap
+ 8. Stapler
+ 9. Hinges
+10. Cabinet pulls or knobs
+
 Process
