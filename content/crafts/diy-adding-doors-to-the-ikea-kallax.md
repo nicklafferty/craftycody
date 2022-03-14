@@ -22,4 +22,4 @@ However, now it's kind of sad. The cubbies house electronics and wires that I do
 
 So, I figured, why not cover it up by adding doors?
 
-It would create a new look without having to buy a new tv-stand (which are ridiculously over-priced, btw) and give me a little diy project.
+It would create a new look without having to buy a new tv-stand (which are ridiculously over-priced, btw) and give me a little diy project. I haven't built anything in a bit and feel rusty, so I didn't want to take on some over-the-top furniture piece. Four simple doors should be just fine.
