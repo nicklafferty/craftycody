@@ -24,7 +24,7 @@ So, I figured, why not cover it up by adding doors?
 
 It would create a new look without having to buy a new tv-stand (which are ridiculously over-priced, btw) and give me a little diy project. I haven't built anything in a bit and feel rusty, so I didn't want to take on some over-the-top furniture piece. Four simple doors should be just fine.
 
-Supplies
+## Supplies
 
  1. Wood
  2. Miter saw
@@ -37,4 +37,4 @@ Supplies
  9. Hinges
 10. Cabinet pulls or knobs
 
-Process
+## Process
