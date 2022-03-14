@@ -19,3 +19,7 @@ I've moved ours around the house giving them several jobs each. I've landed on a
 The last Kallax we own is another 2x4 that has been our tv-stand for years. We actually found it by the dumpster at our old apartment complex and it was in perfect shape. I guess someone just didn't need it anymore. We grabbed it and brought it home.
 
 However, now it's kind of sad. The cubbies house electronics and wires that I don't like looking at and it looks like a disorganized catch-all.
+
+So, I figured, why not cover it up by adding doors?
+
+It would create a new look without having to buy a new tv-stand (which are ridiculously over-priced, btw) and give me a little diy project.
