@@ -18,4 +18,11 @@ Here's what I did:
 
 ## Supplies
 
+1. Lumber (four 1x6s @ 4ft each)
+2. More lumber (four 4x4s @ 1ft each)
+3. Screws
+4. Drill
+5. Miter saw
+6. Paint to match deck
+
 ## Process
