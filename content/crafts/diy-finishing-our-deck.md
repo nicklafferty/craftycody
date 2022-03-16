@@ -20,10 +20,11 @@ Here's what I did:
 
 1. Lumber (four 1x6s @ 4ft each)
 2. More lumber (four 4x4s @ 1ft each)
-3. Screws
-4. Drill
-5. Miter saw
-6. Ruler and/or speed square
-7. Paint to match deck
+3. Even more lumber (2 pieces of scrap @ 16in each)
+4. Screws
+5. Drill
+6. Miter saw
+7. Ruler and/or speed square
+8. Paint to match deck
 
 ## Process
