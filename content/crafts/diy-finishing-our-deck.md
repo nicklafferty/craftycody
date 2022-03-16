@@ -1,6 +1,6 @@
 +++
 date = ""
-description = "We had this weird gap in our deck so I decided to fill it and make it useable."
+description = "Making a weird gap in our deck into useable space."
 draft = true
 image = ""
 slug = "finishing-our-deck"
