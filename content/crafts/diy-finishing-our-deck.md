@@ -18,9 +18,9 @@ Here's what I did:
 
 ## Supplies
 
-1. Lumber (four 1x6s @ 4ft each)
-2. More lumber (four 4x4s @ 1ft each)
-3. Even more lumber (2 pieces of scrap @ 16in each)
+1. Lumber (four 1x6s @ 4ft each) <-Deck
+2. More lumber (four 4x4s @ 1ft each) <-Legs
+3. Even more lumber (2 pieces of scrap @ 16in each) <-Spines to connect deck pieces
 4. Screws
 5. Drill
 6. Miter saw
