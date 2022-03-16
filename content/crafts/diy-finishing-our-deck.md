@@ -25,6 +25,6 @@ Here's what I did:
 5. Drill
 6. Miter saw
 7. Ruler and/or speed square
-8. Paint to match deck
+8. Paint to match the deck
 
 ## Process
