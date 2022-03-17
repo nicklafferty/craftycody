@@ -21,7 +21,7 @@ Here's what I did:
  1. Lumber (three 1x6s @ 4ft each) <-Deck
  2. More lumber (eight 2x4s @ 1ft each) <-Legs
  3. Even more lumber (2 pieces of scrap @ 16in each) <-Spines to connect deck pieces
- 4. Screws
+ 4. [Deck screws](https://www.lowes.com/pd/Deck-Plus-10-x-3-in-Ceramic-Deck-Screws-40-Count/1001363866) (3in)
  5. Drill
  6. Miter saw
  7. Ruler and/or speed square
@@ -40,3 +40,7 @@ This is a relatively simple project, as most of my DIYs seem to be lately. I fin
 Step one is drawing up a plan with approximate measurements. Sizes will be different for everyone, but the gap I needed to fill was about 4ft by 16inches.
 
 ![](/uploads/notes-plan-for-deck-insert.jpg)
+
+To be honest, the real step one was ripping a huge plant out of the space so I could actually drop an insert in there. Feel free to watch that process in the video.
+
+After my plan was done, it was time to head to Lowe's and get some materials.
