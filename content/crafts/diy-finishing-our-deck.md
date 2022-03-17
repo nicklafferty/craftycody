@@ -24,10 +24,12 @@ Here's what I did:
  4. [Deck screws](https://www.lowes.com/pd/Deck-Plus-10-x-3-in-Ceramic-Deck-Screws-40-Count/1001363866) (3in)
  5. Drill
  6. Miter saw
- 7. Ruler and/or speed square
- 8. Paint to match the deck
- 9. Safety glasses
-10. Earmuffs
+ 7. Wood glue
+ 8. Clamps
+ 9. Ruler and/or speed square
+10. Paint to match the deck
+11. Safety glasses
+12. Earmuffs
 
 ## Process
 
@@ -46,3 +48,5 @@ To be honest, the real step one was ripping a huge plant out of the space so I c
 After my plan was done, it was time to head to Lowe's and get some materials. In this case, it was a lot of wood and I somehow got four 8ft pieces to fit in my car. Who needs a truck? Be sure to use weather-treated lumber as this is going to sit outside forever.
 
 Step two is measuring out all your pieces. All of mine are on the supply list. Originally, I was going to use 4x4s for the legs, but they didn't have the kind I needed so I ended up buying two 4ft 2x4s, cutting them into 1ft pieces, and gluing two pieces together to create four legs. Worked just fine and was cheaper.
+
+Step three is to make all your cuts. A miter saw makes quick work of all this wood and it only took me a few minutes between measuring and cutting. I then glued and clamped my legs together and gave the glue an hour to set.
