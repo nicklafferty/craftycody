@@ -51,10 +51,24 @@ After my plan was done, it was time to head to Lowe's and get some materials. In
 
 **Step two** is measuring out all your pieces. All of mine are on the supply list. Originally, I was going to use 4x4s for the legs, but they didn't have the kind I needed so I ended up buying two 4ft 2x4s, cutting them into 1ft pieces, and gluing two pieces together to create four legs. Worked just fine and was cheaper. When they're dry, you can trim off any excess wood if your measurements weren't 100% perfect. Mine weren't and I had to do this on two legs.
 
+![](/uploads/wood-measured-for-deck.jpg)
+
 **Step three** is to make all your cuts. A miter saw makes quick work of all this wood and it only took me a few minutes between measuring and cutting. I then glued and clamped my legs together and gave the glue an hour to set.
+
+![](/uploads/cut-wood-pieces-for-deck.jpg)
 
 Time to build! **Step four** is putting this thing together. I first laid my two spines down, put my three deck boards on top of them, and used a dowel rod to get the spacing even. Then, I drilled them in using two screws on each side of each board.
 
 Once that was done, I flipped it over and placed my legs on the outside of the spines then drilled into them and into the legs. I used two screws per leg. This was also pretty quick, thank goodness. This whole thing fit together well.
 
+![](/uploads/unpainted-deck-insert.jpg)
+
 **Step five** is painting. Easily the longest step since I wanted to make sure and cover the whole piece then had to wait for it to dry. When we bought the house, the deck was already painted this reddish-brown color that was very 90s. Typically people stain decks, but since it was already painted, and kind of shoddy that I didn't want to take the time to strip it and stain, I decided to paint it a new color. If we ever replace the deck, then we'll stain it.  Or just get Trex decking and never worry about it again.
+
+![](/uploads/painted-deck-insert.jpg)
+
+After several hours, it was ready to be put into place and it fit perfectly...enough! It's level and sturdy so I trust it to hold a potting bench. Which I will also build.
+
+Fun tip, if you make this deck insert a little taller, you could use it as a bench. I sat and stood on it and it didn't wobble or creak.
+
+![](/uploads/finished-and-in-place-deck-insert.jpg)
