@@ -18,8 +18,8 @@ Here's what I did:
 
 ## Supplies
 
- 1. Lumber (four 1x6s @ 4ft each) <-Deck
- 2. More lumber (four 4x4s @ 1ft each) <-Legs
+ 1. Lumber (three 1x6s @ 4ft each) <-Deck
+ 2. More lumber (eight 2x4s @ 1ft each) <-Legs
  3. Even more lumber (2 pieces of scrap @ 16in each) <-Spines to connect deck pieces
  4. Screws
  5. Drill
@@ -27,6 +27,14 @@ Here's what I did:
  7. Ruler and/or speed square
  8. Paint to match the deck
  9. Safety glasses
-10. Ear muffs
+10. Earmuffs
 
 ## Process
+
+Note before we begin: I know I forget to write down safety supplies sometimes, but it's so important to wear the proper gear. Your eyes and ears will thank you.
+
+Alright!
+
+This is a relatively simple project, as most of my DIYs seem to be lately. I finished in an afternoon and the longest steps were waiting for glue and paint to dry.
+
+Step one is drawing up a plan with approximate measurements.
