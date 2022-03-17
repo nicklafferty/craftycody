@@ -37,4 +37,6 @@ Alright!
 
 This is a relatively simple project, as most of my DIYs seem to be lately. I finished in an afternoon and the longest steps were waiting for glue and paint to dry.
 
-Step one is drawing up a plan with approximate measurements.
+Step one is drawing up a plan with approximate measurements. Sizes will be different for everyone, but the gap I needed to fill was about 4ft by 16inches.
+
+![](/uploads/notes-plan-for-deck-insert.jpg)
