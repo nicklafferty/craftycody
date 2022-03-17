@@ -2,7 +2,7 @@
 date = ""
 description = "Making a weird gap in our deck into useable space."
 draft = true
-image = ""
+image = "/uploads/deck-gap-insert-diy-header.png"
 slug = "finishing-our-deck"
 tags = ["diy", "video"]
 title = "DIY: Finishing our deck"
