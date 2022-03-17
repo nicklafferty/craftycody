@@ -55,4 +55,6 @@ After my plan was done, it was time to head to Lowe's and get some materials. In
 
 Time to build! **Step four** is putting this thing together. I first laid my two spines down, put my three deck boards on top of them, and used a dowel rod to get the spacing even. Then, I drilled them in using two screws on each side of each board.
 
-Once that was done, I flipped it over and placed my legs on the outside of the spines then drilled into them and into the legs. I used two screws per leg.
+Once that was done, I flipped it over and placed my legs on the outside of the spines then drilled into them and into the legs. I used two screws per leg. This was also pretty quick, thank goodness. This whole thing fit together well.
+
+**Step five** is painting. Easily the longest step since I wanted to make sure and cover the whole piece then had to wait for it to dry. When we bought the house, the deck was already painted this reddish-brown color that was very 90s. Typically people stain decks, but since it was already painted, and kind of shoddy that I didn't want to take the time to strip it and stain, I decided to paint it a new color. If we ever replace the deck, then we'll stain it.  Or just get Trex decking and never worry about it again.
