@@ -43,4 +43,6 @@ Step one is drawing up a plan with approximate measurements. Sizes will be diffe
 
 To be honest, the real step one was ripping a huge plant out of the space so I could actually drop an insert in there. Feel free to watch that process in the video.
 
-After my plan was done, it was time to head to Lowe's and get some materials. In this case, it was a lot of wood and I somehow got four 8ft pieces to fit in my car. Who needs a truck?
+After my plan was done, it was time to head to Lowe's and get some materials. In this case, it was a lot of wood and I somehow got four 8ft pieces to fit in my car. Who needs a truck? Be sure to use weather-treated lumber as this is going to sit outside forever.
+
+Step two is measuring out all your pieces. All of mine are on the supply list. Originally, I was going to use 4x4s for the legs, but they didn't have the kind I needed so I ended up buying two 4ft 2x4s, cutting them into 1ft pieces, and gluing two pieces together to create four legs. Worked just fine and was cheaper.
