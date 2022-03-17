@@ -43,4 +43,4 @@ Step one is drawing up a plan with approximate measurements. Sizes will be diffe
 
 To be honest, the real step one was ripping a huge plant out of the space so I could actually drop an insert in there. Feel free to watch that process in the video.
 
-After my plan was done, it was time to head to Lowe's and get some materials.
+After my plan was done, it was time to head to Lowe's and get some materials. In this case, it was a lot of wood and I somehow got four 8ft pieces to fit in my car. Who needs a truck?
