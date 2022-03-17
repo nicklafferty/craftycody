@@ -53,9 +53,11 @@ After my plan was done, it was time to head to Lowe's and get some materials. In
 
 ![](/uploads/wood-measured-for-deck.jpg)
 
-**Step three** is to make all your cuts. A miter saw makes quick work of all this wood and it only took me a few minutes between measuring and cutting. I then glued and clamped my legs together and gave the glue an hour to set.
+**Step three** is to make all your cuts. A miter saw makes quick work of the wood and it only took me a few minutes between measuring and cutting. I then glued and clamped my legs together and gave the glue an hour to set.
 
 ![](/uploads/cut-wood-pieces-for-deck.jpg)
+
+![](/uploads/deck-legs-clamped-together.jpg)
 
 Time to build! **Step four** is putting this thing together. I first laid my two spines down, put my three deck boards on top of them, and used a dowel rod to get the spacing even. Then, I drilled them in using two screws on each side of each board.
 
