@@ -26,7 +26,7 @@ Here's what I did:
  6. Miter saw
  7. Wood glue
  8. Clamps
- 9. Ruler and/or speed square
+ 9. Ruler and speed square
 10. Paint to match the deck
 11. Safety glasses
 12. Earmuffs
