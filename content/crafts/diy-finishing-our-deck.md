@@ -1,13 +1,15 @@
 +++
-date = ""
+date = 2022-03-18T05:00:00Z
 description = "Making a weird gap in our deck into useable space."
-draft = true
 image = "/uploads/deck-gap-insert-diy-header.png"
 slug = "finishing-our-deck"
 tags = ["diy", "video"]
 title = "DIY: Finishing our deck"
 
 +++
+
+{{< youtube C-Iz7NFB8vg >}}
+
 It was difficult to title this post and, as I type, I'm sure I'll come up with another iteration. For whatever reason, whoever built our deck left this gap open by the utility room steps. There was a big plant there that I removed and that's really the only reason I can think of leaving the space in the first place. I thought it was dangerous as it would be easy to step right off and into the hole as there weren't any guard rails added. Just another example of new homeowners complaining about what the previous owners did. I'm sure whoever buys our house in the future will complain too.
 
 Anyway, this spot has really been bothering me. The deck is small, and having that large gap is a terrible use of space. I decided I was going to fill it and put a potting bench on top as it would be nice to be right by the door in case I needed anything from the garage as I messed with my plants. It's also right by a hose for easy watering.
@@ -45,7 +47,7 @@ This is a relatively simple project, as most of my DIYs seem to be lately. I fin
 
 To be honest, the real step one was ripping a huge plant out of the space so I could actually drop an insert in there. Feel free to watch that process in the video.
 
-After my plan was done, it was time to head to Lowe's and get some materials. In this case, it was a lot of wood and I somehow got four 8ft pieces to fit in my car. Who needs a truck? 
+After my plan was done, it was time to head to Lowe's and get some materials. In this case, it was a lot of wood and I somehow got four 8ft pieces to fit in my car. Who needs a truck?
 
 **Be sure to use weather-treated lumber as this is going to sit outside forever.** For the spines, I had some scrap wood that I used, but I recommend using 2x4s as they can take the screws and won't split as easily. One of my scraps is a 1x3 and that was a mistake. Also, I didn't use deck boards because I honestly didn't even think about it which is why my boards are a little wider even though they're the "same" size. Using normal 1x6s ended up being half the price so I'm happy it worked out that way.
 
