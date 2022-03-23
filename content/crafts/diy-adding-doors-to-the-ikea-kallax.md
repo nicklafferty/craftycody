@@ -53,8 +53,14 @@ Each door consists of two 24" boards and two 13.5" boards with the smaller ones 
 
 **Step two** is measuring out all of the pieces and cutting. This is usually a quick process and I finished in about 15 minutes.
 
-Once all the pieces were cut, I started gluing the boards together using my corner clamps. Welcome to **step 3**. These are the first time I've used them and, after some trial and error, they work great. So nice that they hold your work at 90-degree angles for you. I'm hoping to be able to use them on lots of projects.
+Once all the pieces were cut, I started gluing the boards together using my corner clamps. Welcome to **step 3**. These are the first time I've used them and, after some trial and error, they work great. So nice that they hold your work at 90-degree angles for you. I'm hoping to be able to use them on lots of projects. I also sanded my pieces a bit to get rid of splinters and rough edges.
 
 When the glue was dry, I hammered in a panel nail at an angle to help secure the two pieces together. Then, you glue the whole door together and repeat until all your doors are built.
 
+Drill your holes for your knobs or pulls now so you can sand them smooth. Make sure they're all even by doing one door then line it up with the next one and drill through. Pick the prettiest side to face outward.
+
 Literally waiting around for glue to dry takes forever as does **step four** which is staining. If you have any gaps in your pieces, now is the time to use some wood filler or sawdust to get rid of them. I used a dark stain to match my kallax.
+
+After I waited about a million hours for the stain to dry, I attached the hinges to the top and bottom of each door as well as the cabinet pulls.
+
+**Step five** is lining up the doors on the kallax and seeing where I needed to drill to attach them. I held the door up and marked where the hinge holes hit then pre-drilled pilot holes so I wouldn't split the cabinet. Then, all that was left was to drill them in place.
