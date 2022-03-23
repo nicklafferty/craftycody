@@ -29,13 +29,15 @@ It would create a new look without having to buy a new tv-stand (which are ridic
  1. Wood
  2. Miter saw
  3. Drill
- 4. Screws
+ 4. Nails (I used 1 5/16" panel nails)
  5. Wood glue
  6. Clamps
- 7. Burlap
- 8. Stapler
- 9. Hinges
-10. Cabinet pulls or knobs
+ 7. Ruler and speed square
+ 8. Burlap
+ 9. Stapler
+10. Hinges
+11. Cabinet pulls or knobs
+12. Safety glasses and earmuffs
 
 ## Process
 
