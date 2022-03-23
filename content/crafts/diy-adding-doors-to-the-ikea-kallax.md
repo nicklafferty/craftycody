@@ -22,22 +22,23 @@ However, now it's kind of sad. The cubbies house electronics and wires that I do
 
 So, I figured, why not cover it up by adding doors?
 
-It would create a new look without having to buy a new tv-stand (which are ridiculously over-priced, btw) and give me a little diy project. I haven't built anything in a bit and feel rusty, so I didn't want to take on some over-the-top furniture piece. Four simple doors should be just fine.
+It would create a new look without having to buy a new tv-stand (which are ridiculously over-priced, btw) and give me a little DIY project. I haven't built anything in a bit and feel rusty, so I didn't want to take on some over-the-top furniture piece. Four simple doors should be just fine.
 
 ## Supplies
 
  1. Wood
  2. Miter saw
  3. Drill
- 4. Nails (I used 1 5/16" panel nails)
- 5. Wood glue
- 6. Clamps
- 7. Ruler and speed square
- 8. Burlap
- 9. Stapler
-10. Hinges
-11. Cabinet pulls or knobs
-12. Safety glasses and earmuffs
+ 4. Sander
+ 5. Nails (I used 1 5/16" panel nails)
+ 6. Wood glue
+ 7. Clamps
+ 8. Ruler and speed square
+ 9. Burlap
+10. Stapler
+11. Hinges
+12. Cabinet pulls or knobs
+13. Safety glasses and earmuffs
 
 ## Process
 
