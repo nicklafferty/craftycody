@@ -51,7 +51,7 @@ KALLAX MEASUREMENTS HERE
 
 Each door consists of two 24" boards and two 13.5" boards with the smaller ones acting as the top and bottom to keep the doors narrow enough to fit across the cabinet.
 
-**Step two** is measuring out all of the pieces and cutting. This is usually a quick process and I finished in about 15 minutes.
+**Step two** is measuring out all of the pieces and cutting. This is usually a quick process and I finished in about 15 minutes. I also spray painted some cabinet pulls I had from an old project versus buying brand new ones. I painted them an antique gold color because I thought it would look nice with the dark wood.
 
 Once all the pieces were cut, I started gluing the boards together using my corner clamps. Welcome to **step 3**. These are the first time I've used them and, after some trial and error, they work great. So nice that they hold your work at 90-degree angles for you. I'm hoping to be able to use them on lots of projects. I also sanded my pieces a bit to get rid of splinters and rough edges.
 
