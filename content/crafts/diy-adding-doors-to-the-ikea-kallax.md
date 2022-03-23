@@ -45,3 +45,7 @@ It would create a new look without having to buy a new tv-stand (which are ridic
 Step one, as always, is to draw out a plan. I've been toying with this idea for a while and finally decided to just do it.
 
 They're a relatively simple design. Four cut 1x3s make up the frame and the middle will be covered with burlap to add a boho/mid-century look.
+
+KALLAX MEASUREMENTS HERE
+
+Each door consists of two 24" boards and two 13.5" boards with the smaller ones acting as the top and bottom to keep the doors narrow enough to fit across the cabinet,
