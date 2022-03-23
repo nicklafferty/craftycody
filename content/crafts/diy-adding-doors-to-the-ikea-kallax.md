@@ -26,7 +26,7 @@ It would create a new look without having to buy a new tv-stand (which are ridic
 
 ## Supplies
 
- 1. Wood
+ 1. Wood (1x3s)
  2. Miter saw
  3. Drill
  4. Sander
@@ -43,3 +43,5 @@ It would create a new look without having to buy a new tv-stand (which are ridic
 ## Process
 
 Step one, as always, is to draw out a plan. I've been toying with this idea for a while and finally decided to just do it.
+
+They're a relatively simple design. Four cut 1x3s make up the frame and the middle will be covered with burlap to add a boho/mid-century look.
