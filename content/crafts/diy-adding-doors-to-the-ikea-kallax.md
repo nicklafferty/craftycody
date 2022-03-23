@@ -37,8 +37,9 @@ It would create a new look without having to buy a new tv-stand (which are ridic
  9. Burlap
 10. Stapler
 11. Hinges
-12. Cabinet pulls or knobs
-13. Safety glasses and earmuffs
+12. Stain or paint
+13. Cabinet pulls or knobs
+14. Safety glasses and earmuffs
 
 ## Process
 
@@ -53,3 +54,7 @@ Each door consists of two 24" boards and two 13.5" boards with the smaller ones 
 **Step two** is measuring out all of the pieces and cutting. This is usually a quick process and I finished in about 15 minutes.
 
 Once all the pieces were cut, I started gluing the boards together using my corner clamps. Welcome to **step 3**. These are the first time I've used them and, after some trial and error, they work great. So nice that they hold your work at 90-degree angles for you. I'm hoping to be able to use them on lots of projects.
+
+When the glue was dry, I hammered in a panel nail at an angle to help secure the two pieces together. Then, you glue the whole door together and repeat until all your doors are built.
+
+Literally waiting around for glue to dry takes forever as does **step four** which is staining. If you have any gaps in your pieces, now is the time to use some wood filler or sawdust to get rid of them. I used a dark stain to match my kallax.
