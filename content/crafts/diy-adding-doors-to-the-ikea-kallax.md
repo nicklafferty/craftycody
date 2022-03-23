@@ -42,7 +42,7 @@ It would create a new look without having to buy a new tv-stand (which are ridic
 
 ## Process
 
-Step one, as always, is to draw out a plan. I've been toying with this idea for a while and finally decided to just do it.
+**Step one**, as always, is to draw out a plan. I've been toying with this idea for a while and finally decided to just do it.
 
 They're a relatively simple design. Four cut 1x3s make up the frame and the middle will be covered with burlap to add a boho/mid-century look.
 
@@ -50,6 +50,6 @@ KALLAX MEASUREMENTS HERE
 
 Each door consists of two 24" boards and two 13.5" boards with the smaller ones acting as the top and bottom to keep the doors narrow enough to fit across the cabinet.
 
-Step two is measuring out all of the pieces and cutting. This is usually a quick process and I finished in about 15 minutes.
+**Step two** is measuring out all of the pieces and cutting. This is usually a quick process and I finished in about 15 minutes.
 
-Once all the pieces were cut, I started gluing the boards together using my corner clamps. These are the first time I've used them and, after some trial and error, they work great. So nice that they hold your work at 90-degree angles for you. I'm hoping to be able to use them on lots of projects.
+Once all the pieces were cut, I started gluing the boards together using my corner clamps. Welcome to **step 3**. These are the first time I've used them and, after some trial and error, they work great. So nice that they hold your work at 90-degree angles for you. I'm hoping to be able to use them on lots of projects.
