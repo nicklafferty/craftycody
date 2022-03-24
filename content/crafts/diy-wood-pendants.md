@@ -1,7 +1,6 @@
 +++
-date = ""
+date = 2022-03-24T05:00:00Z
 description = "A (very) beginner guide into jewelry making."
-draft = true
 image = ""
 slug = "diy-wood-pendants"
 tags = ["diy", "video"]
@@ -32,3 +31,7 @@ I cleaned them up and decided to seal them with boiled linseed oil. I tried stai
 Using my tiniest drill bit, I drilled a pilot hole into the tops of the pendants so I could screw in the eye-hooks. The pilot hole helps the hook go in as well as prevents splitting.
 
 When the oil was dry, I dipped the pendants into polycrylic and used a foam brush to wipe off excess. After the first coat is dry, I sanded them off with 220-grit sandpaper and applied another coat. You'll want to repeat this process for however many coats you decide to do, but I settled on two (I think three would be better though).
+
+I had some extra necklaces I got on eBay and used those so I can wear the pendants around my neck. I think a leather strap would look really cool with these.
+
+And there you have it! Really simple and beginner-friendly necklaces!
