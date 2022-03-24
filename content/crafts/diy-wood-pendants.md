@@ -14,6 +14,13 @@ I think I've said this a million times in the last week about the origins of the
 
 ## Supplies
 
+1. Wood slices
+2. Sander
+3. Drill
+4. Eye-hooks
+5. Boiled Linseed Oil
+6. Polycrylic
+
 ## How-to
 
 This DIY is going to be short and sweet, which is how I like it.
@@ -24,4 +31,4 @@ I cleaned them up and decided to seal them with boiled linseed oil. I tried stai
 
 Using my tiniest drill bit, I drilled a pilot hole into the tops of the pendants so I could screw in the eye-hooks. The pilot hole helps the hook go in as well as preventing splitting.
 
-When the oil was dry, I dipped the pendants into polyacrylic and used a foam brush to wipe off excess. After the first coat is dry, I sanded them off with 220-grit sandpaper and applied another coat. You'll want to repeat this process for however many coats you decide to do, but I settled on two (I think three would be better though).
+When the oil was dry, I dipped the pendants into polycrylic and used a foam brush to wipe off excess. After the first coat is dry, I sanded them off with 220-grit sandpaper and applied another coat. You'll want to repeat this process for however many coats you decide to do, but I settled on two (I think three would be better though).
