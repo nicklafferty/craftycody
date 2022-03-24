@@ -1,7 +1,7 @@
 +++
 date = 2022-03-24T05:00:00Z
 description = "A (very) beginner guide into jewelry making."
-image = ""
+image = "/uploads/diy-wood-pendant-necklaces.png"
 slug = "diy-wood-pendants"
 tags = ["diy", "video"]
 title = "DIY: Wood Pendants"
@@ -13,7 +13,7 @@ I think I've said this a million times in the last week about the origins of the
 
 ## Supplies
 
-1. Wood slices
+1. Wood slices (I used 2x4s)
 2. Sander
 3. Drill
 4. [Eye-hooks](https://www.lowes.com/pd/Hillman-Brass-Screw-Eye-Hook/3202443?cm_mmc=shp-_-c-_-prd-_-hdw-_-ggl-_-LIA_HDW_126_Fastening-_-3202443-_-local-_-0-_-0&ds_rl=1286981&gclid=CjwKCAjwrfCRBhAXEiwAnkmKmaLbp98yzHs_Gn6ckDJh94FRPkGYByR3puoIDKQsEFID1UwrLK8TixoCwk4QAvD_BwE&gclsrc=aw.ds)
@@ -34,4 +34,6 @@ When the oil was dry, I dipped the pendants into polycrylic and used a foam brus
 
 I had some extra necklaces I got on eBay and used those so I can wear the pendants around my neck. I think a leather strap would look really cool with these.
 
-And there you have it! Really simple and beginner-friendly necklaces!
+And there you have it! Really simple, unique, and beginner-friendly necklaces!
+
+![](/uploads/wood-pendants.jpg)
