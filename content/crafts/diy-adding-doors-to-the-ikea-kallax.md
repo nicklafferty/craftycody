@@ -30,9 +30,9 @@ It would create a new look without having to buy a new tv-stand (which are ridic
  2. Miter saw
  3. Drill
  4. Sander
- 5. Nails (I used [1 5/8" panel nails](https://www.lowes.com/pd/Hillman-1-5-8-in-15-Gauge-Coated-Steel-Panel-Board-Nails-1-5-oz/3036066))
+ 5. [Flat L-brackets or corner braces](https://www.lowes.com/pd/ReliaBilt-ReliaBilt-2-in-Zinc-Plated-Flat-Corner-Brace-4-Pack/5003415929)
  6. Wood glue
- 7. Clamps (regular and [corner clamps](https://www.lowes.com/pd/IRWIN-3-in-Corner-Clamp/1000237051))
+ 7. Clamps
  8. Ruler and speed square
  9. Burlap
 10. Stapler
