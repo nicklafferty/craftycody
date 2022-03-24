@@ -17,9 +17,9 @@ I think I've said this a million times in the last week about the origins of the
 1. Wood slices
 2. Sander
 3. Drill
-4. Eye-hooks
-5. Boiled Linseed Oil
-6. Polycrylic
+4. [Eye-hooks](https://www.lowes.com/pd/Hillman-Brass-Screw-Eye-Hook/3202443?cm_mmc=shp-_-c-_-prd-_-hdw-_-ggl-_-LIA_HDW_126_Fastening-_-3202443-_-local-_-0-_-0&ds_rl=1286981&gclid=CjwKCAjwrfCRBhAXEiwAnkmKmaLbp98yzHs_Gn6ckDJh94FRPkGYByR3puoIDKQsEFID1UwrLK8TixoCwk4QAvD_BwE&gclsrc=aw.ds)
+5. [Boiled Linseed Oil](https://www.lowes.com/pd/Jasco-32-fl-oz-Slow-to-Dissolve-Linseed-Oil/50298071)
+6. [Polycrylic](https://www.minwax.com/wood-products/clear-protective-finishes/interior/minwax-polycrylic-protective-finish)
 
 ## How-to
 
@@ -29,6 +29,6 @@ I sliced a few millimeters thick pieces off of a 2x4 and sanded them down so the
 
 I cleaned them up and decided to seal them with boiled linseed oil. I tried stain at first, but it was going on too dark and I don't get to use my bottle of oil too much so it was a good excuse to try it. The oil will help protect the wood and add a nice finish.
 
-Using my tiniest drill bit, I drilled a pilot hole into the tops of the pendants so I could screw in the eye-hooks. The pilot hole helps the hook go in as well as preventing splitting.
+Using my tiniest drill bit, I drilled a pilot hole into the tops of the pendants so I could screw in the eye-hooks. The pilot hole helps the hook go in as well as prevents splitting.
 
 When the oil was dry, I dipped the pendants into polycrylic and used a foam brush to wipe off excess. After the first coat is dry, I sanded them off with 220-grit sandpaper and applied another coat. You'll want to repeat this process for however many coats you decide to do, but I settled on two (I think three would be better though).
