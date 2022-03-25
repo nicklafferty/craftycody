@@ -41,7 +41,7 @@ It would create a new look without having to buy a new tv-stand (which are ridic
 13. Cabinet pulls or knobs
 14. Safety glasses and earmuffs
 
-## Process
+## How-to
 
 **Step one**, as always, is to draw out a plan. I've been toying with this idea for a while and finally decided to just do it.
 
