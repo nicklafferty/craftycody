@@ -1,6 +1,6 @@
 +++
 date = ""
-description = "My first, official Ikea hack. "
+description = "My first official Ikea hack. "
 draft = true
 image = ""
 slug = "doors-ikea-kallax"
