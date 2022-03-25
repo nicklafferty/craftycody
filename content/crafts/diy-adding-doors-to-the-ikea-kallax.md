@@ -55,7 +55,7 @@ Each door consists of two 24" boards and two 13.5" boards with the smaller ones 
 
 Once all the pieces were cut, I started gluing the boards and holding them together with clamps. Welcome to **step 3**.  I also mounted the L-brackets to the backs of the doors during this step. I put them more in the middle of each join because I wanted to leave room for the staples I'd be using to attach the burlap. Pick the prettiest side to face outward.
 
-Drill your holes for your knobs or pulls now so you can sand them smooth. Make sure they're all even by doing one door then line it up with the next one and drill through. This is quicker as you only need to measure one door and make it a template for the rest.
+Drill your holes for your knobs or pulls now so you can sand them smooth. I used a 5/32" drill bit, but use an appropriate size for your screws. Make sure they're all even by doing one door then line it up with the next one and drill through. This is quicker as you only need to measure one door and make it a template for the rest.
 
 Literally waiting around for glue to dry takes forever as does **step four** which is staining. If you have any gaps in your pieces, now is the time to use some wood filler or sawdust to get rid of them. I used a dark stain (jacobean) that matched(ish) my kallax.
 
