@@ -59,6 +59,8 @@ Drill your holes for your knobs or pulls now so you can sand them smooth. I used
 
 Literally waiting around for glue to dry takes forever as does **step four** which is staining. If you have any gaps in your pieces, now is the time to use some wood filler or sawdust to get rid of them. I used a dark stain (jacobean) that matched(ish) my kallax.
 
-After I waited about a million hours for the stain to dry, I attached the hinges to the top and bottom of each door and screwed on the cabinet pulls.
+After I waited about a million hours for the stain to dry, it was time to staple on the burlap. You can use any fabric for the middle, but I was going for a boho/mid-century look without the cost of rattan. It's a little bit of a pain, but pretty simple. I stapled down one side of the door, then pulled the burlap taut and stapled across the bottom, up the other side, and finally across the top. Again, always pulling it tight as I go. 
+
+I attached the hinges to the top and bottom of each door and screwed on the cabinet pulls.
 
 **Step five** is lining up the doors on the kallax and seeing where I needed to drill to attach them. I held the door up and marked where the hinge holes hit then pre-drilled pilot holes so I wouldn't split the cabinet. Then, all that was left was to drill them in place.
