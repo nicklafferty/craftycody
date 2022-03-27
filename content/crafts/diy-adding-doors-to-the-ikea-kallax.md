@@ -65,4 +65,6 @@ Then, I attached the hinges to the top and bottom of each door and screwed on th
 
 **Step six** is lining up the doors on the kallax and seeing where I needed to drill to attach them. I held the door up and marked where the hinge holes hit then pre-drilled pilot holes so I wouldn't split the cabinet. Then, all that was left was to drill them in place.
 
-My husband helped immensely with this last step. I really needed the extra hands. Once we got one up, it was easy to line the rest up and screw them in.
+My husband helped immensely with this last step. I really needed the extra hands. Once we got one up, it was easy to line the rest up and screw them in. The trickiest are the two that mount on the inside boards- it's a skinny piece that you have to line up just right to avoid gaps. 
+
+And here it is all done! I don't know if I'll be doing many of these Ikea "hacks", but I was bummed not finding a tutorial for adding doors that I liked. Hopefully, you like these and will try them out too!
