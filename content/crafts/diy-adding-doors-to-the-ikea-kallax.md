@@ -64,3 +64,5 @@ After I waited about a million hours for the stain to dry, it was time for **ste
 Then, I attached the hinges to the top and bottom of each door and screwed on the cabinet pulls. I put the hinges so they would be touching the bottoms of the L-brackets.
 
 **Step six** is lining up the doors on the kallax and seeing where I needed to drill to attach them. I held the door up and marked where the hinge holes hit then pre-drilled pilot holes so I wouldn't split the cabinet. Then, all that was left was to drill them in place.
+
+My husband helped immensely with this last step. I really needed the extra hands. Once we got one up, it was easy to line the rest up and screw them in.
