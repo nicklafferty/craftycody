@@ -8,7 +8,7 @@ tags = []
 title = "My brand new Etsy store!"
 
 +++
-Now that every crafter (and drop-shipper) has a dedicated space on Etsy, I decided it was high time I do as well. My website is gaining some traction, but it's difficult to get a shop out there. Etsy has some powerful tools at its disposal and they make the buying and selling process easy- especially since I sell digital goods.
+Now that every crafter (and drop-shipper) has a [dedicated space on Etsy](https://www.etsy.com/shop/CodysCraftyCo), I decided it was high time I do as well. My website is gaining some traction, but it's difficult to get a shop out there. Etsy has some powerful tools at its disposal and they make the buying and selling process easy- especially since I sell digital goods.
 
 My current shop is hosted by Square and it doesn't let you upload digital patterns for download. I'd have to email them manually to anyone who purchased one, which is a huge pain for everyone of course.
 
