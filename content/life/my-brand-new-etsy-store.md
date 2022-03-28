@@ -14,6 +14,8 @@ My current shop is hosted by Square and it doesn't let you upload digital patter
 
 I'm going to be focusing on crochet patterns and woodworking plans. Both will be PDFs available for instant download. No returns, obviously, but you'll always get your item!
 
+I also have a [Ravelry store for crochet patterns](https://www.ravelry.com/stores/codys-craft-corner), but I think Etsy is the stronger marketplace. The UI is more user-friendly, and frankly prettier, as well. I'll continue to post in both places though.
+
 The reason it took me so long to set up an Etsy shop is because of the listing fees, to be honest. I didn't want to sink money into a side project and have nothing come out of it. However, it felt like a good time now and if worse comes to worst then I'll simply shut down the shop and chalk it up as a loss.
 
 Now, the problem is visibility. I alluded to it earlier, but Etsy is full of drop-shipped items and it can be difficult to get your legitimately homemade goods noticed. I'm running some ads and amping up my descriptions to hopefully get some sales rolling in. I won't lie to you, it's a really slow process.
