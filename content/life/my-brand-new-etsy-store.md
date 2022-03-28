@@ -21,3 +21,5 @@ The reason it took me so long to set up an Etsy shop is because of the listing f
 Now, the problem is visibility. I alluded to it earlier, but Etsy is full of drop-shipped items and it can be difficult to get your legitimately homemade goods noticed. I'm running some ads and amping up my descriptions to hopefully get some sales rolling in. I won't lie to you, it's a really slow process.
 
 In a few months, I'll post an update on how everything is going. I have a feeling it's one of those situations where the hardest step is going from 0 to 1 and then it's clearer sailing from 1 to 2 and so on.
+
+So, if you feel like perusing some patterns and DIY, then please check out my Etsy shop! I appreciate everyone's continued support! <3
