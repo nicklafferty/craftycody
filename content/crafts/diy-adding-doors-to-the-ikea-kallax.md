@@ -1,13 +1,15 @@
 +++
-date = ""
+date = 2022-03-31T05:00:00Z
 description = "My first official Ikea hack. "
-draft = true
 image = "/uploads/ikea-kallax-cabinet-doors-diy.png"
 slug = "doors-ikea-kallax"
 tags = ["diy", "video"]
 title = "DIY: Adding doors to the Ikea Kallax"
 
 +++
+
+{{< youtube T1iJojWji2Y >}}
+
 There are tons of "Ikea hacks" out there that help spruce up Ikea furniture and probably none more than the Kallax shelving unit. These things are super affordable and versatile. So much so that we have three of them.
 
 However, over the years, I've been getting a little tired of them and the stigma that comes with having a lot of Ikea pieces. Some are really good-looking and look like you bought them anywhere, but some have that "cheap" vibe and I think the Kallax falls into the latter category.
