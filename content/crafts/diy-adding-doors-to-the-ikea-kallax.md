@@ -2,7 +2,7 @@
 date = ""
 description = "My first official Ikea hack. "
 draft = true
-image = ""
+image = "/uploads/ikea-kallax-cabinet-doors-diy.png"
 slug = "doors-ikea-kallax"
 tags = ["diy", "video"]
 title = "DIY: Adding doors to the Ikea Kallax"
@@ -47,7 +47,7 @@ It would create a new look without having to buy a new tv-stand (which are ridic
 
 They're a relatively simple design. Four cut 1x3s make up the frame and the middle will be covered with burlap to add a boho/mid-century look.
 
-KALLAX MEASUREMENTS HERE
+The kallax itself is 57 7/8" long and 30 3/8" tall. The cubbies are 13" square and the dividers between them are about 5/8" thick.
 
 Each door consists of two 24" boards and two 13.5" boards with the smaller ones acting as the top and bottom to keep the doors narrow enough to fit across the cabinet.
 
@@ -59,12 +59,12 @@ Drill your holes for your knobs or pulls now so you can sand them smooth. I used
 
 Literally waiting around for glue to dry takes forever as does **step four** which is staining. If you have any gaps in your pieces, now is the time to use some wood filler or sawdust to get rid of them. I used a dark stain (jacobean) that matched(ish) my kallax.
 
-After I waited about a million hours for the stain to dry, it was time for **step five**: stapling on the burlap. You can use any fabric for the middle, but I was going for a boho/mid-century look without the cost of rattan. It's a little bit of a pain, but pretty simple. I stapled down one side of the door, then pulled the burlap taut and stapled across the bottom, up the other side, and finally across the top. Again, always pulling it tight as I go. 
+After I waited about a million hours for the stain to dry, it was time for **step five**: stapling on the burlap. You can use any fabric for the middle, but I was going for a boho/mid-century look without the cost of rattan. It's a little bit of a pain, but pretty simple. I stapled down one side of the door, then pulled the burlap taut and stapled across the bottom, up the other side, and finally across the top. Again, always pulling it tight as I go.
 
 Then, I attached the hinges to the top and bottom of each door and screwed on the cabinet pulls. I put the hinges so they would be touching the bottoms of the L-brackets.
 
 **Step six** is lining up the doors on the kallax and seeing where I needed to drill to attach them. I held the door up and marked where the hinge holes hit then pre-drilled pilot holes so I wouldn't split the cabinet. Then, all that was left was to drill them in place.
 
-My husband helped immensely with this last step. I really needed the extra hands. Once we got one up, it was easy to line the rest up and screw them in. The trickiest are the two that mount on the inside boards- it's a skinny piece that you have to line up just right to avoid gaps. 
+My husband helped immensely with this last step. I really needed the extra hands. Once we got one up, it was easy to line the rest up and screw them in. The trickiest are the two that mount on the inside boards- it's a skinny piece that you have to line up just right to avoid gaps.
 
 And here it is all done! I don't know if I'll be doing many of these Ikea "hacks", but I was bummed not finding a tutorial for adding doors that I liked. Hopefully, you like these and will try them out too!
