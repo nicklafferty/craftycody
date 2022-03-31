@@ -77,7 +77,7 @@ Then, I attached the hinges to the top and bottom of each door and screwed on th
 
 ![](/uploads/010-first-door-done.jpg)
 
-**Step six** is lining up the doors on the kallax and seeing where I needed to drill to attach them. I held the door up and marked where the hinge holes hit then pre-drilled pilot holes so I wouldn't split the cabinet. Then, all that was left was to drill them in place.
+**Step six** is lining up the doors on the kallax and seeing where I needed to drill to attach them. I held the door up and marked where the hinge holes hit then pre-drilled pilot holes so I wouldn't split the cabinet. Then, all that was left was to drill them in place. Use a level to make sure it's even.
 
 My husband helped immensely with this last step. I really needed the extra hands. Once we got one up, it was easy to line the rest up and screw them in. The trickiest are the two that mount on the inside boards- it's a skinny piece that you have to line up just right to avoid gaps.
 
