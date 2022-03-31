@@ -49,7 +49,7 @@ After all the pieces were cut, I gave them a good sanding. I'd also recommend st
 
 Decide where you'd like your shelf to be and glue then clamp all the pieces together. If you're using L-brackets, wait to attach the bottom 10-inch piece until you've put those on. It will be a tight fit for the drill if that's in your way. Believe me.
 
-When the glue has set (about 30 minutes), predrill two holes into the top and bottom where the 2x2's meet. You'll want to use a bit that's smaller than your screws, but it's important to not skip this step otherwise you risk cracking the wood. If you do crack the wood and it's not too far gone, you can make a simple wood filler with glue and sawdust. I made a [Tiktok ](https://www.tiktok.com/@codyscraftcorner/video/7055432348514471214?is_copy_url=1&is_from_webapp=v1)demonstrating how.
+When the glue has set (about 30 minutes), predrill two holes into the top and bottom where the 2x2's meet. You'll want to use a bit that's smaller than your screws, but it's important to not skip this step otherwise you risk cracking the wood. If you do crack the wood and it's not too far gone, you can make a simple wood filler with glue and sawdust. I made a [YouTube short demonstrating how](https://www.youtube.com/shorts/bJ8rKUn7lNk).
 
 Now you can drill your screws in. I also decided to go with the L-brackets because I didn't want two screws to be obvious on the sides of the sconce.
 
