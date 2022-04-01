@@ -22,6 +22,6 @@ Does this count as an IKEA hack? Kind of? In any case, we're going to get our du
 
 Let's get started.
 
-Supplies
+## Supplies
 
-How-to
+## How-to
