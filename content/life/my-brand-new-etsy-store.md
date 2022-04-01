@@ -2,7 +2,7 @@
 date = ""
 description = "I finally bit the bullet and set one up."
 draft = true
-image = ""
+image = "/uploads/etsy-shop-live.png"
 slug = ""
 tags = []
 title = "My brand new Etsy store!"
