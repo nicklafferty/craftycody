@@ -18,7 +18,7 @@ The start of any project begins with inspiration. I'm a creative person, but not
 
 That being said, today's inspiration is [IKEA's MÖRBYLÅNGA dining table](https://www.ikea.com/us/en/p/moerbylanga-table-oak-veneer-brown-stained-20293766/). It's the right amount of style and thickness that I like. I wanted to stay away from full farmhouse and I believe this table does a good job of being style-neutral, but interesting enough.
 
-Does this count as an IKEA hack? Kind of? In any case, we're going to get our dupe as close as we can including that "floating" look the tabletop has.
+Does this count as an IKEA hack? Kind of? In any case, we're going to get our dupe as close as we can including that "floating" look the tabletop has. We're also going to be using a _lot_ of 2x4s.
 
 Let's get started.
 
