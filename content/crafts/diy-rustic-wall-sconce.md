@@ -9,6 +9,8 @@ title = "DIY: Rustic Wall Sconce"
 +++
 {{< youtube JDcAD2qhX3s >}}
 
+Update: [I have PDF woodworking plans available in my Etsy shop!](https://www.etsy.com/listing/1204912379/rustic-wall-sconce-woodworking-plans?click_key=f3f56a46f892e3b8ee4849ac529dee946da704c9%3A1204912379&click_sum=0848dd6a&ref=shop_home_active_2)
+
 I was perusing Pinterest a while ago (as one does) and came across a wooden sconce that I really liked. I can't remember the price, but I remember thinking that I could easily recreate it for less. So I did.
 
 I found some similar ones on Lowe's and Wayfair for around $50-$100, which is an exorbitant amount of money for such a small thing. You know my mantra is making the things I see for cheap. Let me show you how I did it.
