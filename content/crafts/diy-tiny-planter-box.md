@@ -7,8 +7,9 @@ tags = ["DIY", "video"]
 title = "DIY: Tiny planter box"
 
 +++
-
 {{< youtube kmY3YA5M4ck >}}
+
+Update: [I have PDF woodworking plans for this project available in my Etsy shop!](https://www.etsy.com/listing/1205072201/tiny-box-planter-woodworking-plans?click_key=06771332ad41e488f44b725561e329820d535a4e%3A1205072201&click_sum=cd6d2f5c&ref=shop_home_active_1)
 
 Pets are the new kids and plants are the new pets.
 
