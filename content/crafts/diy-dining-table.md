@@ -1,6 +1,6 @@
 +++
 date = ""
-description = "Fed up with marked-up retail? Make your own."
+description = "Fed up with overpriced retail? Make your own."
 draft = true
 image = ""
 slug = ""
