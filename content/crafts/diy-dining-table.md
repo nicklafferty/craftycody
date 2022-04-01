@@ -3,8 +3,8 @@ date = ""
 description = "Fed up with overpriced retail? Make your own."
 draft = true
 image = ""
-slug = ""
-tags = []
+slug = "diy-dining-table-ikea-dupe"
+tags = ["diy"]
 title = "DIY: Dining Table"
 
 +++
