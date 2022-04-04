@@ -30,18 +30,19 @@ Let's get started.
  4. Miter saw
  5. Jigsaw
  6. Drill
- 7. 4-in wood screws
- 8. Clamps
- 9. Ruler
-10. Speed square
-11. Wood glue
-12. Liquid nails
-13. Stain
-14. Wood putty (if needed)
-15. Pencil
-16. Safety glasses
-17. Earmuffs
-18. Gloves
+ 7. Sander
+ 8. 4-in wood screws
+ 9. Clamps
+10. Ruler
+11. Speed square
+12. Wood glue
+13. Liquid nails
+14. Stain
+15. Wood putty (if needed)
+16. Pencil
+17. Safety glasses
+18. Earmuffs
+19. Gloves
 
 ## How-to
 
