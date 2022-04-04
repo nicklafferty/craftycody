@@ -66,3 +66,5 @@ DIAGRAM OF 4x4 CUTS
 Once the glue is dry, predrill then screw the legs in place for **step four**. I don't usually do it out of laziness, but predrilling is really important if you don't want your wood to crack. I know a lot of screws say you don't need to but do it anyway. It won't hurt.
 
 **Step** **five** is building the base. Bring the legs upright and drill in the 2x4 skirts/spines of the table to connect them. Remember to predrill!!
+
+If there are any mistakes, now is the time to fix them with wood filler (before you put the tabletop on). Follow the directions on the bottle to the T and go ahead and stain if it says to do it immediately after drying.
