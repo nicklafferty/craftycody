@@ -38,11 +38,12 @@ Let's get started.
 12. Wood glue
 13. Liquid nails
 14. Stain
-15. Wood filler or putty (if needed)
-16. Pencil
-17. Safety glasses
-18. Earmuffs
-19. Gloves
+15. Polyurethane
+16. Wood filler or putty (if needed)
+17. Pencil
+18. Safety glasses
+19. Earmuffs
+20. Gloves
 
 ## How-to
 
@@ -50,4 +51,4 @@ There are some notes I need to put first: This project will be easier if you hav
 
 The miter saw will kick, trust me. Lift the saw out of the wood before letting go of the power. If you make a mistake in your cuts, which is easy to do, use wood filler or putty that matches whatever stain you choose. I will show you how it turns out on mine.
 
-Alright, so **step one** is a plan. Hammer out your measurements and buy the wood sizes you need. All mine are below:
+Alright, **step one** is a plan. Hammer out your measurements and buy the wood sizes you need. All mine are below:
