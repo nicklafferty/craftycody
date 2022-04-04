@@ -68,3 +68,5 @@ Once the glue is dry, predrill then screw the legs in place for **step four**. I
 **Step** **five** is building the base. Bring the legs upright and drill in the 2x4 skirts/spines of the table to connect them. Remember to predrill!!
 
 If there are any mistakes, now is the time to fix them with wood filler (before you put the tabletop on). Follow the directions on the bottle to the T and go ahead and stain if it says to do it immediately after drying.
+
+Now it's time for **step** **six** and putting the actual table on. I left a 1" gap between my two "solid" boards. Remember to account for that when you're measuring.
