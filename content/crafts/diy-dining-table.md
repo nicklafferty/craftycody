@@ -55,4 +55,4 @@ Alright, **step one** is a plan. Hammer out your measurements and buy the wood s
 
 PIC AND MEASUREMENTS AND NUMBER OF BOARDS
 
-**Step two** is cutting. Lots and lots of cutting.
+**Step two** is cutting. Lots and lots of cutting. I wanted to do 45-degree joins for the legs this time instead of my normal "just put the wood on top of each other and glue" method. This is where the miter saw shines.
