@@ -57,4 +57,6 @@ PIC AND MEASUREMENTS AND NUMBER OF BOARDS
 
 **Step two** is cutting. Lots and lots of cutting. I wanted to do 45-degree joins for the legs this time instead of my normal "just put the wood on top of each other and glue" method. This is where the miter saw shines. I started by cutting all of my pieces then going back and adding the 45-degrees on the pieces that needed it i.e. most parts of the legs. I probably added an extra step in here, but it's my first time making angled cuts and I didn't want to mess it up.
 
-Here are those tricky cuts I was talking about. The 4x4s will be the top part of the legs and I needed to cut a chunk out of either side to create a floating look for the tabletop while being able to match it up to a 2x4.
+Here are those tricky cuts I was talking about. The 4x4s will be the top part of the legs and I needed to cut a chunk out of either side to create a floating look for the tabletop while being able to match it up to a 2x4. Remember that a 4x4 is actually 3.5" square and a 2x4 is 1.5x3.5. This means I needed to cut out a chunk that left me with 1.5" that would match up with the 2x4 side. I measured 4" in and 2" down and cut out that piece. This is the part where I wish I had a band saw. There was quite a bit of trial and error with the miter saw and any weird bits got shaved off with the jig. I'll include a diagram below to better illustrate the effect I was going for as well as where I made my cuts:
+
+DIAGRAM OF 4x4 CUTS
