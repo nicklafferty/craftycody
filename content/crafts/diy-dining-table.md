@@ -38,7 +38,7 @@ Let's get started.
 12. Wood glue
 13. Liquid nails
 14. Stain
-15. Wood putty (if needed)
+15. Wood filler or putty (if needed)
 16. Pencil
 17. Safety glasses
 18. Earmuffs
@@ -48,6 +48,6 @@ Let's get started.
 
 There are some notes I need to put first: This project will be easier if you have more saws than just a miter saw and a jig, like me. There are some tricky cuts I made that would have been 1000x easier with something like a band saw. However, my shop space is limited as I only have half a two-car garage to work in so I need to be choosy with what tools I buy.
 
-The miter saw will kick, trust me. Lift the saw out of the wood before letting go of the power. If you make a mistake in your cuts, which is easy to do, use wood putty that matches whatever stain you choose. I will show you how it turns out on mine.
+The miter saw will kick, trust me. Lift the saw out of the wood before letting go of the power. If you make a mistake in your cuts, which is easy to do, use wood filler or putty that matches whatever stain you choose. I will show you how it turns out on mine.
 
 Alright, so **step one** is a plan. Hammer out your measurements and buy the wood sizes you need. All mine are below:
