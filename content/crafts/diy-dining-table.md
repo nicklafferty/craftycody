@@ -50,4 +50,4 @@ There are some notes I need to put first: This project will be easier if you hav
 
 The miter saw will kick, trust me. Lift the saw out of the wood before letting go of the power. If you make a mistake in your cuts, which is easy to do, use wood putty that matches whatever stain you choose. I will show you how it turns out on mine.
 
-Alright, so step one is a plan. Hammer out your measurements and buy the wood sizes you need. All mine are below:
+Alright, so **step one** is a plan. Hammer out your measurements and buy the wood sizes you need. All mine are below:
