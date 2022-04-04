@@ -26,7 +26,7 @@ Let's get started.
 
 ## How-to
 
-There are some notes I need to put first: This project will be easier if you have more saws than just a miter saw and a jig, like me. There are some tricky cuts I made that would have been 1000x easier with something like a band saw. However, my shop space is limited as I only have half a two-car garage so I need to be choosy with what tools I buy.
+There are some notes I need to put first: This project will be easier if you have more saws than just a miter saw and a jig, like me. There are some tricky cuts I made that would have been 1000x easier with something like a band saw. However, my shop space is limited as I only have half a two-car garage to work in so I need to be choosy with what tools I buy.
 
 If you make a mistake in your cuts, which is easy to do, use wood putty that matches whatever stain you choose. I will show you how it turns out on mine.
 
