@@ -24,6 +24,24 @@ Let's get started.
 
 ## Supplies
 
+ 1. 2x4s
+ 2. 4x4s
+ 3. 2x10s
+ 4. Miter saw
+ 5. Jigsaw
+ 6. Drill
+ 7. 4-in wood screws
+ 8. Ruler
+ 9. Speed square
+10. Wood glue
+11. Liquid nails
+12. Stain
+13. Wood putty (if needed)
+14. Pencil
+15. Safety glasses
+16. Earmuffs
+17. Gloves
+
 ## How-to
 
 There are some notes I need to put first: This project will be easier if you have more saws than just a miter saw and a jig, like me. There are some tricky cuts I made that would have been 1000x easier with something like a band saw. However, my shop space is limited as I only have half a two-car garage to work in so I need to be choosy with what tools I buy.
