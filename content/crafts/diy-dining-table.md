@@ -24,9 +24,9 @@ Let's get started.
 
 ## Supplies
 
- 1. 2x4s
- 2. 4x4s
- 3. 2x10s
+ 1. 2x4x8
+ 2. 4x4x8 (x1)
+ 3. 2x10x8 (x4)
  4. Miter saw
  5. Jigsaw
  6. Drill
@@ -61,7 +61,7 @@ Here are those tricky cuts I was talking about. The 4x4s will be the top part of
 
 DIAGRAM OF 4x4 CUTS
 
-**Step three** is gluing and clamping all of this wood together. I built the legs and glued the corners together then clamped them in place. This is also where you'll use liquid nails to glue two tabletop pieces together and clamp. Liquid nails is quite a bit stronger than wood glue and I trusted it to hold the longer boards together permanently. 
+**Step three** is gluing and clamping all of this wood together. I built the legs and glued the corners together then clamped them in place. This is also where you'll use liquid nails to glue two tabletop pieces together and clamp. Liquid nails is quite a bit stronger than wood glue and I trusted it to hold the longer boards together permanently.
 
 Once the glue is dry, predrill then screw the legs in place for **step four**. I don't usually do it out of laziness, but predrilling is really important if you don't want your wood to crack. I know a lot of screws say you don't need to but do it anyway. It won't hurt.
 
