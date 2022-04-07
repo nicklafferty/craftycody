@@ -69,4 +69,6 @@ Once the glue is dry, predrill then screw the legs in place for **step four**. I
 
 If there are any mistakes, now is the time to fix them with wood filler (before you put the tabletop on). Follow the directions on the bottle to the T and go ahead and stain if it says to do it immediately after drying.
 
+Here is when I realized the table was a little too short and it was because of the skirts. So, if you don't want to adjust the height, then drill in your skirts horizontally instead of vertically as I did. What I did to correct the height was add feet to the base. I had extra 2x4 scraps from this project and took a couple of them, cut them in half, then put two under the base piece of each leg to make semi-modern, wide feet. It gave me an extra 1.5-inches and should fit most, if not all, dining chairs now.
+
 Now it's time for **step** **six** and putting the actual table on. I left a 1" gap between my two "solid" boards. Remember to account for that when you're measuring. I drilled in from the bottom and into the tabletop so I wouldn't have any screws showing on the top. PREDRILL!!
