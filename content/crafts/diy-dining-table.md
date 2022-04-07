@@ -31,19 +31,20 @@ Let's get started.
  5. Jigsaw
  6. Drill
  7. Sander
- 8. 4-in wood screws
- 9. Clamps
-10. Ruler
-11. Speed square
-12. Wood glue
-13. Liquid nails
-14. Stain
-15. Polyurethane
-16. Wood filler or putty (if needed)
-17. Pencil
-18. Safety glasses
-19. Earmuffs
-20. Gloves
+ 8. Planer (if needed)
+ 9. 4-in wood screws
+10. Clamps
+11. Ruler
+12. Speed square
+13. Wood glue
+14. Liquid nails
+15. Stain
+16. Polyurethane
+17. Wood filler or putty (if needed)
+18. Pencil
+19. Safety glasses
+20. Earmuffs
+21. Gloves
 
 ## How-to
 
@@ -61,7 +62,7 @@ Here are those tricky cuts I was talking about. The 4x4s will be the top part of
 
 DIAGRAM OF 4x4 CUTS
 
-**Step three** is gluing and clamping all of this wood together. I built the legs and glued the corners together then clamped them in place with corner clamps. This is also where you'll use liquid nails to glue two tabletop pieces together and clamp. Liquid nails is quite a bit stronger than wood glue and I trusted it to hold the longer boards together permanently.
+**Step three** is gluing and clamping all of this wood together. I built the legs and glued the corners together then clamped them in place with corner clamps. This is also where you'll use liquid nails to glue two tabletop pieces together and clamp. Liquid nails is quite a bit stronger than wood glue and I trusted it to hold the longer boards together permanently. When that's dry, it's a good time to plane the wood to make sure your table is flat.
 
 Once the glue is dry, predrill then screw the legs in place for **step four**. I don't usually do it out of laziness, but predrilling is really important if you don't want your wood to crack. I know a lot of screws say you don't need to but do it anyway. It won't hurt.
 
