@@ -41,7 +41,7 @@ Let's get started.
 11. Ruler
 12. Speed square
 13. Wood glue
-14. Liquid nails
+14. Liquid Nails
 15. Stain
 16. Polyurethane
 17. Wood filler or putty (if needed)
