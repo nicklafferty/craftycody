@@ -104,7 +104,7 @@ Here is when I realized the table was a little too short and it was because of t
 
 Please ignore the stain, but you can see the feet I added at the bottom more easily.
 
-Now it's time for **step** **six** and putting the actual table on. Originally, I was going to leave a 1" gap between my two "solid" boards but decided against it when I put them on the table. If you decide to, remember to account for that when you're measuring. I drilled in from the bottom and into the tabletop so I wouldn't have any screws showing on the top. PREDRILL!!
+Now it's time for **step** **six** which is staining. I bought several samples of stains because I wanted to make sure I loved it since this is a huge piece of furniture. I went with red oak and it came out gorgeous IMO.
 
 ![](/uploads/in-progress-dining-table-build-diy-9.jpg)
 
