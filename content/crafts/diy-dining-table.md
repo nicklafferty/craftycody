@@ -72,6 +72,8 @@ Here are those tricky cuts I was talking about. The 4x4s will be the top part of
 
 ![](/uploads/diningtable4x4xdiagram.jpg)
 
+You can see what I mean about using two 2x4s instead of a 4x4. Cut one to 30-inches and a second to 38-inches. Cut your 45-degree angles into the 38-in board. Then, use Liquid Nails to attach the shorter board on top of the longer one.
+
 ![](/uploads/in-progress-dining-table-build-diy-3.jpg)
 
 One of the most important things we're going to do is sand. You'll want to sand the heck out of all this wood to make sure it's smooth and you don't pick up any splinters while you're eating. Start with really gritty sandpaper and finish off with super fine paper.
