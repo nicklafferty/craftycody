@@ -8,6 +8,9 @@ tags = ["diy", "video"]
 title = "DIY: Dining Table"
 
 +++
+
+{{< youtube id_here_please >}}
+
 First up, I'm not going to make chairs. No way. I will, however, be making a matching bench and that's one side of seating settled at least.
 
 I have been hunting for a dining table for what feels like years now. Actually, eons. I've found several that I really liked, but then I add up the total with seating and it's absolutely ridiculous. And, to be frank, it's the chairs that kill me. Cool, comfortable, dining chairs are about $150 _each_ minimum. I'm not talking about anything handmade either- it's all mass-produced crap. A set is as much as some tables and I just can't do it. I'm too cheap.
@@ -52,7 +55,9 @@ There are some notes I need to put first: This project will be easier if you hav
 
 The miter saw will kick, trust me. Lift the saw out of the wood before letting go of the power. If you make a mistake in your cuts, which is easy to do, use wood filler or putty that matches whatever stain you choose. I will show you how it turns out on mine.
 
-Alright, **step one** is a plan. Hammer out your measurements and buy the wood sizes you need. All mine are below:
+Alright, **step one** is a plan. Hammer out your measurements and buy the wood sizes you need. Remember to take into account your chair seat height.
+
+All of my measurements are below:
 
 PIC AND MEASUREMENTS AND NUMBER OF BOARDS
 
