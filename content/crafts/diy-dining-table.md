@@ -8,7 +8,6 @@ tags = ["diy", "video"]
 title = "DIY: Dining Table"
 
 +++
-
 {{< youtube id_here_please >}}
 
 First up, I'm not going to make chairs. No way. I will, however, be making a matching bench and that's one side of seating settled at least.
@@ -61,7 +60,7 @@ Alright, **step one** is a plan. Hammer out your measurements and buy the wood s
 
 All of my measurements are below:
 
-PIC AND MEASUREMENTS AND NUMBER OF BOARDS
+![](/uploads/table-notebook-plans.jpg)
 
 **Step two** is cutting. Lots and lots of cutting. I wanted to do 45-degree joins for the legs this time instead of my normal "just put the wood on top of each other and glue" method. This is where the miter saw shines. I started by cutting all of my pieces then going back and adding the 45-degrees on the pieces that needed it i.e. most parts of the legs. I probably added an extra step in here, but it's my first time making angled cuts and I didn't want to mess it up.
 
