@@ -120,9 +120,9 @@ After the stain is dry, you'll want to put several coats of poly on your table t
 
 ![](/uploads/in-progress-dining-table-build-diy-10.jpg)
 
-I decided to attach the tabletop inside the house because it was so heavy. I can lift the frame fine on my own, but those hefty 2x10s probably add about 60 pounds. I used four screws along the bottom of the 4x4 and made sure one went into each individual board.
+I decided to attach the tabletop inside the house because it was so heavy. I can lift the frame fine on my own, but those hefty 2x10s probably added about 60 pounds. I used four screws along the bottom of the 4x4 and made sure one went into each individual board.
 
-Once your tabletop is screwed in then it's time to use it! After a couple of weeks, we found some dining chairs on Amazon that we liked and gave it a mid-century/rustic vibe that I'm happy with.
+Once your tabletop is screwed in then it's time to use it! After a couple of weeks, we found some [dining chairs on Amazon](https://www.amazon.com/Armen-Living-LCSUCHWACH-Summer-Charcoal/dp/B015ETINHS/ref=pd_vtp_sccl_1/140-5552516-1776620?pd_rd_w=l94K4&pf_rd_p=fbd780d7-2160-4d39-bb8e-6a364d83fb2c&pf_rd_r=DHC9P4SXTK44E3J9Z039&pd_rd_r=da787b1f-3a5a-4e5d-bfcb-cc40ad09cad8&pd_rd_wg=XGuxo&pd_rd_i=B015ETINHS&psc=1) that we liked and gave it a mid-century/rustic vibe that I'm happy with.
 
 ![](/uploads/dining-table-finished-product-diy-woodworking-5.jpg)
 
