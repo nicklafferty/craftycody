@@ -114,4 +114,4 @@ Now it's time for **step** **six** which is staining. I bought several samples o
 
 ![](/uploads/in-progress-dining-table-build-diy-10.jpg)
 
-I decided to attach the tabletop inside the house because it was so heavy. I can lift the frame fine on my own, but those hefty 2x10s probably add about 60 pounds.
+I decided to attach the tabletop inside the house because it was so heavy. I can lift the frame fine on my own, but those hefty 2x10s probably add about 60 pounds. I used four screws along the bottom of the 4x4 and made sure one went into each individual board.
