@@ -76,9 +76,9 @@ Here are those tricky cuts I was talking about. The 4x4s will be the top part of
 
 One of the most important things we're going to do is sand. You'll want to sand the heck out of all this wood to make sure it's smooth and you don't pick up any splinters while you're eating. Start with really gritty sandpaper and finish off with super fine paper.
 
-I also bought an electric planer for this project and used it on the tabletop pieces. It quickly got rid of imperfections and I was able to align the pieces easily since cheaper wood is rarely perfect.
+I also bought an [electric planer](https://www.amazon.com/DEWALT-D26677K-4-Inch-Portable-Planer/dp/B00461EA8W/ref=sr_1_3?crid=1EFNCOXHH62E1&keywords=dewalt%2Bhand%2Bplaner&qid=1650317194&sprefix=dewalt%2Bhand%2Bplaner%2Caps%2C102&sr=8-3&th=1) for this project and used it on the tabletop pieces. It quickly got rid of imperfections and I was able to align the pieces easily since cheaper wood is rarely perfect.
 
-**Step three** is gluing and clamping all of this wood together. I built the legs and glued the corners together then clamped them in place with corner clamps. This is also where you'll use liquid nails to glue two tabletop pieces together and clamp. Liquid nails is quite a bit stronger than wood glue and I trusted it to hold the longer boards together permanently. When that's dry, it's a good time to plane the wood to make sure your table is flat.
+**Step three** is gluing and clamping all of this wood together. I built the legs and glued the corners together then clamped them in place with corner clamps. This is also where you'll use liquid nails to glue two tabletop pieces together and clamp. Liquid Nails is quite a bit stronger than wood glue and I trusted it to hold the longer boards together permanently. When that's dry, it's a good time to plane the wood to make sure your table is flat.
 
 ![](/uploads/in-progress-dining-table-build-diy-1.jpg)
 
