@@ -110,6 +110,8 @@ Now it's time for **step** **six** which is staining. I bought several samples o
 
 ![](/uploads/in-progress-dining-table-build-diy-12.jpg)
 
+After the stain is dry, you'll want to put several coats of poly on your table to protect it.. When one coat is dry, sand with fine sandpaper and then put on the next coat. Repeat until the last coat.
+
 **Step seven** is putting the actual table on. Originally, I was going to leave a 1" gap between my two "solid" boards but decided against it when I put them on the table. If you decide to, remember to account for that when you're measuring. I drilled in from the bottom and into the tabletop so I wouldn't have any screws showing on the top. PREDRILL!!
 
 ![](/uploads/in-progress-dining-table-build-diy-9.jpg)
@@ -117,3 +119,5 @@ Now it's time for **step** **six** which is staining. I bought several samples o
 ![](/uploads/in-progress-dining-table-build-diy-10.jpg)
 
 I decided to attach the tabletop inside the house because it was so heavy. I can lift the frame fine on my own, but those hefty 2x10s probably add about 60 pounds. I used four screws along the bottom of the 4x4 and made sure one went into each individual board.
+
+Once your tabletop is screwed in
