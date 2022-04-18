@@ -2,7 +2,7 @@
 date = ""
 description = "Fed up with overpriced retail? Make your own."
 draft = true
-image = ""
+image = "/uploads/dining-table-diy-header.png"
 slug = "diy-dining-table-ikea-dupe"
 tags = ["diy", "video"]
 title = "DIY: Dining Table"
