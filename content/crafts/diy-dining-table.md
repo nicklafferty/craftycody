@@ -80,6 +80,8 @@ Once the glue is dry, predrill then screw the legs in place for **step four**. I
 
 ![](/uploads/in-progress-dining-table-build-diy-5.jpg)
 
+![](/uploads/in-progress-dining-table-build-diy-4.jpg)
+
 **Step** **five** is building the base. Bring the legs upright and drill in the 2x4 skirts of the table to connect them. Remember to predrill!!
 
 ![](/uploads/in-progress-dining-table-build-diy-6.jpg)
@@ -88,6 +90,12 @@ Once the glue is dry, predrill then screw the legs in place for **step four**. I
 
 If there are any mistakes, now is the time to fix them with wood filler (before you put the tabletop on). Follow the directions on the bottle to the T and go ahead and stain if it says to do it immediately after drying.
 
+![](/uploads/in-progress-dining-table-build-diy-8.jpg)
+
 Here is when I realized the table was a little too short and it was because of the skirts. So, if you don't want to adjust the height, then drill in your skirts horizontally instead of vertically as I did. What I did to correct the height was add feet to the base. I had extra 2x4 scraps from this project and took a couple of them, cut them in half, then glued two under the base piece of each leg to make semi-modern, wide feet. It gave me an extra 1.5-inches and should fit most, if not all, dining chairs now. The feet are a little over 10.5-inches long each but can be any size.
 
 Now it's time for **step** **six** and putting the actual table on. Originally, I was going to leave a 1" gap between my two "solid" boards but decided against it when I put them on the table. If you decide to, remember to account for that when you're measuring. I drilled in from the bottom and into the tabletop so I wouldn't have any screws showing on the top. PREDRILL!!
+
+![](/uploads/in-progress-dining-table-build-diy-9.jpg)
+
+![](/uploads/in-progress-dining-table-build-diy-10.jpg)
