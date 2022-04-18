@@ -5,12 +5,14 @@ draft = true
 image = "/uploads/dining-table-diy-header.png"
 slug = "diy-dining-table-ikea-dupe"
 tags = ["diy", "video"]
-title = "DIY: Dining Table"
+title = "DIY: Dining Table for under $200"
 
 +++
 {{< youtube id_here_please >}}
 
 First up, I'm not going to make chairs. No way. I will, however, be making a matching bench and that's one side of seating settled at least.
+
+And second, you read that right, we're going to build an 8-foot long dining table for under $200. I kept the receipts so you can check.
 
 I have been hunting for a dining table for what feels like years now. Actually, eons. I've found several that I really liked, but then I add up the total with seating and it's absolutely ridiculous. And, to be frank, it's the chairs that kill me. Cool, comfortable, dining chairs are about $150 _each_ minimum. I'm not talking about anything handmade either- it's all mass-produced crap. A set is as much as some tables and I just can't do it. I'm too cheap.
 
