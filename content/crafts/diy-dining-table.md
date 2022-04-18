@@ -72,6 +72,10 @@ Here are those tricky cuts I was talking about. The 4x4s will be the top part of
 
 ![](/uploads/in-progress-dining-table-build-diy-3.jpg)
 
+One of the most important things we're going to do is sand. You'll want to sand the heck out of all this wood to make sure it's smooth and you don't pick up any splinters while you're eating. Start with really gritty sandpaper and finish off with super fine paper.
+
+I also bought an electric planer for this project and used it on the tabletop pieces. It quickly got rid of imperfections and I was able to align the pieces easily since cheaper wood is rarely perfect.
+
 **Step three** is gluing and clamping all of this wood together. I built the legs and glued the corners together then clamped them in place with corner clamps. This is also where you'll use liquid nails to glue two tabletop pieces together and clamp. Liquid nails is quite a bit stronger than wood glue and I trusted it to hold the longer boards together permanently. When that's dry, it's a good time to plane the wood to make sure your table is flat.
 
 ![](/uploads/in-progress-dining-table-build-diy-1.jpg)
