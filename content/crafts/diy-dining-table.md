@@ -131,3 +131,5 @@ Once your tabletop is screwed in then it's time to use it! After a couple of wee
 ![](/uploads/dining-table-finished-product-diy-woodworking-2.jpg)
 
 ![](/uploads/dining-table-finished-product-diy-woodworking-4.jpg)
+
+I hope you enjoy many dinners and game nights on your new, rustic dining room table! And you made it yourself!
