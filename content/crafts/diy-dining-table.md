@@ -98,7 +98,7 @@ Once the glue is dry, predrill then screw the legs in place for **step four**. I
 
 I added small L-brackets to the inside of the skirts where they connected to the legs for some extra stability.
 
-If there are any mistakes, now is the time to fix them with wood filler (before you put the tabletop on). Follow the directions on the bottle to the T and go ahead and stain if it says to do it immediately after drying.
+If there are any mistakes, now is the time to fix them with wood filler (before you put the tabletop on). Follow the directions on the bottle to the T and go ahead and stain if it says to do it immediately after drying. I also used wood filler in the obvious screw holes.
 
 ![](/uploads/in-progress-dining-table-build-diy-8.jpg)
 
