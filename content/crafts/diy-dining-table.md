@@ -104,8 +104,14 @@ Here is when I realized the table was a little too short and it was because of t
 
 Please ignore the stain, but you can see the feet I added at the bottom more easily.
 
-Now it's time for **step** **six** which is staining. I bought several samples of stains because I wanted to make sure I loved it since this is a huge piece of furniture. I went with red oak and it came out gorgeous IMO.
+Now it's time for **step** **six** which is staining. I bought several samples of stains because I wanted to make sure I loved it since this is a huge piece of furniture. I went with red oak and it came out gorgeous IMO. The stain hit the graining so beautifully. It kind of looks like the Japanese wood-burning technique of shou sugi ban, which was a happy accident.
+
+![](/uploads/in-progress-dining-table-build-diy-12.jpg)
+
+**Step seven** is putting the actual table on. Originally, I was going to leave a 1" gap between my two "solid" boards but decided against it when I put them on the table. If you decide to, remember to account for that when you're measuring. I drilled in from the bottom and into the tabletop so I wouldn't have any screws showing on the top. PREDRILL!!
 
 ![](/uploads/in-progress-dining-table-build-diy-9.jpg)
 
 ![](/uploads/in-progress-dining-table-build-diy-10.jpg)
+
+I decided to attach the tabletop inside the house because it was so heavy. I can lift the frame fine on my own, but those hefty 2x10s probably add about 60 pounds.
