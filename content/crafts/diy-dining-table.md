@@ -120,4 +120,4 @@ After the stain is dry, you'll want to put several coats of poly on your table t
 
 I decided to attach the tabletop inside the house because it was so heavy. I can lift the frame fine on my own, but those hefty 2x10s probably add about 60 pounds. I used four screws along the bottom of the 4x4 and made sure one went into each individual board.
 
-Once your tabletop is screwed in
+Once your tabletop is screwed in then it's time to use it!
