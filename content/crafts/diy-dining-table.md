@@ -27,7 +27,7 @@ Let's get started.
 
 ## Supplies
 
- 1. 2x4x8
+ 1. 2x4x8 (x6)
  2. 4x4x8 (x1)
  3. 2x10x8 (x4)
  4. Miter saw
