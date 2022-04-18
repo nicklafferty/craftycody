@@ -1,5 +1,5 @@
 +++
-date = ""
+date = 2022-04-18T05:00:00Z
 description = "Fed up with overpriced retail? Make your own."
 draft = true
 image = "/uploads/dining-table-diy-header.png"
