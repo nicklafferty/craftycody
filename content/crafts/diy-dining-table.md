@@ -94,6 +94,10 @@ If there are any mistakes, now is the time to fix them with wood filler (before 
 
 Here is when I realized the table was a little too short and it was because of the skirts. So, if you don't want to adjust the height, then drill in your skirts horizontally instead of vertically as I did. What I did to correct the height was add feet to the base. I had extra 2x4 scraps from this project and took a couple of them, cut them in half, then glued two under the base piece of each leg to make semi-modern, wide feet. It gave me an extra 1.5-inches and should fit most, if not all, dining chairs now. The feet are a little over 10.5-inches long each but can be any size.
 
+![](/uploads/in-progress-dining-table-build-diy-11.jpg)
+
+Please ignore the stain, but you can see the feet I added at the bottom more easily.
+
 Now it's time for **step** **six** and putting the actual table on. Originally, I was going to leave a 1" gap between my two "solid" boards but decided against it when I put them on the table. If you decide to, remember to account for that when you're measuring. I drilled in from the bottom and into the tabletop so I wouldn't have any screws showing on the top. PREDRILL!!
 
 ![](/uploads/in-progress-dining-table-build-diy-9.jpg)
