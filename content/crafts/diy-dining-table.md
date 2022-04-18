@@ -100,7 +100,7 @@ If there are any mistakes, now is the time to fix them with wood filler (before 
 
 ![](/uploads/in-progress-dining-table-build-diy-8.jpg)
 
-Here is when I realized the table was a little too short and it was because of the skirts. So, if you don't want to adjust the height, then drill in your skirts horizontally instead of vertically as I did. What I did to correct the height was add feet to the base. I had extra 2x4 scraps from this project and took a couple of them, cut them in half, then glued two under the base piece of each leg to make semi-modern, wide feet. It gave me an extra 1.5-inches and should fit most, if not all, dining chairs now. The feet are a little over 10.5-inches long each but can be any size.
+Here is when I realized the table was a little too short and it was because of the skirts. So, if you don't want to adjust the height, then drill in your skirts horizontally instead of vertically as I did. What I did to correct the height was add feet to the base. I had extra 2x4 scraps from this project and took a couple of them, cut them in half, then glued two under the base piece of each leg to make semi-modern, wide feet. It gave me an extra 1.5-inches and should fit most, if not all, dining chairs now. The feet are a little over 10.5-inches long each but can be any size. My dining chairs have a seat heat of 19-inches.
 
 ![](/uploads/in-progress-dining-table-build-diy-11.jpg)
 
