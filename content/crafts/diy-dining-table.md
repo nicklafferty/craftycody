@@ -9,6 +9,8 @@ title = "DIY: Dining Table for under $200"
 +++
 {{< youtube id_here_please >}}
 
+Update: Just added a [PDF for purchase](https://www.etsy.com/listing/1218222211/dining-table-woodworking-plans-rustic?click_key=ee412383fbe103149cd6c5a9c05650cbc5557bf2%3A1218222211&click_sum=6e02ec8e&ref=shop_home_active_1) in my Etsy shop!
+
 First up, I'm not going to make chairs. No way. I will, however, be making a matching bench and that's one side of seating settled at least.
 
 And second, you read that right, we're going to build an 8-foot long dining table for under $200. I kept the receipts so you can check.
