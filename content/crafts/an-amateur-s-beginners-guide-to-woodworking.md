@@ -12,12 +12,14 @@ I have a lot of hobbies and sort of fell into woodworking after we bought our ho
 
 Until now.
 
-Tools
+Now I have a whole house I can do what I want to with. Well, not whatever I want, but close to it.
 
-Skills
+## Starter Tools
 
-What I like to build
+## Skills
 
-First Project
+## What I like to build
 
-Practice makes Confidence
+## First Project
+
+## Practice makes Confidence
