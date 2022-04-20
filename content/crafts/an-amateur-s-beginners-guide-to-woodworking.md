@@ -38,6 +38,8 @@ Having been doing this for about a year, I would say my favorite tool is my [mit
 
 ## Skills
 
+The willingness to learn and take safety seriously. There is a plethora of info out there (for free) so take advantage of it.
+
 ## What I like to build
 
 ## First Project
