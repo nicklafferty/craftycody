@@ -34,8 +34,8 @@ I'm going to make all of it. For less. And you can too.
 
 ## First Project
 
-You've got something from IKEA, we all do, and I can almost guarantee it's one of those cubby shelving units i.e. the kallax.
+You've got something from IKEA, we all do, and I can almost guarantee it's one of those cubby shelving units i.e. the kallax. They're cheap, incredibly functional, and come in enough colors to suit most tastes. They're also, however, unmistakable and if you're wanting a more "grown-up" look then you have to glam that thing up.
 
-There are absolutely _tons_ of IKEA hacks out there that you can try and most of them are beginner-friendly.
+There are absolutely _tons_ of IKEA hacks out there that you can try and most of them are beginner-friendly. People are wickedly creative so you'll be able to find another use for your kallax. I did! [I built simple cabinet doors](https://craftycody.com/crafts/doors-ikea-kallax/) and attached them to mine. Now all the electronics are hidden and I didn't have to buy a new TV stand from Article.
 
 ## Practice makes Confidence
