@@ -30,7 +30,7 @@ I'm going to make all of it. For less. And you can too.
 
 I was going to make a YouTube series called "Just a Jig" where I make a bunch of stuff primarily using, you guessed it, a jigsaw. The point is you don't need a lot of expensive, specialty tools to get into woodworking.
 
-The essentials for me were a jigsaw and a drill.
+The essentials for me at the beginning were a jigsaw and a drill.
 
 ## Skills
 
