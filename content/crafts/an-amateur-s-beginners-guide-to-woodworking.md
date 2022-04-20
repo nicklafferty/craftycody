@@ -14,6 +14,8 @@ Until now.
 
 Now I have a whole house I can do what I want to with. Well, not whatever I want, but close to it.
 
+My husband and I are very frugal people and, as such, it's difficult for us to bite the bullet on more expensive, luxury items- like getting a new couch for example. Our couch is in great shape but doesn't match the home's aesthetic in the least. This bothers me much more than my husband and I get tired of what I call our "college chic" decor. I'm not looking to run out and buy the [Cloud from Restoration Hardware](https://rh.com/catalog/category/products.jsp?categoryId=cat6120041), but it would be nice to have something we picked out that wasn't a free hand me down.
+
 ## Starter Tools
 
 ## Skills
