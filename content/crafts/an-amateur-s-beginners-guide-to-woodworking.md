@@ -36,6 +36,8 @@ The essentials for me at the beginning were a [jigsaw](https://www.amazon.com/DE
 
 Having been doing this for about a year, I would say my favorite tool is my [miter saw](https://www.amazon.com/DEWALT-12-Inch-15-Amp-Compound-DWS715/dp/B07P8QTFRC/ref=sr_1_5?crid=Q4A1BPQD5PJX&amp;keywords=dewalt%252Bmiter%252Bsaw&amp;qid=1650489519&amp;sprefix=dewalt%252Bmiter%252Bsaw%252Caps%252C116&amp;sr=8-5&amp;th=1&_encoding=UTF8&tag=craftycody-20&linkCode=ur2&linkId=9e879a66d4320d7337c26ab4bffa5b16&camp=1789&creative=9325). The ability to make straight or angled cuts is life-changing and really speeds up the work.
 
+You'll also notice I'm linking to a lot of Dewalt tools. I'd suggest sticking with a brand and running with it as best you can because you don't want to end up with 15 different batteries that only fit into one or two tools.
+
 ## Skills
 
 The willingness to learn and take safety seriously. There is a plethora of info out there (for free) so take advantage of it.
