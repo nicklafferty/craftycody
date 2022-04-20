@@ -8,6 +8,8 @@ tags = []
 title = "An amateur's Beginners Guide to Woodworking"
 
 +++
+_Note: The affiliate links are to products I like and use. I make a small commission with purchase, but it does not charge you._
+
 I have a lot of hobbies and sort of fell into woodworking after we bought our home. I always wanted to try building things, but since we rented, it didn't make sense to me to buy a lot of tools to make projects I'd have to move later. I also couldn't make any permanent changes to the place we were in.
 
 Until now.
@@ -30,7 +32,7 @@ I'm going to make all of it. For less. And you can too.
 
 I was going to make a YouTube series called "Just a Jig" where I make a bunch of stuff primarily using, you guessed it, a jigsaw. The point is you don't need a lot of expensive, specialty tools to get into woodworking.
 
-The essentials for me at the beginning were a jigsaw and a drill.
+The essentials for me at the beginning were a [jigsaw](https://www.amazon.com/DEWALT-DCS334B-Brushless-Tool-Only/dp/B07JPFHQKG/ref=sr_1_4_mod_primary_new?crid=1OP8OZBARKV6M&amp;keywords=dewalt+jigsaw&amp;qid=1650489218&amp;sbo=RZvfv%252F%252FHxDF%252BO5021pAnSA%253D%253D&amp;sprefix=dewalt+jigsaw%252Caps%252C107&amp;sr=8-4&_encoding=UTF8&tag=craftycody-20&linkCode=ur2&linkId=aa92cbf892e257eeb9fff82eddb0468b&camp=1789&creative=9325) and a [drill](https://www.amazon.com/DEWALT-DCK240C2-Lithium-Driver-Impact/dp/B00IJ0ALYS/ref=sr_1_5?crid=1HJ6Q2HYDAT0G&amp;keywords=dewalt%252Bdrill&amp;qid=1650489329&amp;sprefix=dewalt%252Bdrill%252Caps%252C106&amp;sr=8-5&amp;th=1&_encoding=UTF8&tag=craftycody-20&linkCode=ur2&linkId=5ca24bdef1088287203179922d9e79b6&camp=1789&creative=9325).
 
 ## Skills
 
