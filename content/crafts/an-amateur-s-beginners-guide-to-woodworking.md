@@ -51,3 +51,5 @@ There are absolutely _tons_ of IKEA hacks out there that you can try and most of
 [I made a simple knife block](https://craftycody.com/crafts/kinfe-block-diy/) with just a jigsaw, wood, and glue that's a great way to get your feet wet.
 
 ## Practice makes Confidence
+
+This is so important. As with anything, working more with power tools and familiarizing yourself with them will lead to you building confidence in your skills. I started with [super simple bathroom shelves](https://craftycody.com/crafts/diy-floating-shelves/) a year ago and last week I built us a [dining room table](https://craftycody.com/crafts/diy-dining-table-ikea-dupe/).
