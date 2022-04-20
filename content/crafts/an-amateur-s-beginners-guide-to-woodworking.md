@@ -34,4 +34,6 @@ I'm going to make all of it. For less. And you can too.
 
 ## First Project
 
+You've got something from IKEA, we all do, and I can almost guarantee it's one of those cubby shelving units i.e. the kallax.
+
 ## Practice makes Confidence
