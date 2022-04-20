@@ -36,4 +36,6 @@ I'm going to make all of it. For less. And you can too.
 
 You've got something from IKEA, we all do, and I can almost guarantee it's one of those cubby shelving units i.e. the kallax.
 
+There are absolutely _tons_ of IKEA hacks out there that you can try and most of them are beginner-friendly.
+
 ## Practice makes Confidence
