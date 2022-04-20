@@ -18,6 +18,8 @@ My husband and I are very frugal people and, as such, it's difficult for us to b
 
 To be fair, I do have a similar mindset to my husband. It's difficult to pay a lot of money for something just because it _looks_ better than what you have. I've always had this mentality and it's culminated into my love of crafting. Like I said earlier, I have a lot of hobbies and most of them stem from the idea that I can "make" something just as good as the thing I would have bought.
 
+This leads me back to our "college chic" decor problem. We have a lot of free or cheap furniture we either brought with us when we moved in together or we found soon after. We really haven't bought a lot of furniture, which was fine. We were starting out, not making oodles of money, and just enjoying this new adventure. Fast forward eight years and I'm tired of looking at the same stuff that was in our first apartment.
+
 ## Starter Tools
 
 ## Skills
