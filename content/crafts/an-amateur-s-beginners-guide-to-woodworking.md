@@ -62,4 +62,4 @@ This is so important. As with anything, working more with power tools and famili
 
 I think woodworking can come off as expensive, time-consuming, and, frankly, is a stereotypically male-dominated hobby. I bought a bunch of tools this past Christmas during a sale Lowe's was having. While carrying them out to my car a guy walking into the store smiled and said, "Someone is going to have a good Christmas!" insinuating my husband. I smiled back and said, "Yeah, me!" He wasn't being a jerk, but it does speak to my point.
 
-It can seem unapproachable, but just about anyone can do it. It's about starting with small goals and working your way up. I was really scared of saws before I started, now I'm making all kinds of weirdo cuts with my miter saw.
+It can seem unapproachable, but just about anyone can do it. It's about starting with small goals and working your way up. I've had tons of women tell me how scared of power tools they are. I get it! They're sharp, fast, and can take a finger off in an instant. I was really scared of saws before I started, now I'm making all kinds of weirdo cuts with my miter saw.
