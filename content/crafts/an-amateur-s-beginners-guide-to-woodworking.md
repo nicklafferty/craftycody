@@ -19,3 +19,5 @@ Skills
 What I like to build
 
 First Project
+
+Practice makes Confidence
