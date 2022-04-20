@@ -20,6 +20,12 @@ To be fair, I do have a similar mindset to my husband. It's difficult to pay a l
 
 This leads me back to our "college chic" decor problem. We have a lot of free or cheap furniture we either brought with us when we moved in together or we found soon after. We really haven't bought a lot of furniture, which was fine. We were starting out, not making oodles of money, and just enjoying this new adventure. Fast forward eight years and I'm tired of looking at the same stuff that was in our first apartment.
 
+So, what am I going to do? Run out and buy a $2000 dining set? A $3000 couch? $800 TV stand? 
+
+No, of course not.
+
+I'm going to make all of it. For less. And you can too.
+
 ## Starter Tools
 
 ## Skills
