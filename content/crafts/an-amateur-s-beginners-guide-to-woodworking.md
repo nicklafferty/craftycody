@@ -44,6 +44,8 @@ The willingness to learn and take safety seriously. There is a plethora of info 
 
 Dupes of expensive stuff I see online. I like working backward from a finished product and figuring out how to make it myself for less.
 
+Trying to build something you find is also a good way to get measurements. Like what's a good height for a TV stand? You don't want to be looking up at the ceiling, but not down at the floor either.
+
 ## First Project
 
 You've got something from IKEA, we all do, and I can almost guarantee it's one of those cubby shelving units i.e. the kallax. They're cheap, incredibly functional, and come in enough colors to suit most tastes. They're also, however, unmistakable and if you're wanting a more "grown-up" look then you have to glam that thing up.
