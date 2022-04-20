@@ -28,6 +28,8 @@ I'm going to make all of it. For less. And you can too.
 
 ## Starter Tools
 
+I was going to make a YouTube series called "Just a Jig" where I make a bunch of stuff primarily using, you guessed it, a jig saw.
+
 ## Skills
 
 ## What I like to build
@@ -38,6 +40,6 @@ You've got something from IKEA, we all do, and I can almost guarantee it's one o
 
 There are absolutely _tons_ of IKEA hacks out there that you can try and most of them are beginner-friendly. People are wickedly creative so you'll be able to find another use for your kallax. I did! [I built simple cabinet doors](https://craftycody.com/crafts/doors-ikea-kallax/) and attached them to mine. Now all the electronics are hidden and I didn't have to buy a new TV stand from Article.
 
-[I made a simple knife block](https://craftycody.com/crafts/kinfe-block-diy/) with just a jigsaw, wood, and glue that's a great way to get your feet wet.
+[I made a simple knife block](https://craftycody.com/crafts/kinfe-block-diy/) with just a jig saw, wood, and glue that's a great way to get your feet wet.
 
 ## Practice makes Confidence
