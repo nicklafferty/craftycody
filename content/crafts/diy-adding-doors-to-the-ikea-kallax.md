@@ -7,8 +7,9 @@ tags = ["diy", "video"]
 title = "DIY: Adding doors to the Ikea Kallax"
 
 +++
-
 {{< youtube T1iJojWji2Y >}}
+
+Update: I now have[ nice PDF plans available on Etsy](https://www.etsy.com/listing/1218716335/cabinet-doors-woodworking-plans-mod-for?ref=listings_manager_grid) for these cabinet doors!
 
 There are tons of "Ikea hacks" out there that help spruce up Ikea furniture and probably none more than the Kallax shelving unit. These things are super affordable and versatile. So much so that we have three of them.
 
