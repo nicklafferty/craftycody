@@ -32,15 +32,17 @@ I'm going to make all of it. For less. And you can too.
 
 I was going to make a YouTube series called "Just a Jig" where I make a bunch of stuff primarily using, you guessed it, a jigsaw. The point is you don't need a lot of expensive, specialty tools to get into woodworking.
 
-The essentials for me at the beginning were a [jigsaw](https://www.amazon.com/DEWALT-DCS334B-Brushless-Tool-Only/dp/B07JPFHQKG/ref=sr_1_4_mod_primary_new?crid=1OP8OZBARKV6M&amp;keywords=dewalt+jigsaw&amp;qid=1650489218&amp;sbo=RZvfv%252F%252FHxDF%252BO5021pAnSA%253D%253D&amp;sprefix=dewalt+jigsaw%252Caps%252C107&amp;sr=8-4&_encoding=UTF8&tag=craftycody-20&linkCode=ur2&linkId=aa92cbf892e257eeb9fff82eddb0468b&camp=1789&creative=9325) and a [drill](https://www.amazon.com/DEWALT-DCK240C2-Lithium-Driver-Impact/dp/B00IJ0ALYS/ref=sr_1_5?crid=1HJ6Q2HYDAT0G&amp;keywords=dewalt%252Bdrill&amp;qid=1650489329&amp;sprefix=dewalt%252Bdrill%252Caps%252C106&amp;sr=8-5&amp;th=1&_encoding=UTF8&tag=craftycody-20&linkCode=ur2&linkId=5ca24bdef1088287203179922d9e79b6&camp=1789&creative=9325).
+The essentials for me at the beginning were a [jigsaw](https://www.amazon.com/DEWALT-DCS334B-Brushless-Tool-Only/dp/B07JPFHQKG/ref=sr_1_4_mod_primary_new?crid=1OP8OZBARKV6M&keywords=dewalt+jigsaw&qid=1650489218&sbo=RZvfv%252F%252FHxDF%252BO5021pAnSA%253D%253D&sprefix=dewalt+jigsaw%252Caps%252C107&sr=8-4&_encoding=UTF8&tag=craftycody-20&linkCode=ur2&linkId=aa92cbf892e257eeb9fff82eddb0468b&camp=1789&creative=9325) and a [drill](https://www.amazon.com/DEWALT-DCK240C2-Lithium-Driver-Impact/dp/B00IJ0ALYS/ref=sr_1_5?crid=1HJ6Q2HYDAT0G&keywords=dewalt%252Bdrill&qid=1650489329&sprefix=dewalt%252Bdrill%252Caps%252C106&sr=8-5&th=1&_encoding=UTF8&tag=craftycody-20&linkCode=ur2&linkId=5ca24bdef1088287203179922d9e79b6&camp=1789&creative=9325).
 
-Having been doing this for about a year, I would say my favorite tool is my [miter saw](https://www.amazon.com/DEWALT-12-Inch-15-Amp-Compound-DWS715/dp/B07P8QTFRC/ref=sr_1_5?crid=Q4A1BPQD5PJX&amp;keywords=dewalt%252Bmiter%252Bsaw&amp;qid=1650489519&amp;sprefix=dewalt%252Bmiter%252Bsaw%252Caps%252C116&amp;sr=8-5&amp;th=1&_encoding=UTF8&tag=craftycody-20&linkCode=ur2&linkId=9e879a66d4320d7337c26ab4bffa5b16&camp=1789&creative=9325). The ability to make straight or angled cuts is life-changing and really speeds up the work.
+Having been doing this for about a year, I would say my favorite tool is my [miter saw](https://www.amazon.com/DEWALT-12-Inch-15-Amp-Compound-DWS715/dp/B07P8QTFRC/ref=sr_1_5?crid=Q4A1BPQD5PJX&keywords=dewalt%252Bmiter%252Bsaw&qid=1650489519&sprefix=dewalt%252Bmiter%252Bsaw%252Caps%252C116&sr=8-5&th=1&_encoding=UTF8&tag=craftycody-20&linkCode=ur2&linkId=9e879a66d4320d7337c26ab4bffa5b16&camp=1789&creative=9325). The ability to make straight or angled cuts is life-changing and really speeds up the work.
 
 You'll also notice I'm linking to a lot of Dewalt tools. I'd suggest sticking with a brand and running with it as best you can because you don't want to end up with 15 different batteries that only fit into one or two tools.
 
 ## Skills
 
 The willingness to learn and take safety seriously. There is a plethora of info out there (for free) so take advantage of it.
+
+I'm crafty by nature, so that lends itself to whatever hobby I decide to pick up. However, I don't have any formal training in woodworking. I guess I took a shop class in eighth grade, but that was about 20 years ago now.
 
 ## What I like to build
 
