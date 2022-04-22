@@ -44,9 +44,11 @@ The willingness to learn and take safety seriously. There is a plethora of info 
 
 I'm crafty by nature, so that lends itself to whatever hobby I decide to pick up. However, I don't have any formal training in woodworking. I guess I took a shop class in eighth grade, but that was about 20 years ago now.
 
+I look up lots of things on YouTube, it's such an amazing resource. There are also websites that offer classes like [Udemy ](https://www.udemy.com/)and [Skillshare](https://www.skillshare.com/). As I'm getting more confident in my abilities, I've been thinking about taking a more formal class to learn from a professional.
+
 ## What I like to build
 
-Dupes of expensive stuff I see online. I like working backward from a finished product and figuring out how to make it myself for less.
+Dupes of expensive stuff I see online. I like working backward from a finished product and figuring out how to make it myself for less money.
 
 Trying to build something you find is also a good way to get measurements. Like what's a good height for a TV stand? You don't want to be looking up at the ceiling, but not down at the floor either.
 
