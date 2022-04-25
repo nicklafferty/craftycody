@@ -25,7 +25,9 @@ Supplies
  7. Ruler and speed square
  8. Sander
  9. Planer (if needed)
-10. Stain
-11. Safety glasses and earmuffs
+10. Clamps
+11. Wood glue
+12. Stain
+13. Safety glasses and earmuffs
 
 How to
