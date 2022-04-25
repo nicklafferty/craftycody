@@ -12,6 +12,8 @@ I like how benches look when paired with chairs at a dining room table. I also l
 
 Benches are also handy for storing and putting on shoes. I plan to put ours by our coat closest when not in use, then pull it up to the table when we have several guests over which will be exactly once a year at Christmas.
 
+While this bench is totally customizable, I am making it to match the [dining table I built](https://craftycody.com/crafts/diy-dining-table-ikea-dupe/) a couple of weeks ago. It'll have the same vibe and will be a simple build. No weird cuts on the miter saw this time!
+
 Supplies
 
 How to
