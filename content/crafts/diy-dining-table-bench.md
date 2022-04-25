@@ -16,12 +16,16 @@ While this bench is totally customizable, I am making it to match the [dining ta
 
 Supplies
 
-1. 2x12x8 (x1)
-2. 2x4x8 (x2)
-3. 2x4x4 (x1)
-4. Miter saw
-5. Ruler and speed square
-6. Sander
-7. Planer (if needed)
+ 1. 2x12x8 (x1)
+ 2. 2x4x8 (x2)
+ 3. 2x4x4 (x1)
+ 4. Miter saw
+ 5. Drill
+ 6. Screws
+ 7. Ruler and speed square
+ 8. Sander
+ 9. Planer (if needed)
+10. Stain
+11. Safety glasses and earmuffs
 
 How to
