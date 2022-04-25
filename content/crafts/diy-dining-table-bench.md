@@ -14,7 +14,7 @@ Benches are also handy for storing and putting on shoes. I plan to put ours by o
 
 While this bench is totally customizable, I am making it to match the [dining table I built](https://craftycody.com/crafts/diy-dining-table-ikea-dupe/) a couple of weeks ago. It'll have the same vibe and will be a simple build. No weird cuts on the miter saw this time! However, keep this in mind when it comes to the measurements. If you're making this for a table you already have, be sure to adjust the length and height as necessary to fit.
 
-Supplies
+## Supplies:
 
  1. 2x12x8 (x1)
  2. 2x4x8 (x2)
@@ -28,6 +28,7 @@ Supplies
 10. Clamps
 11. Wood glue
 12. Stain
-13. Safety glasses and earmuffs
+13. Polyurethane
+14. Safety glasses and earmuffs
 
-How to
+## How-to:
