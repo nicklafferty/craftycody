@@ -12,7 +12,7 @@ First, here's the [link to Angela Marie Made's tutorial for a DIY blanket ladder
 
 I like reviewing projects because it grows my own skills as well as figuring out how to make my DIYs better. 
 
-I've been looking for some kind of blanket display for a while and liked the idea of a ladder because they're tall, so they make a statement in a room, but they also have a low profile.
+I've been looking for some kind of blanket display for a while and liked the idea of a ladder because they're tall, so they make a statement in a room, but they also have a low profile. I also enjoy crocheting, so I have a few handmade blankets I'd like to show off.
 
 ## Review:
 
