@@ -23,3 +23,5 @@ I'm happy this project uses spade bits. I bought a set for a previous project of
 For me, the toughest part was aligning the pegs into the second board after gluing them into the first. It also doesn't help that cheaper wood is usually pretty warped and when you get one side in, the other side pops out. Working top-down like that is a pain, but I don't know a better way to do it.
 
 The other tough part was staining, but I don't like staining anyway. It's messy, smelly, time-consuming, and takes forever to dry. Bleh.
+
+I think if I were to remake this project I would screw in the rungs to the sides. I trust wood glue, but there's potential for this to become loose over time. Predrill a hole through the side and into the rung, then drill in a small screw. You can hide the screw hole with wood filler or a small dowel.
