@@ -14,7 +14,7 @@ I like reviewing projects because it grows my own skills as well as figuring out
 
 I've been looking for some kind of blanket display for a while and liked the idea of a ladder because they're tall, so they make a statement in a room, but they also have a low profile.
 
-Review:
+## Review:
 
 Overall, I don't have any complaints or critiques about this project. It's simple and to the point and she does a great job explaining each step. There is also an accompanying video as well as a free PDF of the plans.
 
