@@ -4,7 +4,7 @@ description = "Reviewing a blanket ladder tutorial by AngelaMarieMade.com"
 draft = true
 image = ""
 slug = ""
-tags = []
+tags = ["review"]
 title = "Review: DIY Blanket Ladder"
 
 +++
