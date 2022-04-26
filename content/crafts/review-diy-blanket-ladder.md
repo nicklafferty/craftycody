@@ -14,4 +14,6 @@ I like reviewing projects because it grows my own skills as well as figuring out
 
 I'm happy this project uses spade bits. I bought a set for a previous project of mine and haven't needed them since. It was fun to get them out again.
 
-For me, the toughest part was aligning the pegs into the second board after gluing them into the first. Working top-down like that is a pain, but I don't know a better way to do it.
+For me, the toughest part was aligning the pegs into the second board after gluing them into the first. It also doesn't help that cheaper wood is usually pretty warped and when you get one side in, the other side pops out. Working top-down like that is a pain, but I don't know a better way to do it.
+
+The other tough part was staining, but I don't like staining anyway. It's messy, smelly, time-consuming, and takes forever to dry. Bleh.
