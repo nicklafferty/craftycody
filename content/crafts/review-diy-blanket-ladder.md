@@ -1,6 +1,6 @@
 +++
 date = ""
-description = "Reviewing the blanket ladder tutorial by AngelaMarieMade.com"
+description = "Reviewing a blanket ladder tutorial by AngelaMarieMade.com"
 draft = true
 image = ""
 slug = ""
