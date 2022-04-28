@@ -21,14 +21,16 @@ While this bench is totally customizable, I am making it to match the [dining ta
  3. 2x4x4 (x1)
  4. Miter saw
  5. Drill
- 6. Screws
- 7. Ruler and speed square
- 8. Sander
- 9. Planer (if needed)
-10. Clamps
-11. Wood glue
-12. Stain
-13. Polyurethane
-14. Safety glasses and earmuffs
+ 6. Wood screws (3in and 4in)
+ 7. Pocket screws (2.5in)
+ 8. Ruler and speed square
+ 9. Sander
+10. Planer (if needed)
+11. Pocket hole jig
+12. Clamps
+13. Wood glue
+14. Stain
+15. Polyurethane
+16. Safety glasses and earmuffs
 
 ## How-to:
