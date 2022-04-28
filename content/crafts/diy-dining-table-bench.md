@@ -4,7 +4,7 @@ description = "Adding a matching (and affordable) bench to your dining table."
 draft = true
 image = ""
 slug = ""
-tags = ["diy"]
+tags = ["diy", "video"]
 title = "DIY: Dining table bench"
 
 +++
@@ -58,3 +58,5 @@ Once it's all attached, flip it back around and put it on the ground to make sur
 Now, it's time to stain. I used the same stain as the table- red oak by Minwax. I did the legs and the underside first, let it dry, flipped, then did the top. My technique is to brush on the stain and then immediately wipe with a shop rag. You can always make it darker, but it's hard to go lighter! I did one coat of stain.
 
 When that's dry, put a few layers of poly on. Brush on, dry, sand with 220-grit paper, then put on another coat. I did two coats and didn't sand after the last coat.
+
+Dry, dry, dry, and it's done!
