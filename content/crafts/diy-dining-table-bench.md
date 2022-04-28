@@ -36,3 +36,7 @@ While this bench is totally customizable, I am making it to match the [dining ta
 ## How-to:
 
 I started off by having the employees at Lowe's cut a 5-ft section off of my 2x12. The shortest board they had was 12-ft and I a.) couldn't fit that into my car and b.) it would be difficult to cut at home.
+
+Other than that, this bench is very simple and won't take near as long to complete as the matching table.
+
+The legs are the same basic frame as the table: four 2x4 pieces cut at 45-degrees and screwed together. We're going to cut eight pieces at
