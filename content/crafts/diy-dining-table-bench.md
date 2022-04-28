@@ -32,7 +32,8 @@ While this bench is totally customizable, I am making it to match the [dining ta
 14. Wood filler (if needed)
 15. Stain
 16. Polyurethane
-17. Safety glasses and earmuffs
+17. Brush/rags
+18. Safety glasses and earmuffs
 
 ## How-to:
 
