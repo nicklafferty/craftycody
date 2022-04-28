@@ -16,9 +16,9 @@ While this bench is totally customizable, I am making it to match the [dining ta
 
 ## Supplies:
 
- 1. 2x12x8 (x1)
- 2. 2x4x8 (x2)
- 3. 2x4x4 (x1)
+ 1. 2x12x8 (x1) (bench)
+ 2. 2x4x8 (x2) (legs)
+ 3. 2x4x4 (x1) (spine connecting legs)
  4. Miter saw
  5. Drill
  6. Wood screws (3in and 4in)
@@ -34,3 +34,5 @@ While this bench is totally customizable, I am making it to match the [dining ta
 16. Safety glasses and earmuffs
 
 ## How-to:
+
+I started off by having the employees at Lowe's cut a 5-ft section off of my 2x12. The shortest board they had was 12-ft and I a.) couldn't get that into my car and b.) it would be difficult to cut at home.
