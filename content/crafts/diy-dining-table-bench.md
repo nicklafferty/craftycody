@@ -21,7 +21,7 @@ While this bench is totally customizable, I am making it to match the [dining ta
  3. 2x4x4 (x1) (spine connecting legs)
  4. Miter saw
  5. Drill
- 6. Wood screws (1.25in, 3in, and 4in)
+ 6. Wood screws (1.25in and 4in)
  7. Pocket screws (2.5in)
  8. Ruler and speed square
  9. Sander
