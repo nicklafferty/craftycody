@@ -35,4 +35,4 @@ While this bench is totally customizable, I am making it to match the [dining ta
 
 ## How-to:
 
-I started off by having the employees at Lowe's cut a 5-ft section off of my 2x12. The shortest board they had was 12-ft and I a.) couldn't get that into my car and b.) it would be difficult to cut at home.
+I started off by having the employees at Lowe's cut a 5-ft section off of my 2x12. The shortest board they had was 12-ft and I a.) couldn't fit that into my car and b.) it would be difficult to cut at home.
