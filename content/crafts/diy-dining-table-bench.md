@@ -47,3 +47,5 @@ Time to make the spine. This will connect the three legs and add support for the
 To connect the spine pieces to the legs, I thought the best course of action would be to drill in pocket holes. Pocket holes allow screws to create more secure connections versus drilling right through one board and into a second. 
 
 There are a lot of tutorials on YouTube where people explain it better than I can, but using a pocket hole jig is pretty simple. You use the included thickness measuring device to, well, measure the thickness of the wood. Then set the stopper on the included drill bit to that number and set the slider on the jig itself to the same number. I have the basic one-hole jig and clamped it onto my board then drilled in the holes one at a time making sure it was far enough from the edges.
+
+I clamped the spines one at a time to the middle leg and screwed in the pocket screws. Then clamped on the outside legs and repeated. You'll need a square drill bit to screw them in.
