@@ -37,4 +37,4 @@ While this bench is totally customizable, I am making it to match the [dining ta
 
 I started off by having the employees at Lowe's cut a 5-ft section off of my 2x12. The shortest board they had was 12-ft and I a.) couldn't fit that into my car and b.) it would be difficult to cut at home. This 5-ft piece will serve as the bench's seat.
 
-The legs are the same basic frame as the table: four 2x4 pieces cut at 45-degrees and screwed together. We're going to cut eight pieces at
+The legs are the same basic frame as the table: four 2x4 pieces cut at 45-degrees and screwed together. We're going to cut six pieces at 17.25-in and six pieces at 11.25-in. The shorter is the top and bottom with the longer creating the sides of the legs. The width is important here because it will make the legs flush with the seat since the actual measurements of a 2x12 are 1.5x11.25.
