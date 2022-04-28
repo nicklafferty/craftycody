@@ -29,9 +29,10 @@ While this bench is totally customizable, I am making it to match the [dining ta
 11. Pocket hole jig
 12. Clamps
 13. Wood glue
-14. Stain
-15. Polyurethane
-16. Safety glasses and earmuffs
+14. Wood filler (if needed)
+15. Stain
+16. Polyurethane
+17. Safety glasses and earmuffs
 
 ## How-to:
 
