@@ -1,9 +1,8 @@
 +++
-date = ""
+date = 2022-04-29T05:00:00Z
 description = "Reviewing a blanket ladder tutorial by AngelaMarieMade.com"
-draft = true
 image = "/uploads/blanket-ladder-diy-review.png"
-slug = ""
+slug = "diy-blanket-ladder-review"
 tags = ["review", "video", "diy"]
 title = "Review: DIY Blanket Ladder"
 
