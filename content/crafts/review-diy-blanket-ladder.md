@@ -37,3 +37,5 @@ The other tough part was staining, but I don't like staining anyway. It's messy,
 I think if I were to remake this project I would screw in the rungs to the sides. I trust wood glue, but there's potential for this to become loose over time. Predrill a hole through the side and into the rung, then drill in a small screw. You can hide the screw hole with wood filler or a small dowel.
 
 ![](/uploads/finished-blanket-ladder.jpg)
+
+Regardless of any modifications I'd make, this is a super cute DIY. You can build it in an afternoon and it creates a large statement piece that can work in with just about any decor.
