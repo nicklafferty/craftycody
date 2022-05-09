@@ -49,6 +49,8 @@ Glue and clamp the corners of the legs together then predrill some holes and scr
 
 ![](/uploads/building-bench-legs.jpg)
 
+![](/uploads/close-up-screws-bench.jpg)
+
 Time to make the spine. This will connect the three legs and add support for the seat. Take your smaller 2x4 and cut two pieces at 16.75-in long. The legs will be about 8-in in from either end.
 
 To connect the spine pieces to the legs, I thought the best course of action would be to drill in pocket holes. Pocket holes allow screws to create more secure connections versus drilling right through one board and into a second.
