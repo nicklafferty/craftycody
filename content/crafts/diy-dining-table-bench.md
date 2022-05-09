@@ -1,11 +1,10 @@
 +++
 date = 2022-05-09T05:00:00Z
 description = "Adding a matching (and affordable) bench to your dining table."
-draft = true
 image = "/uploads/dining-table-bench-diy.png"
 slug = "dining-table-bench-diy"
 tags = ["diy", "video"]
-title = "DIY: Dining table bench"
+title = "DIY: Rustic wood bench"
 
 +++
 
@@ -15,7 +14,9 @@ I like how benches look when paired with chairs at a dining room table. I also l
 
 Benches are also handy for storing and putting on shoes. I plan to put ours by our coat closest when not in use, then pull it up to the table when we have several guests over which will be exactly once a year at Christmas.
 
-While this bench is totally customizable, I am making it to match the [dining table I built](https://craftycody.com/crafts/diy-dining-table-ikea-dupe/) a couple of weeks ago. It'll have the same vibe and will be a simple build. No weird cuts on the miter saw this time! However, keep this in mind when it comes to the measurements. If you're making this for a table you already have, be sure to adjust the length and height as necessary to fit.
+While this wood bench is totally customizable, I am making it to match the [dining table I built](https://craftycody.com/crafts/diy-dining-table-ikea-dupe/) a couple of weeks ago. It'll have the same vibe and will be a simple build. No weird cuts on the miter saw this time! However, keep this in mind when it comes to the measurements. If you're making this for a table you already have, be sure to adjust the length and height as necessary to fit.
+
+You could also make it out of treated wood and/or seal it with a water sealer to make a great outdoor wooden bench.
 
 ## Supplies:
 
