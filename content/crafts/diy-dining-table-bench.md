@@ -43,7 +43,11 @@ I started off by having the employees at Lowe's cut a 5-ft section off of my 2x1
 
 The legs are the same basic frame as the table: four 2x4 pieces cut at 45-degrees and screwed together. We're making three legs in total. Cut six pieces at 17.25-in and six pieces at 11.25-in. The shorter is the top and bottom and the longer creates the sides of the legs. The width is important here because it will make the legs flush with the seat since the actual measurements of a 2x12 are 1.5x11.25.
 
+![](/uploads/cut-leg-pieces-bench.jpg)
+
 Glue and clamp the corners of the legs together then predrill some holes and screw them together. I did three screws per corner. Two 1.25-in screws into one side and a 4-in screw going in perpendicular to those.
+
+![](/uploads/building-bench-legs.jpg)
 
 Time to make the spine. This will connect the three legs and add support for the seat. Take your smaller 2x4 and cut two pieces at 16.75-in long. The legs will be about 8-in in from either end.
 
