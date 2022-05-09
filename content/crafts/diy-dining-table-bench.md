@@ -2,8 +2,8 @@
 date = ""
 description = "Adding a matching (and affordable) bench to your dining table."
 draft = true
-image = ""
-slug = ""
+image = "/uploads/dining-table-bench-diy.png"
+slug = "dining-table-bench-diy"
 tags = ["diy", "video"]
 title = "DIY: Dining table bench"
 
@@ -39,13 +39,15 @@ While this bench is totally customizable, I am making it to match the [dining ta
 
 I started off by having the employees at Lowe's cut a 5-ft section off of my 2x12. The shortest board they had was 12-ft and I a.) couldn't fit that into my car and b.) it would be difficult to cut at home. This 5-ft piece will serve as the bench's seat.
 
+![](/uploads/full-wood-pieces-for-bench.jpg)
+
 The legs are the same basic frame as the table: four 2x4 pieces cut at 45-degrees and screwed together. We're making three legs in total. Cut six pieces at 17.25-in and six pieces at 11.25-in. The shorter is the top and bottom and the longer creates the sides of the legs. The width is important here because it will make the legs flush with the seat since the actual measurements of a 2x12 are 1.5x11.25.
 
 Glue and clamp the corners of the legs together then predrill some holes and screw them together. I did three screws per corner. Two 1.25-in screws into one side and a 4-in screw going in perpendicular to those.
 
 Time to make the spine. This will connect the three legs and add support for the seat. Take your smaller 2x4 and cut two pieces at 16.75-in long. The legs will be about 8-in in from either end.
 
-To connect the spine pieces to the legs, I thought the best course of action would be to drill in pocket holes. Pocket holes allow screws to create more secure connections versus drilling right through one board and into a second. 
+To connect the spine pieces to the legs, I thought the best course of action would be to drill in pocket holes. Pocket holes allow screws to create more secure connections versus drilling right through one board and into a second.
 
 There are a lot of tutorials on YouTube where people explain it better than I can, but using a pocket hole jig is pretty simple. You use the included thickness measuring device to, well, measure the thickness of the wood. Then set the stopper on the included drill bit to that number and set the slider on the jig itself to the same number. I have the basic one-hole jig and clamped it onto my board then drilled in the holes one at a time making sure it was far enough from the edges.
 
@@ -60,3 +62,7 @@ Now, it's time to stain. I used the same stain as the table- red oak by Minwax. 
 When that's dry, put a few layers of poly on. Brush on, dry, sand with 220-grit paper, then put on another coat. I did two coats and didn't sand after the last coat.
 
 Dry, dry, dry, and it's done!
+
+![](/uploads/finished-bench-2.jpg)
+
+![](/uploads/finished-bench.jpg)
