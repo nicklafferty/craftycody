@@ -57,17 +57,21 @@ Time to make the spine. This will connect the three legs and add support for the
 
 To connect the spine pieces to the legs, I thought the best course of action would be to drill in pocket holes. Pocket holes allow screws to create more secure connections versus drilling right through one board and into a second.
 
-![](/uploads/pocket-holes-bench.jpg)
-
 There are a lot of tutorials on YouTube where people explain it better than I can, but using a pocket hole jig is pretty simple. You use the included thickness measuring device to, well, measure the thickness of the wood. Then set the stopper on the included drill bit to that number and set the slider on the jig itself to the same number. I have the basic one-hole jig and clamped it onto my board then drilled in the holes one at a time making sure it was far enough from the edges.
+
+![](/uploads/pocket-holes-bench.jpg)
 
 I clamped the spines one at a time to the middle leg and screwed in the pocket screws. Then clamped on the outside legs and repeated. You'll need a square drill bit to screw them in.
 
 I flipped the seat so the bottom was facing up and put the completed legs on top to attach. I predrilled holes on the legs and along the spine that were appropriate for my screws, then I took a 3/8-in bit and re-drilled 1-in into those same holes. Use painter's tape to mark 1-in on your drill bit. I did this because my 1.12-in screws wouldn't be able to go through the 2.x4s and into the actual bench seat. If you're using longer screws then you can skip this step. Remember it's about 3-in of wood between the legs and the seat, so be sure not to drill through.
 
+![](/uploads/attaching-legs-to-bench.jpg)
+
 Once it's all attached, flip it back around and put it on the ground to make sure it's level. I used a planer to shave off a bit of the leg bottoms so it sat flat. You could also use those felt pads for sliding furniture around to make it sit right.
 
 Now, it's time to stain. I used the same stain as the table- red oak by Minwax. I did the legs and the underside first, let it dry, flipped, then did the top. My technique is to brush on the stain and then immediately wipe with a shop rag. You can always make it darker, but it's hard to go lighter! I did one coat of stain.
+
+![](/uploads/staining-bench.jpg)
 
 When that's dry, put a few layers of poly on. Brush on, dry, sand with 220-grit paper, then put on another coat. I did two coats and didn't sand after the last coat.
 
