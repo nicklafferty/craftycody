@@ -7,8 +7,7 @@ tags = ["diy", "video"]
 title = "DIY: Rustic wood bench"
 
 +++
-
-{{< youtube id_here_please >}}
+{{< youtube JAwsI7JyCbA >}}
 
 I like how benches look when paired with chairs at a dining room table. I also like not having to buy eight chairs at $150 a pop. Six chairs are fine, thank you. Plus, this bench comes in at under $70.
 
