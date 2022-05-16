@@ -9,6 +9,8 @@ title = "DIY: Rustic wood bench"
 +++
 {{< youtube JAwsI7JyCbA >}}
 
+Update: I now have [plans as a downloadable PDF](https://www.etsy.com/listing/1234144631/bench-woodworking-plans-rustic-farmhouse?click_key=e59882b4493e9965eef77d0510ca20e36b4ef0fe%3A1234144631&click_sum=032c5de4&ref=shop_home_active_1) available for purchase on Etsy!
+
 I like how benches look when paired with chairs at a dining room table. I also like not having to buy eight chairs at $150 a pop. Six chairs are fine, thank you. Plus, this bench comes in at under $70.
 
 Benches are also handy for storing and putting on shoes. I plan to put ours by our coat closest when not in use, then pull it up to the table when we have several guests over which will be exactly once a year at Christmas.
