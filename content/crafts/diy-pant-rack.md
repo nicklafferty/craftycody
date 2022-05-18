@@ -39,9 +39,15 @@ Cut your 1x6 to 32 inches. The dowels I cut into 4-inch pegs then cut one end at
 
 Next, we need to mark where the pegs will be drilled into the board. I drew a line across the middle and marked 4-inches in for my first peg then spaced them 8-inches apart.
 
+![](/uploads/pilot-holes-drilled-in.jpg)
+
 I drilled pilot holes through these four spots using a 7/64" bit since I used #8 screws.
 
 Then, I glued the dowels in place over the holes I just made. I let the glue set for one hour before flipping the whole thing over and redrilling through those pilot holes and into the dowels through the back. I drilled at an angle since the dowels are at an angle and I didn't want the screws to poke through the wood.
+
+![](/uploads/pegs-glued-on-close-up.jpg)
+
+![](/uploads/pegs-glued-on.jpg)
 
 The screws went in pretty well and at the angle I needed them. No split wood or screws poking through. I also over-drilled them into the wood so that the board would lay flat against the wall. This isn't really a technique and just something I did. A pocket hole might work well here, but I went with brute force.
 
