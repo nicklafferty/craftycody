@@ -16,4 +16,7 @@ I made this entire project with scraps, so dig around in your wood bins and see 
 
 Supplies:
 
+1. 1x6 board
+2. 1.25" dowels
+
 How-to:
