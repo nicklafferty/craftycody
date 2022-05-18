@@ -2,9 +2,9 @@
 date = ""
 description = "Or pegs to hang your pants."
 draft = true
-image = ""
+image = "/uploads/pegwallcoathooksdiy.png"
 slug = ""
-tags = []
+tags = ["diy", "video"]
 title = "DIY: Peg wall coat hooks"
 
 +++
