@@ -51,4 +51,4 @@ I also wanted to be a little extra. Once the stain was dry, I marked 3/4" down t
 
 Anyway, it's time to add the hardware. I used two sawtooth hangers. Flipping it back over, I used a ruler and drew a line 1" down from the top. I just liked the ruler up with the edge and drew across the bottom for this, no actual measuring. I used this line to help make my hangers level.
 
- The nails used to attach these are microscopic, so grab a pair of needlenose pliers to hold the nails while you hammer. It makes it 1000x easier and you won't hit your fingers this way.
+The nails used to attach these are microscopic, so grab a pair of needlenose pliers to hold the nails while you hammer. It makes it 1000x easier and you won't hit your fingers this way.
