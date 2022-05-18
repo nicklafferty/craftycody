@@ -14,7 +14,7 @@ So recently, my husband asked me to build him a pant rack to hang his aforementi
 
 I made this entire project with scraps, so dig around in your wood bins and see what you have laying around. I was lucky enough to have a long, thin board and thick dowel rods in my scrap pile. The rest is a saw, drill, screws, glue, and stain. I build this in an afternoon, so it should be a quick project as well.
 
-Supplies:
+## Supplies:
 
  1. 1x6 board
  2. 1.25" dowels
@@ -29,4 +29,8 @@ Supplies:
 11. Shop rags
 12. Safety glasses, earmuffs, and gloves
 
-How-to:
+## How-to:
+
+Okay, this will be short and sweet.
+
+Cut your 1x6 to 32 inches. The dowels I cut into 4-inch pegs then cut one end at a 30-degree angle.
