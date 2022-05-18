@@ -51,7 +51,11 @@ Then, I glued the dowels in place over the holes I just made. I let the glue set
 
 The screws went in pretty well and at the angle I needed them. No split wood or screws poking through. I also over-drilled them into the wood so that the board would lay flat against the wall. This isn't really a technique and just something I did. A pocket hole might work well here, but I went with brute force.
 
+![](/uploads/with-4-nails-screwed-in.jpg)
+
 Now that the pegs are securely attached, it's time to stain. I went with 'red chestnut' by Minwax, but go with whatever you'd like. You can also paint it, of course. I stained both sides using a shop rag so the stain went on thin and dried quickly.
+
+![](/uploads/peg-board-without-tape.jpg)
 
 I also wanted to be a little extra. Once the stain was dry, I marked 3/4" down the pegs with painter's tape and painted the tips gold. I always pick gold with stain and I don't know why because you can't really see it. Either way, I think painting the ends of the dowels tidies them up and will help protect the clothes hanging on them.
 
