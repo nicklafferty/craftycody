@@ -16,8 +16,17 @@ I made this entire project with scraps, so dig around in your wood bins and see 
 
 Supplies:
 
-1. 1x6 board
-2. 1.25" dowels
-3. 
+ 1. 1x6 board
+ 2. 1.25" dowels
+ 3. Miter saw
+ 4. Drill
+ 5. 7/64" drill bit
+ 6. 1.25" screws #8
+ 7. Sawtooth hangers x2
+ 8. Wood glue
+ 9. Painters tape
+10. Stain and/or paint
+11. Shop rags
+12. Safety glasses, earmuffs, and gloves
 
 How-to:
