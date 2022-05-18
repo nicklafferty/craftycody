@@ -48,3 +48,7 @@ The screws went in pretty well and at the angle I needed them. No split wood or 
 Now that the pegs are securely attached, it's time to stain. I went with 'red chestnut' by Minwax, but go with whatever you'd like. You can also paint it, of course. I stained both sides using a shop rag so the stain went on thin and dried quickly.
 
 I also wanted to be a little extra. Once the stain was dry, I marked 3/4" down the pegs with painter's tape and painted the tips gold. I always pick gold with stain and I don't know why because you can't really see it. Either way, I think painting the ends of the dowels tidies them up and will help protect the clothes hanging on them.
+
+Anyway, it's time to add the hardware. I used two sawtooth hangers. Flipping it back over, I used a ruler and drew a line 1" down from the top. I just liked the ruler up with the edge and drew across the bottom for this, no actual measuring. I used this line to help make my hangers level.
+
+ The nails used to attach these are microscopic, so grab a pair of needlenose pliers to hold the nails while you hammer. It makes it 1000x easier and you won't hit your fingers this way.
