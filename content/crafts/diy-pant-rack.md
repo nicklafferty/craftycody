@@ -18,5 +18,6 @@ Supplies:
 
 1. 1x6 board
 2. 1.25" dowels
+3. 
 
 How-to:
