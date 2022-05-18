@@ -14,6 +14,8 @@ So recently, my husband asked me to build him a pant rack to hang his aforementi
 
 I made this entire project with scraps, so dig around in your wood bins and see what you have laying around. I was lucky enough to have a long, thin board and thick dowel rods in my scrap pile. The rest is a saw, drill, screws, glue, and stain. I build this in an afternoon, so it should be a quick project as well.
 
+While I'm using this for pants and a singular hoodie in my bedroom, you could also use this in an entryway for actual coats or hats. Be sure to hang onto studs and use appropriate hardware if you're planning on putting anything heavy on it like a full backpack.
+
 ## Supplies:
 
  1. 1x6 board
