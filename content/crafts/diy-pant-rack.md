@@ -3,7 +3,7 @@ date = ""
 description = "Or pegs to hang your pants."
 draft = true
 image = "/uploads/pegwallcoathooksdiy.png"
-slug = ""
+slug = "diy-peg-coat-hooks"
 tags = ["diy", "video"]
 title = "DIY: Peg wall coat hooks"
 
@@ -54,3 +54,7 @@ Anyway, it's time to add the hardware. I used two sawtooth hangers. Flipping it 
 The nails used to attach these are microscopic, so grab a pair of needlenose pliers to hold the nails while you hammer. It makes it 1000x easier and you won't hit your fingers this way.
 
 Now it's all done! Time to hang and, well, get to hanging!
+
+![](/uploads/finished-pant-rack-diy2.jpg)
+
+![](/uploads/finished-pant-rack-diy.jpg)
