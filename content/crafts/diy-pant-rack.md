@@ -24,7 +24,7 @@ Supplies:
  6. 1.25" screws #8
  7. Sawtooth hangers x2
  8. Wood glue
- 9. Painters tape
+ 9. Painters tape (optional)
 10. Stain and/or paint
 11. Shop rags
 12. Safety glasses, earmuffs, and gloves
