@@ -44,3 +44,5 @@ I drilled pilot holes through these four spots using a 7/64" bit since I used #8
 Then, I glued the dowels in place over the holes I just made. I let the glue set for one hour before flipping the whole thing over and redrilling through those pilot holes and into the dowels through the back. I drilled at an angle since the dowels are at an angle and I didn't want the screws to poke through the wood.
 
 The screws went in pretty well and at the angle I needed them. No split wood or screws poking through. I also over-drilled them into the wood so that the board would lay flat against the wall. This isn't really a technique and just something I did. A pocket hole might work well here, but I went with brute force.
+
+Now that the pegs are securely attached, it's time to stain. I went with 'red chestnut' by Minwax, but go with whatever you'd like. You can also paint it, of course. I stained both sides using a shop rag so the stain went on thin and dried quickly.
