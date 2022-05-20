@@ -1,7 +1,6 @@
 +++
-date = ""
+date = 2022-05-20T05:00:00Z
 description = "Or pegs to hang your pants."
-draft = true
 image = "/uploads/pegwallcoathooksdiy.png"
 slug = "diy-peg-coat-hooks"
 tags = ["diy", "video"]
