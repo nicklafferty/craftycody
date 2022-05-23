@@ -14,7 +14,7 @@ My birthday rolled around and my parents asked me what I would like. I was in a 
 
 ## Features
 
-Let's start from the top and work out way down.
+Let's start from the top and work our way down.
 
 The handle is very comfortable and places your hand a safe distance away from the blade. The speed dial is in a convenient spot to be easily rotated by your thumb for quick speed adjustments.
 
@@ -40,9 +40,9 @@ I've found myself buying mostly Dewalt branded tools. This started as an exercis
 
 ## Safety Tips
 
-The first thing to always keep in mind when working with power tools is **safety** and safety is enforced with repetition. I always wear gloves, safety glasses, and earmuffs when using tools. 
+The first thing to always keep in mind when working with power tools is **safety** and safety is enforced with repetition. I always wear gloves, safety glasses, and earmuffs when using tools.
 
-What I always do when putting my jigsaw away is make sure the safety lock is on and I turn the speed dial down to 1. Then, when I know the trigger is locked, I pull the battery out and set it aside. I also pull the trigger to make sure there is no "juice" in the tool and then lock it again. Last, I take the saw blade out and store it away in a small case. Be careful as the blade may be hot after use so give it a few minutes to cool down. 
+What I always do when putting my jigsaw away is make sure the safety lock is on and I turn the speed dial down to 1. Then, when I know the trigger is locked, I pull the battery out and set it aside. I also pull the trigger to make sure there is no "juice" in the tool and then lock it again. Last, I take the saw blade out and store it away in a small case. Be careful as the blade may be hot after use so give it a few minutes to cool down.
 
 When setting up the jigsaw, I go in reverse order. I make sure the trigger is locked and the speed is set to 1. I load the blade I'm using that day. Last, I pop the battery in.
 
