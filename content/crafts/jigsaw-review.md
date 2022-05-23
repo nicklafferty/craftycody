@@ -22,6 +22,8 @@ The blade release latch and finger guard are at the front of the jigsaw. Pulling
 
 The orbital action lever is in the middle of the tool. Its horizontal position indicates it will make straight cuts and if you turn it counter-clockwise then it will increase the blade's elliptical motion. Each level will result in faster, more aggressive cutting. Do not use the orbital action with metal. I typically always leave the orbital action off as it creates a rough, splintery cut with wood, but you can use it for fast, straight cuts if you want.
 
+At the bottom of the tool is the shoe and the shoe bevel lever is at the end. You can pitch the jigsaw between 0-45 degrees to make beveled cuts. Move the shoe into its unlocked position and turn the lever outward to adjust the angle. Then, lock it into place and return the lever to its locked position as well.
+
 ## Performance
 
 So, does it cut?
