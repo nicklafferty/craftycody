@@ -50,4 +50,4 @@ When setting up the jigsaw, I go in reverse order. I make sure the trigger is lo
 
 ## Summary
 
-I'm incredibly happy with this little saw. It's been invaluable to me and even whenever I inevitably get a miter saw, I will still be using this for its portability and quickness.
+I'm incredibly happy with this little saw. It's been invaluable to me and I still use this for its portability and quickness.
