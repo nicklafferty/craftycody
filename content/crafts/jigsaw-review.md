@@ -18,6 +18,10 @@ Let's start from the top and work our way down.
 
 The handle is very comfortable and places your hand a safe distance away from the blade. The speed dial is in a convenient spot to be easily rotated by your thumb for quick speed adjustments.
 
+The blade release latch and finger guard are at the front of the jigsaw. Pulling the release latch out is how you load and unload the blade.
+
+The orbital action lever is in the middle of the tool. Its horizontal position indicates it will make straight cuts and if you turn it counter-clockwise then it will increase the blade's elliptical motion.
+
 ## Performance
 
 So, does it cut?
