@@ -26,7 +26,7 @@ Yes, very well.
 
 Wood feels like butter.
 
-Jigsaws are not meant to cut straight, but I came up with a trick (which I'm sure many others before me have done). I clamp a piece of scrap wood to the board I'm cutting and make sure it's level. I use this as a guide for the jigsaw. I cut right up against that scrap piece and can usually get a pretty straight cut.
+Jigsaws are not meant to cut straight, but I came up with a trick (which I'm sure many others before have done). I clamp a piece of scrap wood to the board I'm cutting and make sure it's level. I use this as a guide for the jigsaw. I cut right up against that scrap piece and can usually get a pretty straight cut.
 
 What about metal?
 
@@ -40,7 +40,11 @@ I've found myself buying mostly Dewalt branded tools. This started as an exercis
 
 ## Safety Tips
 
-The first thing to always keep in mind when working with power tools is **safety** and safety is enforced with repetition. I always wear gloves, safety glasses, and earmuffs when using tools. What I always do when putting my jigsaw away is make sure the safety lock is on and I turn the speed dial down to 1. Then, when I know the trigger is locked, I pull the battery out and set it aside. I also pull the trigger to make sure there is no "juice" in the tool and then lock it again. Last, I take the saw blade out and store it away in a small case. Be careful as the blade may be hot after use so give it a few minutes to cool down.
+The first thing to always keep in mind when working with power tools is **safety** and safety is enforced with repetition. I always wear gloves, safety glasses, and earmuffs when using tools. 
+
+What I always do when putting my jigsaw away is make sure the safety lock is on and I turn the speed dial down to 1. Then, when I know the trigger is locked, I pull the battery out and set it aside. I also pull the trigger to make sure there is no "juice" in the tool and then lock it again. Last, I take the saw blade out and store it away in a small case. Be careful as the blade may be hot after use so give it a few minutes to cool down. 
+
+When setting up the jigsaw, I go in reverse order. I make sure the trigger is locked and the speed is set to 1. I load the blade I'm using that day. Last, I pop the battery in.
 
 ## Summary
 
