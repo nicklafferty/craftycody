@@ -20,7 +20,7 @@ The handle is very comfortable and places your hand a safe distance away from th
 
 The blade release latch and finger guard are at the front of the jigsaw. Pulling the release latch out is how you load and unload the blade.
 
-The orbital action lever is in the middle of the tool. Its horizontal position indicates it will make straight cuts and if you turn it counter-clockwise then it will increase the blade's elliptical motion.
+The orbital action lever is in the middle of the tool. Its horizontal position indicates it will make straight cuts and if you turn it counter-clockwise then it will increase the blade's elliptical motion. Each level will result in faster, more aggressive cutting. Do not use the orbital action with metal. I typically always leave the orbital action off as it creates a rough, splintery cut with wood, but you can use it for fast, straight cuts if you want.
 
 ## Performance
 
