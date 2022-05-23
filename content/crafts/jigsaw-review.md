@@ -26,13 +26,9 @@ At the bottom of the tool is the shoe and the shoe bevel lever is at the end. Yo
 
 ## Performance
 
-So, does it cut?
+So, does it cut? The short answer is yes. Very well.
 
-Yes, very well.
-
-Wood feels like butter.
-
-Jigsaws are not meant to cut straight, but I came up with a trick (which I'm sure many others before have done). I clamp a piece of scrap wood to the board I'm cutting and make sure it's level. I use this as a guide for the jigsaw. I cut right up against that scrap piece and can usually get a pretty straight cut.
+However, jigsaws are not meant to cut perfectly straight, but I came up with a trick (which I'm sure many others before have done). I clamp a piece of scrap wood to the board I'm cutting and make sure it's level. I use this as a guide for the jigsaw. I cut right up against that scrap piece and can usually get a pretty straight cut.
 
 What about metal?
 
