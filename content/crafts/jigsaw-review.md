@@ -4,7 +4,7 @@ description = "Taking a look at a jigsaw that will quickly become a staple in yo
 draft = true
 image = ""
 slug = "dewalt-cordless-jigsaw-review"
-tags = []
+tags = ["review"]
 title = "Dewalt Cordeless Jigsaw Review"
 
 +++
