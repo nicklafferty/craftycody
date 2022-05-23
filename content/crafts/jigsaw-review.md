@@ -30,7 +30,7 @@ Jigsaws are not meant to cut straight, but I came up with a trick (which I'm sur
 
 What about metal?
 
-I don't think many of us need to cut too much metal, but this little guy can do it. I had to cut a metal (aluminum, maybe?) curtain rod down so that it would fit into my trash bin. It took a little doing because of the awkward shape, but it cut through enough to where I could snap it the rest of the way. This saw shouldn't have any problems with flat sheet metal.
+I don't think many of us need to cut too much metal, but this little guy can do it. I had to cut a metal (aluminum, maybe?) curtain rod down so that it would fit into my trash bin. It took a little doing because of the awkward shape, but it cut through enough to where I could snap it the rest of the way. This saw shouldn't have any problems with flat sheet metal and has saw blades recommended for those jobs.
 
 ## Value/Quality
 
