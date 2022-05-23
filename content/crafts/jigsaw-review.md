@@ -16,7 +16,7 @@ My birthday rolled around and my parents asked me what I would like. I was in a 
 
 Let's start from the top and work out way down.
 
-The handle is very comfortable and places your hand a safe distance away from the blade.
+The handle is very comfortable and places your hand a safe distance away from the blade. The speed dial is in a convenient spot to be easily rotated by your thumb for quick speed adjustments.
 
 ## Performance
 
