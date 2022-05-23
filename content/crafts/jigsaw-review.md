@@ -2,12 +2,15 @@
 date = ""
 description = "Taking a look at a jigsaw that will quickly become a staple in your workshop."
 draft = true
-image = ""
+image = "/uploads/dewalt-cordless-jigsaw-review-header.png"
 slug = "dewalt-cordless-jigsaw-review"
 tags = ["review"]
 title = "Dewalt Cordeless Jigsaw Review"
 
 +++
+
+{{< youtube id_here_please >}}
+
 The only saw I ever wanted was a jigsaw. They're maneuverable and, with some effort, can cut a straight line. Their versatility and portability make them an attractive first saw for any handywoman thinking about building something. You are limited on thicker pieces of wood where a miter saw would shine, but if you don't mind making a couple of extra cuts then you're all good.
 
 My birthday rolled around and my parents asked me what I would like. I was in a new phase of building things but really needed a power saw. I asked for the Dewalt cordless jigsaw. Lowe's even had a bundle deal where you got a drill, impact driver, multi-tool, and got to pick a free tool as a bonus. My free tool was the jigsaw.
@@ -18,11 +21,19 @@ Let's start from the top and work our way down.
 
 The handle is very comfortable and places your hand a safe distance away from the blade. The speed dial is in a convenient spot to be easily rotated by your thumb for quick speed adjustments.
 
+![](/uploads/jigsaw-topoftool.jpg)
+
 The blade release latch and finger guard are at the front of the jigsaw. Pulling the release latch out is how you load and unload the blade.
+
+![](/uploads/jigsaw-frontoftool.jpg)
 
 The orbital action lever is in the middle of the tool. Its horizontal position indicates it will make straight cuts and if you turn it counter-clockwise then it will increase the blade's elliptical motion. Each level will result in faster, more aggressive cutting. I typically always leave the orbital action off as it creates a rough, splintery cut with wood, but you can use it for fast, straight cuts if you want. Do not use the orbital action with metal.
 
+![](/uploads/jigsaw-bladereleaselatch.jpg)
+
 At the bottom of the tool is the shoe and the shoe bevel lever is at the end. You can pitch the jigsaw between 0-45 degrees to make beveled cuts. Move the shoe into its unlocked position and turn the lever outward to adjust the angle. Then, lock it into place and return the lever to its locked position as well.
+
+![](/uploads/jigsaw-shoebevel.jpg)
 
 ## Performance
 
@@ -51,3 +62,5 @@ When setting up the jigsaw, I go in reverse order. I make sure the trigger is lo
 ## Summary
 
 I'm incredibly happy with this little saw. It's been invaluable to me and I still use this for its portability and quickness. It's an affordable first saw for any hobbyist and has a multitude of uses that something like a circular saw might not.
+
+![](/uploads/dewaltjigsaw.jpg)
