@@ -1,15 +1,13 @@
 +++
-date = ""
+date = 2022-05-25T05:00:00Z
 description = "Taking a look at a jigsaw that will quickly become a staple in your workshop."
-draft = true
 image = "/uploads/dewalt-cordless-jigsaw-review-header.png"
 slug = "dewalt-cordless-jigsaw-review"
 tags = ["review"]
 title = "Dewalt DCS334 Cordeless Jigsaw Review"
 
 +++
-
-{{< youtube id_here_please >}}
+{{< youtube Nyp3jJegLtU >}}
 
 The only saw I ever wanted was a jigsaw. They're maneuverable and, with some effort, can cut a straight line. Their versatility and portability make them an attractive first saw for any handywoman thinking about building something. You are limited on thicker pieces of wood where a miter saw would shine, but if you don't mind making a couple of extra cuts then you're all good.
 
