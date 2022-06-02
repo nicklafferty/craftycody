@@ -18,7 +18,7 @@ I hadn't realized I reached the end until I hit "next episode" and it asked if I
 
 However, whenever I fall hard into a fandom, I have to crochet something related to it. This brings me to my newest pattern release!
 
-Persephone!
+**Persephone!**
 
 My pretty new pattern is now available on my Etsy page. I'd like to make it clear that while I made up the pattern, Lore Olympus was created by the talented [Rachel Smythe](). Be sure to check out Webtoons and give it a read if you haven't already. I'm not usually into romance, but it's such a delicious guilty pleasure.
 
