@@ -8,7 +8,7 @@ tags = []
 title = "Persephone from Lore Olympus"
 
 +++
-About a month ago, I told a good friend of mine that I was going on a short trip and wouldn't be around for our weekly movie night. She asked if I had read or heard of Lore Olympus. I told her I got ads for it, but didn't really know what it was about let alone read it.
+About a month ago, I told a good friend of mine that I was going on a short trip and wouldn't be around for our weekly movie night. She asked if I had read or heard of [Lore Olympus](https://www.webtoons.com/en/romance/lore-olympus/list?title_no=1320&page=1). I told her I got ads for it, but didn't really know what it was about let alone read it.
 
 That all changed.
 
@@ -16,4 +16,8 @@ I read it on the plane and in the evenings during my trip. I had such a lovely b
 
 I hadn't realized I reached the end until I hit "next episode" and it asked if I wanted to pay to get the next episode early. I was devastated and now I'm stuck waiting week to week like everyone else.
 
-However, whenever I fall hard into a fandom, I have to crochet something related to it.
+However, whenever I fall hard into a fandom, I have to crochet something related to it. This brings me to my newest pattern release!
+
+Persephone!
+
+My pretty new pattern is now available on my Etsy page. I'd like to make it clear that while I made up the pattern, Lore Olympus was created by the talented [Rachel Smythe](). Be sure to check out Webtoons and give it a read if you haven't already. I'm not usually into romance, but it's such a delicious guilty pleasure.
