@@ -14,6 +14,6 @@ That all changed.
 
 I read it on the plane and in the evenings during my trip. I had such a lovely backlog that I'd spend a chunk of my afternoons casually reading in the sunroom after I got back home.
 
-I hadn't realized I reached the end until I hit "next episode" and it asked if I wanted to pay to get the next episode early. I was devastated.
+I hadn't realized I reached the end until I hit "next episode" and it asked if I wanted to pay to get the next episode early. I was devastated and now I'm stuck waiting week to week like everyone else.
 
-So, now I'm stuck waiting week to week like everyone else.
+However, whenever I fall hard into a fandom, I have to crochet something related to it.
