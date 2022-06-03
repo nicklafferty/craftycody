@@ -1,11 +1,10 @@
 +++
-date = ""
-description = "New crochet pattern alert!"
-draft = true
+date = 2022-06-03T05:00:00Z
+description = "New pattern alert!"
 image = "/uploads/persephone-crochet-pattern-header.png"
 slug = "persephone-crochet-pattern"
 tags = ["pattern", "crochet"]
-title = "Persephone from Lore Olympus"
+title = "Persephone from Lore Olympus Crochet Pattern"
 
 +++
 About a month ago, I told a good friend of mine that I was going on a short trip and wouldn't be around for our weekly movie night. She asked if I had read or heard of [Lore Olympus](https://www.webtoons.com/en/romance/lore-olympus/list?title_no=1320&page=1). I told her I got ads for it but didn't really know what it was about let alone read it.
@@ -18,6 +17,8 @@ I hadn't realized I reached the end until I hit "next episode" and it asked if I
 
 However, whenever I fall hard into a fandom, I have to crochet something related to it. This brings me to my newest pattern release!
 
+![](/uploads/persephoneoutside.jpg)
+
 **Persephone!**
 
 My pretty new pattern is now [available on my Etsy page](https://www.etsy.com/listing/1230827966/persephone-the-goddess-of-spring-crochet?click_key=e9e831fa95c2e4417b661caf2a5894db47da2fdd%3A1230827966&click_sum=bf12bd3a&ref=shop_home_feat_4). I'd like to make it clear that while I made up the pattern, Lore Olympus was created by the talented [Rachel Smythe](). Be sure to check out Webtoons and give it a read if you haven't already. I'm not usually into romance, but it's such a delicious guilty pleasure.
@@ -26,4 +27,6 @@ Also, I did something different with this one and made the pattern using [Figma]
 
 I feel like it's obvious, but I'm working on a crochet pattern for Hades as we speak. Hopefully, it'll be released soon-ish and I will bundle the pair at a discount.
 
-For now, I hope you have fun crocheting Persephone, and be sure to tag me in all your creations!
+For now, I hope you have fun crocheting Persephone and be sure to tag me in all your creations!
+
+![](/uploads/persephonethreequarterview.jpg)![](/uploads/persephoneback.jpg)![](/uploads/persephonehandstogether.jpg)
