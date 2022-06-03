@@ -2,9 +2,9 @@
 date = ""
 description = "New crochet pattern alert!"
 draft = true
-image = ""
+image = "/uploads/persephone-crochet-pattern-header.png"
 slug = "persephone-crochet-pattern"
-tags = []
+tags = ["pattern"]
 title = "Persephone from Lore Olympus"
 
 +++
