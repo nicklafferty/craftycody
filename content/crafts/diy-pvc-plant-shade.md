@@ -8,7 +8,6 @@ tags = []
 title = "DIY: PVC Plant Shade"
 
 +++
-
 {{< youtube id_here_please >}}
 
 It's officially summer here in Texas and, to put it plainly, it sucks. It's been over 100 degrees every day this week and it won't be letting up any time soon.
@@ -36,3 +35,5 @@ I wish had some help to pull the shade across, but I got it on there eventually.
 I stuck between 2-3 landscape pins on each side to help hold it down. I don't think we'll get too much wind back there, but just in case it can't hurt.
 
 And you're done! You can make this any size you need, but this way you don't need any tools.
+
+![](/uploads/pxl_20220610_192858351-mp.jpg)
