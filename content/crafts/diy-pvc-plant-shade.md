@@ -7,7 +7,7 @@ tags = ["diy"]
 title = "DIY: PVC Plant Shade"
 
 +++
-{{< youtube id_here_please >}}
+{{< youtube PknRqejdDWg >}}
 
 It's officially summer here in Texas and, to put it plainly, it sucks. It's been over 100 degrees every day this week and it won't be letting up any time soon.
 
