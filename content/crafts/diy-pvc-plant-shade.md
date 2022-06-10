@@ -1,10 +1,9 @@
 +++
-date = ""
+date = 2022-06-10T05:00:00Z
 description = "Protecting your tomatoes from the Texas sun"
-draft = true
-image = ""
-slug = ""
-tags = []
+image = "/uploads/pvc-plant-shade-diy-header.png"
+slug = "diy-pvc-plant-shade"
+tags = ["diy"]
 title = "DIY: PVC Plant Shade"
 
 +++
