@@ -22,6 +22,8 @@ But I was still proud of it.
 
 Fast forward to a few days ago when my husband broke our toilet lever. I think it was on the outs for a while and he just happened to initiate the final flush. It was just a plastic lever so it was never going to be long for this world anyway, Still, it's annoying. It's one of those things where it quite literally has only one job and it's failing at it.
 
+![](/uploads/korky-strong-arm-toilet-lever.jpg)
+
 So, I went to Lowe's and [bought a new toilet lever by Korky](https://www.lowes.com/pd/Korky-Korky-StrongARM-Toilet-Flush-Handle-Simple-Brushed-Nickel/5001419043). I wanted to get a metal one with the intention of it lasting for a long, long time. I found one I liked and grabbed it. A little expensive for what it is, but since our old plastic one snapped off I figured it'd be worth the price. It promised to be fast and easy, and it delivered thankfully.
 
 I'll walk you through the steps below.
