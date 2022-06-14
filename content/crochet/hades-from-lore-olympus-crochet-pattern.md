@@ -5,6 +5,6 @@ draft = true
 image = ""
 slug = ""
 tags = []
-title = "Hades from Lore Olympus crochet pattern"
+title = "Hades from Lore Olympus Crochet Pattern"
 
 +++
