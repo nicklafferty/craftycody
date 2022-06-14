@@ -25,3 +25,10 @@ Fast forward to a few days ago when my husband broke our toilet lever. I think i
 So, I went to Lowe's and [bought a new toilet lever](https://www.lowes.com/pd/Korky-Korky-StrongARM-Toilet-Flush-Handle-Simple-Brushed-Nickel/5001419043). I wanted to get a metal one with the intention of it lasting for a long, long time. I found one I liked and grabbed it. It promised to be fast and easy, and it delivered thankfully.
 
 I'll walk you through the steps below.
+
+## Supplies:
+
+1. Korky StrongARM Toilet Flush Handle (or whatever replacement you'd like)
+2. Wrench (if needed, I did not use one)
+
+## How-to:
