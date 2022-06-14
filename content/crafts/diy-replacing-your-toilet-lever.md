@@ -41,6 +41,8 @@ First, we're going to take off the tank lid and remove the old lever. Mine poppe
 
 Take apart the new lever because we're going to need to adjust it as we put it back together inside of the tank. Pop the two red locking clips out and also detach the hook, set all that aside. Remove the arm, elbow, and handle from one another then unscrew the mounting nut from the handle. Keep in mind the nut is reverse-threaded.
 
+![](/uploads/toilet-lever-parts.png)
+
 Take the handle and insert it into the tank hole (where your old lever was) and secure it with the mounting nut. You can mount the handle in several different ways.
 
 ![](/uploads/toilet-lever-secured.png)
@@ -56,3 +58,5 @@ Remove the old hook from the chain and attach the new, provided hook to the chai
 ![](/uploads/toilet-chain-attached.png)
 
 Replace the tank lid and flush making sure the arm does not hit the tank and clears properly.
+
+![](/uploads/toilet-lever-done-close-up.jpg)
