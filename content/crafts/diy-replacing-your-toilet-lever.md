@@ -45,6 +45,10 @@ Take the handle and insert it into the tank hole (where your old lever was) and 
 
 Next, attach the elbow to the lever mount at 30 degrees. Then, attach the lever arm to the elbow. Grab those red clips and insert them back into their locking positions on the arm and elbow.
 
+![](/uploads/toilet-lever-attached.png)
+
 Remove the old hook from the chain and attach the new, provided hook to the chain. Hook it into one of the holes on the lever with minimal slack in the chain. You can adjust the elbow if your chain is too short.
+
+![](/uploads/toilet-chain-attached.png)
 
 Replace the tank lid and flush making sure the arm does not hit the tank and clears properly.
