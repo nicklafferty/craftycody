@@ -35,8 +35,14 @@ I'll walk you through the steps below.
 
 I went slow when replacing my toilet lever and was also filming while doing it. When I turned off my camera, the timestamp said 11:36, so about 11 and a half minutes from start to finish.
 
-First, we're going to take off the tank lid and remove the old lever. Mine popped off, but you might have to unscrew yours. Detach the chain and set the old lever aside.
+First, we're going to take off the tank lid and remove the old lever. Mine popped off, but you might have to unscrew yours. Detach the chain from the lever and set the old parts aside.
 
-The instructions said to take apart the new lever because we're going to need to adjust it as we put it back together inside of the tank. Pop the two red locking clips out and also detach the hook, set all that aside. Remove the arm, elbow, and handle from one another then unscrew the mounting nut from the handle. Keep in mind the nut is reverse threaded.
+Take apart the new lever because we're going to need to adjust it as we put it back together inside of the tank. Pop the two red locking clips out and also detach the hook, set all that aside. Remove the arm, elbow, and handle from one another then unscrew the mounting nut from the handle. Keep in mind the nut is reverse-threaded.
 
-Take the handle and insert it
+Take the handle and insert it into the tank hole (where your old lever was) and secure it with the mounting nut. You can mount the handle in several different ways.
+
+Next, attach the elbow to the lever mount at 30 degrees. Then, attach the lever arm to the elbow. Grab those red clips and insert them back into their locking positions on the arm and elbow.
+
+Remove the old hook from the chain and attach the new, provided hook to the chain. Hook it into one of the holes on the lever with minimal slack in the chain. You can adjust the elbow if your chain is too short.
+
+Replace the tank lid and flush making sure the arm does not hit the tank and clears properly.
