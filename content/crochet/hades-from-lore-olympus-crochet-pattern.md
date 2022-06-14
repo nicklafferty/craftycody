@@ -1,6 +1,6 @@
 +++
 date = ""
-description = ""
+description = "Aidoneus is ready to head out with Kore!"
 draft = true
 image = ""
 slug = ""
