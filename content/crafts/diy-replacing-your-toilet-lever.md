@@ -2,7 +2,7 @@
 date = ""
 description = "Another dive into extremely surface-level plumbing"
 draft = true
-image = ""
+image = "/uploads/replacing-toilet-lever-header.png"
 slug = "replace-toilet-lever"
 tags = ["diy"]
 title = "DIY: Replacing your toilet lever"
