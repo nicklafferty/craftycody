@@ -43,7 +43,11 @@ Take apart the new lever because we're going to need to adjust it as we put it b
 
 Take the handle and insert it into the tank hole (where your old lever was) and secure it with the mounting nut. You can mount the handle in several different ways.
 
+![](/uploads/toilet-lever-secured.png)
+
 Next, attach the elbow to the lever mount at 30 degrees. Then, attach the lever arm to the elbow. Grab those red clips and insert them back into their locking positions on the arm and elbow.
+
+![](/uploads/toilet-lever-elbow-attached.png)
 
 ![](/uploads/toilet-lever-attached.png)
 
