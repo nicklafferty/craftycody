@@ -7,6 +7,9 @@ tags = ["diy"]
 title = "DIY: Replacing your toilet lever"
 
 +++
+
+{{< youtube b_qT1UCQMCY>}}
+
 Plumbing is scary. What can seem like a minor problem can quickly turn into thousands of dollars and a jackhammer breaking up your foundation to access the pipes. I think plumbing is an essential skill for homeowners to learn and, thankfully, there are many Youtube videos on the subject.
 
 However, it's still scary. What if you mess something up? What if you flood your bathroom?
