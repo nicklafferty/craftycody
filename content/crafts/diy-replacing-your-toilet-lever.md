@@ -1,7 +1,6 @@
 +++
-date = ""
-description = "Another dive into extremely surface-level plumbing"
-draft = true
+date = 2022-06-18T05:00:00Z
+description = "Another dive into extremely surface-level plumbing."
 image = "/uploads/replacing-toilet-lever-header.png"
 slug = "replace-toilet-lever"
 tags = ["diy"]
