@@ -49,3 +49,9 @@ It means continuing the pregnancy would be life-threatening to the mother. Here 
 7. Ectopic pregnancies
 
 These are the ones I found with a quick Google search. There are all kinds of things that can go wrong during pregnancy even in 2022.
+
+## What are the stages of pregnancy?
+
+I feel like this is important to understand because a lot of people believe that life begins at conception which, scientifically, isn't true. For a long time, it's merely a pile of cells developing inside a uterus- there is no life, it's not viable. We have to get away from calling fetuses and placentas "babies" because they just aren't.
+
+[Planned Parenthood describes the stages of pregnancy](https://www.plannedparenthood.org/learn/pregnancy/pregnancy-month-by-month) very well and illustrates what's going on in the body.
