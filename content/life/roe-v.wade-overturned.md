@@ -61,3 +61,7 @@ I feel like this is important to understand because a lot of people believe that
 It's control masked as religion. They want to control you. They want you to give birth to more taxpayers.
 
 The religious angle is used to fire up voters, but it's bait. Politicians can easily access abortion for their daughters and mistresses. It doesn't affect Ted Cruz that abortion is illegal in Texas.
+
+"Our most precious Texans" is rhetoric we've been hearing a lot from Texan politicians. They will fight tooth and nail to protect unborn zygotes, but the second they are born the government couldn't care less. It's made evident when [school shootings happen like in Ulvade](https://www.texastribune.org/series/uvalde-texas-school-shooting/). They are blaming absolutely everything else except the damn guns.
+
+Guns have more rights than women in Texas.
