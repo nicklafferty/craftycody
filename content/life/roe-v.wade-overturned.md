@@ -27,9 +27,13 @@ I am by no means an expert on any of this, but here are some resources that may 
 4. Local women's clinics
 5. Florida (15-week ban), Colorado (protected), Kansas (likely to be illegal come August), and New Mexico (unprotected, but likely to remain legal) are the closest states to us where abortion is still legal.
 
+Even more resources:
+
+![](/uploads/screenshot_20220624-153152-2.png)
+
 ## Are all abortions illegal now?
 
-Unless they are deemed "necessary to save the mother's life" then yes, all abortion is illegal unless the state specifically protects it (or doesn't make it inherently illegal). 
+Unless they are deemed "necessary to save the mother's life" then yes, all abortion is illegal unless the state specifically protects it (or doesn't make it inherently illegal).
 
 There are few, if any, exceptions made in these laws for rape and incest.
 
