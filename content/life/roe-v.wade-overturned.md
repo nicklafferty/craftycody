@@ -34,4 +34,4 @@ Unless they are deemed "necessary to save the mother's life" then yes, all abort
 
 There are few, if any, exceptions made in these laws for rape and incest.
 
-And let me be perfectly clear on what that means. If your 12-year-old little girl is raped by some pedophile, who may even be a family member, and becomes pregnant there is **no protection** in the state of Texas for her. She has to have that baby.
+And let me be perfectly clear on what that means. If your 12-year-old daughter is raped by some pedophile, who may even be a family member, and becomes pregnant there is **no protection** in the state of Texas for her. She has to have that baby.
