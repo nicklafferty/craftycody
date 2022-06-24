@@ -35,3 +35,15 @@ Unless they are deemed "necessary to save the mother's life" then yes, all abort
 There are few, if any, exceptions made in these laws for rape and incest.
 
 And let me be perfectly clear on what that means. If your 12-year-old daughter is raped by some pedophile, who may even be a family member, and becomes pregnant there is **no protection** in the state of Texas for her. She has to have that baby.
+
+## What does medically necessary mean?
+
+It means continuing the pregnancy would be life-threatening to the mother. Here are some examples:
+
+1. Water can break too early in pregnancy and cause infection
+2. Placental abruption is when the placenta separates from the uterus
+3. Preeclampsia
+4. Exhauserbating pre-existing conditions
+5. Prolonging cancer treatments
+6. Incomplete miscarriages can lead to sepsis
+7. Ectopic pregnancies
