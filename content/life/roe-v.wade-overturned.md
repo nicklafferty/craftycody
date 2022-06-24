@@ -1,9 +1,9 @@
 +++
-date = ""
+date = 2022-06-24T05:00:00Z
 description = "What this means for Texans like you and me."
 draft = true
 image = ""
-slug = ""
+slug = "roe-v-wade-in-texas"
 tags = []
 title = "Roe v. Wade Overturned"
 
