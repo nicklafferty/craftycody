@@ -42,7 +42,7 @@ It means continuing the pregnancy would be life-threatening to the mother. Here 
 
 1. Water can break too early in pregnancy and cause infection
 2. Placental abruption is when the placenta separates from the uterus
-3. Preeclampsia
+3. Preeclampsia, high blood pressure leading to organ damage
 4. Exhauserbating pre-existing conditions
 5. Prolonging cancer treatments
 6. Incomplete miscarriages can lead to sepsis
