@@ -47,3 +47,5 @@ It means continuing the pregnancy would be life-threatening to the mother. Here 
 5. Prolonging cancer treatments
 6. Incomplete miscarriages can lead to sepsis
 7. Ectopic pregnancies
+
+These are the ones I found with a quick Google search. There are all kinds of things that can go wrong during pregnancy even in 2022.
