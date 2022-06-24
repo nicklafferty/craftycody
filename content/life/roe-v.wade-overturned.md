@@ -1,7 +1,7 @@
 +++
 date = 2022-06-24T05:00:00Z
 description = "What this means for Texans like you and me."
-image = ""
+image = "/uploads/mov-062322-abortionrulingaction-ig-04.png"
 slug = "roe-v-wade-in-texas"
 tags = []
 title = "Roe v. Wade Overturned"
