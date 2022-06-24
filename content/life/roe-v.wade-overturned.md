@@ -1,7 +1,6 @@
 +++
 date = 2022-06-24T05:00:00Z
 description = "What this means for Texans like you and me."
-draft = true
 image = ""
 slug = "roe-v-wade-in-texas"
 tags = []
@@ -65,3 +64,7 @@ The religious angle is used to fire up voters, but it's bait. Politicians can ea
 "Our most precious Texans" is rhetoric we've been hearing a lot from Texan politicians. They will fight tooth and nail to protect unborn zygotes, but the second they are born the government couldn't care less. It's made evident when [school shootings happen like in Ulvade](https://www.texastribune.org/series/uvalde-texas-school-shooting/). They are blaming absolutely everything else except the damn guns.
 
 Guns have more rights than women in Texas.
+
+Let me repeat that:
+
+**GUNS HAVE MORE RIGHTS THAN WOMEN IN TEXAS.**
