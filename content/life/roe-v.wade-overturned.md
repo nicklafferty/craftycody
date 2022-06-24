@@ -55,3 +55,9 @@ These are the ones I found with a quick Google search. There are all kinds of th
 I feel like this is important to understand because a lot of people believe that life begins at conception which, scientifically, isn't true. For a long time, it's merely a pile of cells developing inside a uterus- there is no life, it's not viable. We have to get away from calling fetuses and placentas "babies" because they just aren't.
 
 [Planned Parenthood describes the stages of pregnancy](https://www.plannedparenthood.org/learn/pregnancy/pregnancy-month-by-month) very well and illustrates what's going on in the body.
+
+## Why do politicians care so much about my body?
+
+It's control masked as religion. They want to control you. They want you to give birth to more taxpayers.
+
+The religious angle is used to fire up voters, but it's bait. Politicians can easily access abortion for their daughters and mistresses. It doesn't affect Ted Cruz that abortion is illegal in Texas.
