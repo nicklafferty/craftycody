@@ -26,7 +26,7 @@ I am by no means an expert on any of this, but here are some resources that may 
 2. [The Auntie Network](https://www.reddit.com/r/auntienetwork/)
 3. [Two X Chromosomes](https://www.reddit.com/r/TwoXChromosomes/)
 4. Local women's clinics
-5. Florida (15-week ban), Colorado (protected right), Kansas (likely to be illegal come August), and New Mexico (unprotected, but likely to remain legal) are the closest states to us where abortion is still legal.
+5. Florida (15-week ban), Colorado (protected), Kansas (likely to be illegal come August), and New Mexico (unprotected, but likely to remain legal) are the closest states to us where abortion is still legal.
 
 ## Are all abortions illegal now?
 
