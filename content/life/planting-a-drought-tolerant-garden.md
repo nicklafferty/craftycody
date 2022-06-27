@@ -50,7 +50,7 @@ These are plants I've had for over a year and I can attest that they have surviv
 
 ### Salvias and Sages
 
-There are _so many_ varieties
+There are _so many_ varieties of salvia and sages that I could make a whole post and video covering only them.
 
 ### Cactus
 
