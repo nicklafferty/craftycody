@@ -16,7 +16,9 @@ I'm going to be writing about plants that do well specifically in my area of Tex
 
 ## How do I know so much about plants?
 
-I'm currently a Master Gardener trainee and only a few volunteer hours short of getting my certification.
+I'm currently a [Master Gardener trainee](https://mastergardener.tamu.edu/become/) and only a few volunteer hours short of getting my certification.
+
+There are Master Gardener programs all over the country. Your state's agricultural school will most likely be the one sponsoring it.
 
 ## What zone are you in and why it matters
 
