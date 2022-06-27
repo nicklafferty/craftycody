@@ -14,7 +14,7 @@ I've touched on [landscape design](https://craftycody.com/life/backyard-zen-gard
 
 I'm going to be writing about plants that do well specifically in my area of Texas but don't worry! I'll tell you how you can find plants that thrive where you live too.
 
-## How do I know so much about plants?
+## Where did I learn about plants?
 
 I'm currently a [Master Gardener trainee](https://mastergardener.tamu.edu/become/) and only a few volunteer hours short of getting my certification. There are Master Gardener programs all over the country. Your state's agricultural school will most likely be the one sponsoring it.
 
@@ -22,7 +22,9 @@ You'll attend several hours of classes typically set up like a semester of schoo
 
 It's a lot of fun and a great way to get involved in your community. You'll meet tons of people and learn all kinds of interesting gardening techniques.
 
-## What zone are you in and why it matters
+Before joining the MG program, I relied on Google and trial-and-error. There is so much information out there if you look for it.
+
+## What zone you're in and why it matters
 
 ## Earth-kind rating
 
