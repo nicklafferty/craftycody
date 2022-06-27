@@ -22,7 +22,7 @@ You'll attend several hours of classes typically set up like a semester of schoo
 
 It's a lot of fun and a great way to get involved in your community. You'll meet tons of people and learn all kinds of interesting gardening techniques.
 
-Before joining the MG program, I relied on Google and trial-and-error. There is so much information out there if you look for it.
+Before joining the MG program, I relied on Google and trial-and-error (I still do). There is so much information out there if you look for it.
 
 ## What zone you're in and why it matters
 
@@ -34,6 +34,8 @@ I'm in zone 8, so I can plant just about anything from lower zones, but it's too
 
 Earth-Kind, or EK, rating is a system used in Texas to help determine what plants will do well in a specific area. A number between 1-10 is assigned to a plant with 10 being the best. This rating takes many things into account like heat tolerance, water requirements, soil requirements, pest tolerance, and fertilizer requirements. Basically, the less finicky the plant is, the better the EK rating. You can [use this search to find plants](http://ekps.tamu.edu/) in Texas that will do well where you're at.
 
-For my hands-off garden, I chose a bunch of 8-10 EK-rated plants and mainly from the list of [Texas superstars](https://texassuperstar.com/plants/), which are primarily native and adapted plants that thrive here.
+For my hands-off garden, I chose a bunch of 8-10 EK-rated plants mainly from the list of [Texas superstars](https://texassuperstar.com/plants/), which are primarily native and adapted plants that thrive here.
+
+Planting natives is a great way to have a big, beautiful garden that you do not have to tend to. They grow wild without human interaction and can survive in your area's soil on their own. I'm not a big fan of fertilizer and anything I can grow without the need for it, I do it.
 
 ## Plants I love
