@@ -64,6 +64,8 @@ These little guys have the most interesting flowers and guess why? Because they 
 
 ### Turk's Cap
 
+Another super hardy plant that can thrive in any light condition. You can plant these in the sun or shade and it does great.
+
 ## Get planting!
 
 This is by no means an all-inclusive list. There are TONS of plants that do well in Texas. Use the Earth-Kind website and Google to research plants and find what will work best in your area. If you're in another state other than Texas, look up your local Master Gardener program. They'll have resources that can help you get your garden started.
