@@ -48,13 +48,15 @@ These are plants I've had for over a year and I can attest that they have surviv
 
 ### Lantana
 
-Ah, the tried-and-true lantana.
+Ah, the tried-and-true lantana. These are staples in many Texas gardens and are used in corporate landscapes as well.
 
 ### Salvias and Sages
 
 There are _so many_ varieties of salvia and sages that I could make a whole post focusing on just them.
 
 ### Cactus
+
+You can't have a desert landscape without some cactus.
 
 ### Shrimp Plant
 
