@@ -48,6 +48,8 @@ These are plants I've had for over a year and I can attest that they have surviv
 
 ### Lantana
 
+Ah, the tried-and-true lantana.
+
 ### Salvias and Sages
 
 There are _so many_ varieties of salvia and sages that I could make a whole post focusing on just them.
