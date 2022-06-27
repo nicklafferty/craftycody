@@ -38,7 +38,7 @@ Earth-Kind rating, or EK, is a system used in Texas to help determine what plant
 
 For my hands-off garden, I chose a bunch of 8-10 EK-rated plants mainly from the list of [Texas superstars](https://texassuperstar.com/plants/), which are primarily native and adapted plants that thrive here. The superstars are the best of the best and require little to no maintenance.
 
-Planting natives is a great way to have a big, beautiful garden that you do not have to tend to. They grow wild without human interaction and can survive in your area's soil on their own. I'm not a big fan of fertilizer and anything I can grow without the need for it, I do it.
+Planting natives is a great way to have a big, beautiful garden that you do not have to tend to. They grow wild without human interaction and can survive in your area's soil/rainfall on their own. I'm not a big fan of fertilizer and anything I can grow without the need for it, I do it.
 
 ## Plants I love
 
