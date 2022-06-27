@@ -16,9 +16,11 @@ I'm going to be writing about plants that do well specifically in my area of Tex
 
 ## How do I know so much about plants?
 
-I'm currently a [Master Gardener trainee](https://mastergardener.tamu.edu/become/) and only a few volunteer hours short of getting my certification.
+I'm currently a [Master Gardener trainee](https://mastergardener.tamu.edu/become/) and only a few volunteer hours short of getting my certification. There are Master Gardener programs all over the country. Your state's agricultural school will most likely be the one sponsoring it.
 
-There are Master Gardener programs all over the country. Your state's agricultural school will most likely be the one sponsoring it.
+You'll attend several hours of classes typically set up like a semester of school and then be required to complete a set number of volunteer hours. For instance, I have to complete 50 volunteer hours to get my certification, then it's 15 hours per year after that.
+
+It's a lot of fun and a great way to get involved in your community. You'll meet tons of people and learn all kinds of interesting gardening techniques.
 
 ## What zone are you in and why it matters
 
