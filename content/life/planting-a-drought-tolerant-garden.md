@@ -46,13 +46,15 @@ There are quite a few plants I absolutely love, but I'll condense them down into
 
 These are plants I've had for over a year and I can attest that they have survived winter and are coming back.
 
-### Lantanas
+### Lantana
 
 ### Salvias and Sages
 
 ### Cactus
 
 ### Shrimp Plant
+
+These little guys have the most interesting flowers and guess why? Because they look like shrimp!
 
 ### Turk's Cap
 
