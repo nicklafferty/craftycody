@@ -3,8 +3,8 @@ date = ""
 description = "A short list of plants that do well in Texas"
 draft = true
 image = ""
-slug = ""
-tags = []
+slug = "drought-tolerant-garden"
+tags = ["gardening", "video"]
 title = "Planting a drought tolerant garden"
 
 +++
