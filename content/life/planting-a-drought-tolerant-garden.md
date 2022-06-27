@@ -57,3 +57,5 @@ These are plants I've had for over a year and I can attest that they have surviv
 ### Turk's Cap
 
 ## Get planting!
+
+This is by no means an all-inclusive list. There are TONS of plants that do well in Texas. Use the Earth-Kind website and Google to research plants and find what will work best in your area. If you're in another state other than Texas, look up your local Master Gardener program. They'll have resources that can help you get your garden started.
