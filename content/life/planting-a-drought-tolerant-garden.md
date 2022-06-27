@@ -45,3 +45,11 @@ Planting natives is a great way to have a big, beautiful garden that you do not 
 There are quite a few plants I absolutely love, but I'll condense them down into my favorites. It'll be a good jumping-off point for getting your garden started.
 
 These are plants I've had for over a year and I can attest that they have survived winter and are coming back.
+
+### Lantanas
+
+### Salvias and Sages
+
+### Cactus
+
+### Shrimp plant
