@@ -34,7 +34,7 @@ I'm in zone 8, so I can plant just about anything from lower zones, but it's too
 
 ## Earth-Kind rating
 
-Earth-Kind, or EK, rating is a system used in Texas to help determine what plants will do well in a specific area. A number between 1-10 is assigned to a plant with 10 being the best. This rating takes many things into account like heat tolerance, water requirements, soil requirements, pest tolerance, and fertilizer requirements. Basically, the less finicky the plant is, the better the EK rating. You can [use this search to find plants](http://ekps.tamu.edu/) in Texas that will do well where you're at.
+Earth-Kind, or EK, rating is a system used in Texas to help determine what plants will do well in a specific area. A number between 1-10 is assigned to a plant with 10 being the best. This rating takes many things into account like heat tolerance, water requirements, soil requirements, pest tolerance, and fertilizer requirements. Basically, the less finicky the plant is, the better the EK rating. You can [use this search to find plants](http://ekps.tamu.edu/) in Texas that will do well where you're at. Search by your zip code to get the best results.
 
 For my hands-off garden, I chose a bunch of 8-10 EK-rated plants mainly from the list of [Texas superstars](https://texassuperstar.com/plants/), which are primarily native and adapted plants that thrive here.
 
