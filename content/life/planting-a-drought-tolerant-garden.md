@@ -41,3 +41,7 @@ For my hands-off garden, I chose a bunch of 8-10 EK-rated plants mainly from the
 Planting natives is a great way to have a big, beautiful garden that you do not have to tend to. They grow wild without human interaction and can survive in your area's soil on their own. I'm not a big fan of fertilizer and anything I can grow without the need for it, I do it.
 
 ## Plants I love
+
+There are quite a few plants I absolutely love, but I'll condense them down into my favorites. It'll be a good jumping-off point for getting your garden started.
+
+These are plants I've had for over a year and I can attest that they have survived winter and are coming back.
