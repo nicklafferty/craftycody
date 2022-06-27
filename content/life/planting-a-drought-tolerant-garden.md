@@ -8,3 +8,4 @@ tags = []
 title = "Planting a drought tolerant garden"
 
 +++
+My favorite plants are anything hands-off. People think I have a green thumb, but what I actually have are plants that handle neglect.
