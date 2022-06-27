@@ -15,3 +15,7 @@ I've touched on [landscape design](https://craftycody.com/life/backyard-zen-gard
 How do I know so much about plants?
 
 What zone are you in and why it matters
+
+Earth-kind rating
+
+Plants I love
