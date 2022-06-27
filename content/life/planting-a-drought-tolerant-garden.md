@@ -52,4 +52,6 @@ These are plants I've had for over a year and I can attest that they have surviv
 
 ### Cactus
 
-### Shrimp plant
+### Shrimp Plant
+
+### Turk's Cap
