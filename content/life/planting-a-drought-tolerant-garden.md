@@ -30,6 +30,6 @@ It's important to use plants that are meant for your zone's climate. The zone ra
 
 I'm in zone 8, so I can plant just about anything from lower zones, but it's too cold here for the tropical plants of zones 9, 10, etc.
 
-## Earth-kind rating
+## Earth-Kind rating
 
 ## Plants I love
