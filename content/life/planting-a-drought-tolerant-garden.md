@@ -12,10 +12,14 @@ My favorite plants are anything hands-off. People think I have a green thumb, bu
 
 I've touched on [landscape design](https://craftycody.com/life/backyard-zen-garden/) before and it's certainly important when planning out your garden. However, today I'm going to talk about specific plants and how to care for them.
 
-How do I know so much about plants?
+I'm going to be writing about plants that do well specifically in my area of Texas but don't worry! I'll tell you how you can find plants that thrive where you live too.
 
-What zone are you in and why it matters
+## How do I know so much about plants?
 
-Earth-kind rating
+I'm currently a Master Gardener trainee and only a few volunteer hours short of getting my certification.
 
-Plants I love
+## What zone are you in and why it matters
+
+## Earth-kind rating
+
+## Plants I love
