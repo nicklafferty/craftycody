@@ -87,6 +87,8 @@ Another super hardy plant that can thrive in any light condition and one of my f
 
 A perennial in South Texas, but more of an annual in North Texas- be sure to check your zone before planting!
 
+Both my Turk's Cap and Shrimp Plant survive on rain water alone. They're in the very back of my garden where the hose won't reach.
+
 ![](/uploads/pink-turks-cap.jpg)
 
 ## Time to get planting!
