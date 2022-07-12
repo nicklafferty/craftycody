@@ -77,9 +77,13 @@ I have a bunny-ear cactus, a barrel cactus, and an old man cactus (that's really
 
 These little guys have the most interesting flowers and guess why? Because they look like shrimp!
 
+![](/uploads/shrimp-plant.jpg)
+
 ### Turk's Cap
 
 Another super hardy plant that can thrive in any light condition. You can plant these in the sun or shade and it does great. They have cute, twirly flowers that come in red or pink.
+
+![](/uploads/pink-turks-cap.jpg)
 
 ## Time to get planting!
 
