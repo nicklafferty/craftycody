@@ -1,6 +1,6 @@
 +++
 date = ""
-description = "A short list of plants that do very well in Texas"
+description = "My 5 favorite plants that do very well in Texas"
 draft = true
 image = "/uploads/top-texas-plants-drought-tolerant-gardening-header.png"
 slug = "drought-tolerant-garden"
