@@ -81,7 +81,9 @@ These little guys have the most interesting flowers and guess why? Because they 
 
 ### Turk's Cap
 
-Another super hardy plant that can thrive in any light condition. You can plant these in the sun or shade and it does great. They have cute, twirly flowers that come in red or pink.
+Another super hardy plant that can thrive in any light condition. You can plant these in the sun or shade and it does great. I have mine in the shade. They have cute, twirly flowers that come in red or pink that butterflies and hummingbirds love.
+
+A perennial in South Texas, but more of an annual in North Texas- be sure to check your zone before planting!
 
 ![](/uploads/pink-turks-cap.jpg)
 
