@@ -53,6 +53,10 @@ These are plants I've had for over a year and I can attest that they have surviv
 
 Ah, the tried-and-true lantana. These are staples in many Texas gardens and are used in corporate landscapes as well.
 
+I have 'Confetti' and 'Dallas Red' varieties in my front yard, but there are many varieties to choose from. They need full sun but are drought and heat tolerant. Super low maintenance and very hard to kill. They spread a couple of feet and are great accent plants.
+
+![](/uploads/lantana-1.jpg)![](/uploads/lantana-4.jpg)![](/uploads/lantana-2.jpg)
+
 ### Salvias and Sages
 
 There are _so many_ varieties of salvia and sages that I could make a whole post focusing on just them.
