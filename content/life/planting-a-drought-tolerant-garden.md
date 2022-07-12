@@ -61,6 +61,10 @@ I have 'Confetti' and 'Dallas Red' varieties in my front yard, but there are man
 
 There are _so many_ varieties of salvia and sages that I could make a whole post focusing on just them.
 
+I'm growing Mealy Blue Sage and Mystic Spires Blue Salvia. Most varieties have light green leaves and spikes of flowers from light blue to purple. Bees _love_ them. Plant where they will get full sun and give them room to get bushy.
+
+![](/uploads/mealy-blue-sage-2.jpg)![](/uploads/mealy-blue-sage-1.jpg)
+
 ### Cactus
 
 You can't have a desert landscape without some cactus.
