@@ -93,6 +93,6 @@ A perennial in South Texas, but more of an annual in North Texas- be sure to che
 
 This is by no means an all-inclusive list. There are TONS of plants that do well in Texas. Use the Earth-Kind website and Google to research plants and find what will work best in your area. If you're in another state other than Texas, look up your local Master Gardener program. They'll have resources that can help you get your garden started.
 
-Remember to plant in the Spring when the threat of frost has ended and when it's cooler for you to be outside! It's also easier on the plants you're transplanting. Avoid planting in the dead of Summer and Winter.
+Remember to plant in the Spring when the threat of frost has ended and when it's cooler for you to be outside! It's also easier on the plants you're transplanting. Avoid planting in the dead of Summer and Winter. While some plants can take it, most have a harder time establishing in extreme conditions.
 
 Top tip: if you're planting trees, a good way to remember when to plant is Texas Arbor Day which is always the first Friday in November. That's the best time to plant a tree in Texas!
