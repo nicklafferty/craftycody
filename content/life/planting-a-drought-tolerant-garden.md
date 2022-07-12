@@ -33,7 +33,7 @@ Before joining the MG program, I relied on Google and trial-and-error (I still d
 
 It's important to use plants that are meant for your zone's climate. The zone rating is a **cold hardiness** rating, not heat. Meaning if you're in zone 5 you can plant things that do well in zone 4, but not from zone 6. It gets too cold where you are and those plants would freeze. You could keep them in pots and bring them in in the winter, however.
 
-I'm in zone 8, so I can plant just about anything from lower zones, but it's too cold here for the tropical plants of zones 9, 10, etc.
+I'm in zone 8, so I can plant just about anything from lower zones, but it's too cold here for the tropical plants of zones 9, 10, etc. Weird to think of Texas as "too cold".
 
 ## Earth-Kind rating
 
