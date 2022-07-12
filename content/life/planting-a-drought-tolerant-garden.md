@@ -69,6 +69,10 @@ I'm growing Mealy Blue Sage and Mystic Spires Blue Salvia. Most varieties have l
 
 You can't have a desert landscape without some cactus.
 
+I have a bunny-ear cactus, a barrel cactus, and an old man cactus (that's really what it's called! I've had him for years now and he's made several moves). Full sun and a little water are all they need.
+
+![](/uploads/bunny-ear-cactus.jpg)
+
 ### Shrimp Plant
 
 These little guys have the most interesting flowers and guess why? Because they look like shrimp!
