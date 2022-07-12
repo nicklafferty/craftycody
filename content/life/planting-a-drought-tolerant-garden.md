@@ -83,7 +83,7 @@ Does well in most light conditions, I have mine in the shade, but does best with
 
 ### Turk's Cap
 
-Another super hardy plant that can thrive in any light condition. You can plant these in the sun or shade and it does great. I have mine in the shade. They have cute, twirly flowers that come in red or pink that butterflies and hummingbirds love.
+Another super hardy plant that can thrive in any light condition and one of my favorites. You can plant these in the sun or shade and it does great. I have mine in the shade. They have cute, twirly flowers that come in red or pink that butterflies and hummingbirds love.
 
 A perennial in South Texas, but more of an annual in North Texas- be sure to check your zone before planting!
 
