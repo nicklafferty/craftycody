@@ -77,6 +77,8 @@ I have a bunny-ear cactus, a barrel cactus, and an old man cactus (that's really
 
 These little guys have the most interesting flowers and guess why? Because they look like shrimp!
 
+Does well in most light conditions, I have mine in the shade, but does best with a little morning sun. Hummingbirds love these as well.
+
 ![](/uploads/shrimp-plant.jpg)
 
 ### Turk's Cap
