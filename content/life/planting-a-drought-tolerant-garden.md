@@ -2,13 +2,16 @@
 date = ""
 description = "A short list of plants that do well in Texas"
 draft = true
-image = ""
+image = "/uploads/top-texas-plants-drought-tolerant-gardening-header.png"
 slug = "drought-tolerant-garden"
 tags = ["gardening", "video"]
 title = "Planting a drought tolerant garden"
 
 +++
-We're in for a hot summer here in Texas. We've already had multiple 100-degree days and it's only July. The last thing I want to do is standing outside watering plants.
+
+{{< youtube id_here_please >}}
+
+We're in for a hot summer here in Texas. We've already had multiple 100-degree days and it's only July. The last thing I want to do is stand outside watering plants.
 
 My favorite plants are anything hands-off. People think I have a green thumb, but what I actually have are plants that handle neglect well.
 
