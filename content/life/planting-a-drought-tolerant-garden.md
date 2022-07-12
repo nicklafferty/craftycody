@@ -51,7 +51,7 @@ These are plants I've had for over a year and I can attest that they have surviv
 
 ### Lantana
 
-Ah, the tried-and-true lantana. These are staples in many Texas gardens and are used in corporate landscapes as well.
+Ah, the tried-and-true lantana. These are staples in many Texas gardens and are used in corporate landscapes as well. They get big, bushy, and produce tons of color.
 
 I have 'Confetti' and 'Dallas Red' varieties in my front yard, but there are many varieties to choose from. They need full sun but are drought and heat tolerant. Super low maintenance and very hard to kill. They spread a couple of feet and are great accent plants.
 
