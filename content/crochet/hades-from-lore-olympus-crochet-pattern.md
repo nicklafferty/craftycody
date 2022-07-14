@@ -8,7 +8,7 @@ tags = []
 title = "Hades from Lore Olympus Crochet Pattern"
 
 +++
-I finally finished a set! I always start with one character then never get around to making their counterpart. Well, now that's a thing of the past because Hades is done!
+I finally finished a set! I always start with one character and then never get around to making their counterpart. Well, now that's a thing of the past because Hades is done (months later)!
 
 You can find him and Persephone for sale in my Etsy shop. Grab the bundle for a little discount!
 
