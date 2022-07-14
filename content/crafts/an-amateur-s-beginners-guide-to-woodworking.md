@@ -74,7 +74,7 @@ Wandering around on the internet is great for inspiration. Maybe you'll find a f
 
 ## Practice makes Confidence
 
-This is so important. As with anything, working more with power tools and familiarizing yourself with them will lead to you building confidence in your skills. I started with [super simple bathroom shelves](https://craftycody.com/crafts/diy-floating-shelves/) a year ago and last week I built us a [dining room table](https://craftycody.com/crafts/diy-dining-table-ikea-dupe/).
+This is so important. As with anything, working more with power tools and familiarizing yourself with them will lead to you building confidence in your skills. I started with [super simple bathroom shelves](https://craftycody.com/crafts/diy-floating-shelves/) a year ago and recently I built us a [dining room table](https://craftycody.com/crafts/diy-dining-table-ikea-dupe/).
 
 I think woodworking can come off as expensive, time-consuming, and, frankly, is a stereotypically male-dominated hobby. I bought a bunch of tools this past Christmas during a sale Lowe's was having. While carrying them out to my car a guy walking into the store smiled and said, "Someone is going to have a good Christmas!" insinuating my husband. I smiled back and said, "Yeah, me!" He wasn't being a jerk, but it does speak to my point.
 
