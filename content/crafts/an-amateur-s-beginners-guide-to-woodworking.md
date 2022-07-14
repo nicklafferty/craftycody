@@ -5,7 +5,7 @@ draft = true
 image = ""
 slug = ""
 tags = []
-title = "An amateur's Beginners Guide to Woodworking"
+title = "An Amateur's Beginners Guide to Woodworking"
 
 +++
 _Note: The affiliate links are to products I like and use. I make a small commission with purchase, but it does not charge you._
