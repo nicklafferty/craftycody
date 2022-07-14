@@ -36,13 +36,13 @@ The essentials for me at the beginning were a [jigsaw](https://www.amazon.com/DE
 
 Having been doing this for about a year, I would say my favorite tool is my [miter saw](https://www.amazon.com/DEWALT-12-Inch-15-Amp-Compound-DWS715/dp/B07P8QTFRC/ref=sr_1_5?crid=Q4A1BPQD5PJX&keywords=dewalt%252Bmiter%252Bsaw&qid=1650489519&sprefix=dewalt%252Bmiter%252Bsaw%252Caps%252C116&sr=8-5&th=1&_encoding=UTF8&tag=craftycody-20&linkCode=ur2&linkId=9e879a66d4320d7337c26ab4bffa5b16&camp=1789&creative=9325). The ability to make straight or angled cuts is life-changing and really speeds up the work.
 
-Top Tool List:
+Top Starter Tool List:
 
-1. Drill
-2. Impact Driver
-3. Jigsaw
-4. Miter saw
-5. Sander
+1. [Drill]()
+2. [Impact Driver](https://amzn.to/3IApkaR)
+3. [Jigsaw](https://www.amazon.com/DEWALT-DCS334B-Brushless-Tool-Only/dp/B07JPFHQKG/ref=sr_1_4_mod_primary_new?crid=1OP8OZBARKV6M&keywords=dewalt+jigsaw&qid=1650489218&sbo=RZvfv%252F%252FHxDF%252BO5021pAnSA%253D%253D&sprefix=dewalt+jigsaw%252Caps%252C107&sr=8-4&_encoding=UTF8&tag=craftycody-20&linkCode=ur2&linkId=aa92cbf892e257eeb9fff82eddb0468b&camp=1789&creative=9325)
+4. [Miter saw](https://www.amazon.com/DEWALT-12-Inch-15-Amp-Compound-DWS715/dp/B07P8QTFRC/ref=sr_1_5?crid=Q4A1BPQD5PJX&keywords=dewalt%252Bmiter%252Bsaw&qid=1650489519&sprefix=dewalt%252Bmiter%252Bsaw%252Caps%252C116&sr=8-5&th=1&_encoding=UTF8&tag=craftycody-20&linkCode=ur2&linkId=9e879a66d4320d7337c26ab4bffa5b16&camp=1789&creative=9325)
+5. [Sander](https://amzn.to/3IEpZYX)
 
 You'll also notice I'm linking to a lot of Dewalt tools. I'd suggest sticking with a brand and running with it as best you can because you don't want to end up with 15 different batteries that only fit into one or two tools.
 
