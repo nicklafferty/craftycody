@@ -1,7 +1,6 @@
 +++
-date = ""
+date = 2022-07-14T05:00:00Z
 description = "My 5 favorite plants that do very well in Texas"
-draft = true
 image = "/uploads/top-texas-plants-drought-tolerant-gardening-header.png"
 slug = "drought-tolerant-gardening"
 tags = ["gardening", "video"]
