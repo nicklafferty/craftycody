@@ -8,8 +8,7 @@ tags = ["gardening", "video"]
 title = "Planting a drought tolerant garden"
 
 +++
-
-{{< youtube id_here_please >}}
+{{< youtube HxuYU3YaBbM >}}
 
 We're in for a hot summer here in Texas. We've already had multiple 100-degree days and it's only July. The last thing I want to do is stand outside watering plants.
 
