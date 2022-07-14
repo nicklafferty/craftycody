@@ -48,7 +48,9 @@ You'll also notice I'm linking to a lot of Dewalt tools. I'd suggest sticking wi
 
 ## Skills
 
-The willingness to learn and take safety seriously. There is a plethora of info out there (for free) so take advantage of it.
+The willingness to learn and take safety seriously are the two most important skills, in my opinion. 
+
+There is a plethora of info out there (for free) so take advantage of it.
 
 I'm crafty by nature, so that lends itself to whatever hobby I decide to pick up. However, I don't have any formal training in woodworking. I guess I took a shop class in eighth grade, but that was about 20 years ago now.
 
