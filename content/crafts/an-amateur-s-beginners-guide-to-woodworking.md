@@ -58,9 +58,9 @@ I look up lots of things on YouTube, it's such an amazing resource. There are al
 
 ## What I like to build
 
-Dupes of expensive stuff I see online. I like working backward from a finished product and figuring out how to make it myself for less money.
+Dupes of expensive stuff I see online. I like working backward from a finished product and figuring out how to make it myself for less money. I want to specify I'm talking about mass-produced products that are typically way overpriced.
 
-Trying to build something you find is also a good way to get measurements. Like what's a good height for a TV stand? You don't want to be looking up at the ceiling, but not down at the floor either.
+Trying to build something you find is also a good way to get measurements. Like what's a good height for a TV stand? You don't want to be looking up at the ceiling, but not down at the floor either, so I always check out product specs to get accurate measurements.
 
 ## First Project
 
