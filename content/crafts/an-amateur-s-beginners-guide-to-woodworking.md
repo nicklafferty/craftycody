@@ -72,7 +72,7 @@ There are absolutely _tons_ of IKEA hacks out there that you can try and most of
 
 [I made a simple knife block](https://craftycody.com/crafts/kinfe-block-diy/) with just a jigsaw, wood, and glue. That's a great way to get your feet wet. I have a lot of easy [woodworking plans available on Etsy](https://www.etsy.com/shop/CodysCraftyCo), but I also post them here on my blog. The PDFs for sale consolidate the information better and contribute to my project funds.
 
-Wandering around on the internet is great for inspiration. Maybe you'll find a few cool projects or some tips you can combine to make one large thing. I just found some ideas to help cut the cost of a chair I'm planning to build.
+Wandering around on the internet is great for inspiration. I save all kinds of [ideas on my Pinterest](https://www.pinterest.com/codyscraftcorner/). Maybe you'll find a few cool projects or some tips you can combine to make one large thing. I just found some ideas to help cut the cost of a chair I'm planning to build.
 
 ## Practice makes Confidence
 
