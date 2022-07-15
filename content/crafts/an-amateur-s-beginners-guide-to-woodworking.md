@@ -3,8 +3,8 @@ date = ""
 description = "What tools and skills I needed to get started in my new hobby."
 draft = true
 image = ""
-slug = ""
-tags = []
+slug = "beginner-woodworking-tips"
+tags = ["diy", "video"]
 title = "An Amateur's Beginners Guide to Woodworking"
 
 +++
