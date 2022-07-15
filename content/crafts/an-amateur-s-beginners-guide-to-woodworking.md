@@ -46,7 +46,7 @@ Top Starter Tool List:
 
 You'll also notice I'm linking to a lot of Dewalt tools. I'd suggest sticking with a brand and running with it as best you can because you don't want to end up with 15 different batteries that only fit into one or two tools. For example, I have a Craftsman weed whacker and it's the only Craftsman tool I have. So annoying having the charger plugged in and taking up space.
 
-Also, get a bunch of [clamps](https://amzn.to/3O9594K). You can never have too many.
+**Bonus tip:** Get a bunch of [clamps](https://amzn.to/3O9594K). You can never have too many.
 
 ## Skills
 
