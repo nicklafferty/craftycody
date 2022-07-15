@@ -44,7 +44,7 @@ Top Starter Tool List:
 4. [Miter saw](https://www.amazon.com/DEWALT-12-Inch-15-Amp-Compound-DWS715/dp/B07P8QTFRC/ref=sr_1_5?crid=Q4A1BPQD5PJX&keywords=dewalt%252Bmiter%252Bsaw&qid=1650489519&sprefix=dewalt%252Bmiter%252Bsaw%252Caps%252C116&sr=8-5&th=1&_encoding=UTF8&tag=craftycody-20&linkCode=ur2&linkId=9e879a66d4320d7337c26ab4bffa5b16&camp=1789&creative=9325)
 5. [Sander](https://amzn.to/3IEpZYX)
 
-You'll also notice I'm linking to a lot of Dewalt tools. I'd suggest sticking with a brand and running with it as best you can because you don't want to end up with 15 different batteries that only fit into one or two tools.
+You'll also notice I'm linking to a lot of Dewalt tools. I'd suggest sticking with a brand and running with it as best you can because you don't want to end up with 15 different batteries that only fit into one or two tools. For example, I have a Craftsman weed whacker and it's the only Craftsman tool I have. So annoying having the charger plugged in and taking up space.
 
 Also, get a bunch of [clamps](https://amzn.to/3O9594K). You can never have too many.
 
