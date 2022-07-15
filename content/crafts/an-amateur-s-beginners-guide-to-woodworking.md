@@ -68,7 +68,7 @@ Trying to build something you find is also a good way to get measurements. Like 
 
 You've got something from IKEA, we all do, and I can almost guarantee it's one of those cubby shelving units i.e. the kallax. They're cheap, incredibly functional, and come in enough colors to suit most tastes. They're also, however, unmistakable and if you're wanting a more "grown-up" look then you have to glam that thing up.
 
-There are absolutely _tons_ of IKEA hacks out there that you can try and most of them are beginner-friendly. People are wickedly creative so you'll be able to find another use for your kallax. I did! [I built simple cabinet doors](https://craftycody.com/crafts/doors-ikea-kallax/) and attached them to mine. Now all the electronics are hidden and I didn't have to buy a new TV stand from Article.
+There are absolutely _tons_ of IKEA hacks out there that you can try and most of them are beginner-friendly. People are wickedly creative so you'll be able to find another use for your kallax. I did! [I built cabinet doors](https://craftycody.com/crafts/doors-ikea-kallax/) and attached them to mine. Now all the electronics are hidden and I didn't have to buy a new TV stand from Article.
 
 [I made a simple knife block](https://craftycody.com/crafts/kinfe-block-diy/) with just a jigsaw, wood, and glue that's a great way to get your feet wet. I have a lot of [woodworking plans available on Etsy](https://www.etsy.com/shop/CodysCraftyCo), but I also post them here on my blog. The PDFs for sale consolidate the information better and contribute to my project funds.
 
