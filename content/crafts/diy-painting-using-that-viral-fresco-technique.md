@@ -51,4 +51,4 @@ Anyway, the video I watched showed how to load the pallet knife. Scrape a little
 
 ### Painting
 
-All that's left is to get creative! I tried starting in the corners, but restarted several times so I changed tactics and started with a flower shape in the middle then worked my way out.
+All that's left is to get creative! I tried starting in the corners but restarted several times so I changed tactics and started with a flower shape in the middle then worked my way out. Eventually, I found my rhythm and each blob of plaster looked better and better. I won't say they ever looked great, but by the end, I kind of had an idea of what I was doing. I'm hoping my second painting will look even better.
