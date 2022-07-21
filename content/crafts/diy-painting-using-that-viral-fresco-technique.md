@@ -32,3 +32,7 @@ So, this week I decided to try it. There isn't much detail to go into, but I'll 
 What's nice about this project is that it's fairly inexpensive and doesn't involve sawing anything. I'm trying to keep out of my shop since it's 100+ almost every day. I've set up an impromptu art studio in my sunroom and have been enjoying being inside and learning something new.
 
 I got all of my supplies at Walmart in one fell swoop. I got a pack of five 16x20 canvases for around $15 which is great in case I really messed up. I decided I was going to make art for a wall in my living room and would use three of the canvases to fill the space.
+
+### How I prepared my plaster:
+
+At first, I was worried I bought the wrong thing. When I opened the plaster bin, it seemed really runny so I gave it a good stir but it was still pretty thin- at least in comparison to what I'm used to. I also bought two jugs of it so I was especially upset. However, I decided to run a little experiment and added some corn starch to help thicken it up and it worked! You may want to look into a lot of options for this because foodstuffs have a chance of going bad, but I'm going to risk it.
