@@ -24,7 +24,7 @@ So, this week I decided to try it. There isn't much detail to go into, but I'll 
 1. Canvas
 2. Acrylic paints
 3. Pallet knife
-4. Spackle or Plaster (I used plaster)
+4. Spackle or [Plaster](https://www.walmart.com/ip/DAP-Patching-Plaster-32-oz/17243999) (I used plaster)
 5. Corn starch to thicken plaster
 
 ## How-to:
