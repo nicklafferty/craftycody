@@ -47,4 +47,4 @@ I spooned some plaster onto a paper plate, mixed in my desired paint color, then
 
 I had to watch a video on how to do this because I messed up _several_ times when starting. I scraped up a lot of plaster from my canvas. Don't feel bad doing this, you can always paint over it- I did! You can't even tell.
 
-Anyway, the video I watched showed how to load the pallet knife.
+Anyway, the video I watched showed how to load the pallet knife. Scrape a little plaster onto one side and then do the same for the other side. This seems to help the plaster "roll" smooth onto the pallet knife otherwise you'll be stuck with a big clump that won't spread nicely onto the canvas.
