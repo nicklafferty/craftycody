@@ -35,7 +35,7 @@ I got all of my supplies at Walmart in one fell swoop. I got a pack of five 16x2
 
 ### Painting the Canvas
 
-I decided to paint my canvas first as white was just a little boring for me. I went with a dark, blue-grey color. This will help the plaster pop. To be honest, I actually used an old paint sample we had.
+I decided to paint my canvas first as white was just a little boring for me. I went with a dark, blue-grey color. This will help the plaster pop. To be honest, I actually used an old paint sample we had. It's called calligraphy by Behr.
 
 ### How I prepared my plaster:
 
