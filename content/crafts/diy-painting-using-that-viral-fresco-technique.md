@@ -42,3 +42,9 @@ I decided to paint my canvas first as white was just a little boring for me. I w
 At first, I was worried I bought the wrong thing. When I opened the plaster bin, it seemed really runny so I gave it a good stir but it was still pretty thin- at least in comparison to what I'm used to. I also bought two jugs of it so I was especially upset. However, I decided to run a little experiment and added some corn starch to help thicken it up and it worked! You may want to look into a lot of options for this because foodstuffs have a chance of going bad, but I'm going to risk it.
 
 I spooned some plaster onto a paper plate, mixed in my desired paint color, then added the corn starch to thicken it.
+
+### Loading the pallet knife
+
+I had to watch a video on how to do this because I messed up _several_ times when starting. I scraped up a lot of plaster from my canvas. Don't feel bad doing this, you can always paint over it- I did! You can't even tell.
+
+Anyway, the video I watched showed how to load the pallet knife.
