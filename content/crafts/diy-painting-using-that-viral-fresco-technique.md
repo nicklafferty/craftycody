@@ -36,3 +36,5 @@ I got all of my supplies at Walmart in one fell swoop. I got a pack of five 16x2
 ### How I prepared my plaster:
 
 At first, I was worried I bought the wrong thing. When I opened the plaster bin, it seemed really runny so I gave it a good stir but it was still pretty thin- at least in comparison to what I'm used to. I also bought two jugs of it so I was especially upset. However, I decided to run a little experiment and added some corn starch to help thicken it up and it worked! You may want to look into a lot of options for this because foodstuffs have a chance of going bad, but I'm going to risk it.
+
+I spooned some plaster onto a paper plate, mixed in my desired paint color, then added the corn starch to thicken it
