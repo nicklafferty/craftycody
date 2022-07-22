@@ -1,7 +1,6 @@
 +++
 date = 2022-07-22T05:00:00Z
 description = "Plaster, paint, and a pallet knife"
-draft = true
 image = "/uploads/fresco-painting-header.png"
 slug = "easy-fresco-painting"
 tags = ["diy", "video"]
