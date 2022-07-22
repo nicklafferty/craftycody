@@ -2,9 +2,9 @@
 date = 2022-07-22T05:00:00Z
 description = "Plaster, paint, and a pallet knife"
 draft = true
-image = ""
+image = "/uploads/fresco-painting-header.png"
 slug = "easy-fresco-painting"
-tags = ["diy"]
+tags = ["diy", "video"]
 title = "DIY: Painting using that viral fresco technique"
 
 +++
@@ -32,6 +32,8 @@ What's nice about this project is that it's fairly inexpensive and doesn't invol
 
 I got all of my supplies at Walmart in one fell swoop. I got a pack of five 16x20 canvases for around $15 which is great in case I really messed up. I decided I was going to make art for a wall in my living room and would use three of the canvases to fill the space.
 
+![](/uploads/paints.jpg)
+
 ### Painting the Canvas
 
 I decided to paint my canvas first as white was just a little boring for me. I went with a dark, blue-grey color. This will help the plaster pop. To be honest, I actually used an old paint sample we had. It's called calligraphy by Behr.
@@ -54,4 +56,8 @@ Anyway, the video I watched showed how to load the pallet knife. Scrape a little
 
 All that's left is to get creative! I tried starting in the corners but restarted several times so I changed tactics and started with a flower shape in the middle then worked my way out. Eventually, I found my rhythm and each blob of plaster looked better and better. I won't say they ever looked great, but by the end, I kind of had an idea of what I was doing. I'm hoping my second painting will look even better.
 
+![](/uploads/close-up-fresco-plaster.jpg)
+
 I'm going to make each painting quite a bit different than the others. I toyed with the idea of making them continuous, but I don't think I'd be able to execute that how I'd like. It always looks better in my head! So, I'll keep the same color pallets for consistency, but the designs will be different. It'll still be quite striking on the wall.
+
+![](/uploads/two-paintings.jpg)
