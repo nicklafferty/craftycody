@@ -8,7 +8,6 @@ tags = ["diy"]
 title = "DIY: Painting using that viral fresco technique"
 
 +++
-
 {{< youtube id_here_please >}}
 
 I get a lot of craft and DIY-related video recommendations from Instagram and Youtube. Over the last few months, I've gotten an influx of painting videos. I think because they teach you how to paint a thing, but they're also very soothing to watch.
@@ -24,7 +23,7 @@ So, this week I decided to try it. There isn't much detail to go into, but I'll 
 1. Canvas
 2. Acrylic paints
 3. Pallet knife
-4. Spackle or [Plaster](https://www.walmart.com/ip/DAP-Patching-Plaster-32-oz/17243999) (I used plaster)
+4. Spackle or [Plaster](https://www.walmart.com/ip/DAP-Patching-Plaster-32-oz/17243999) (I used plaster) (tip: use [Plaster of Paris dry mix](https://www.lowes.com/pd/DAP-8-lb-Plaster-of-Paris/1002997942?cm_mmc=shp-_-c-_-prd-_-pnt-_-ggl-_-LIA_PNT_221_Glue-Adhesives-Caulk-Repair-_-1002997942-_-local-_-0-_-0&ds_rl=1286981&gclid=Cj0KCQjwlemWBhDUARIsAFp1rLXhzeMo63_PdYfMPOdiclVj95tevREa6CvooCXBeXsZKC_7iQKeFuQaAlIeEALw_wcB&gclsrc=aw.ds))
 5. Corn starch to thicken plaster
 
 ## How-to:
@@ -42,6 +41,8 @@ I decided to paint my canvas first as white was just a little boring for me. I w
 At first, I was worried I bought the wrong thing. When I opened the plaster bin, it seemed really runny so I gave it a good stir but it was still pretty thin- at least in comparison to what I'm used to. I also bought two jugs of it so I was especially upset. However, I decided to run a little experiment and added some corn starch to help thicken it up and it worked! You may want to look into a lot of options for this because foodstuffs have a chance of going bad, but I'm going to risk it.
 
 I spooned some plaster onto a paper plate, mixed in my desired paint color, then added the corn starch to thicken it.
+
+Instead of buying ready-made plaster, next time I'm going to get [plaster of paris ](https://www.lowes.com/pd/DAP-8-lb-Plaster-of-Paris/1002997942?cm_mmc=shp-_-c-_-prd-_-pnt-_-ggl-_-LIA_PNT_221_Glue-Adhesives-Caulk-Repair-_-1002997942-_-local-_-0-_-0&ds_rl=1286981&gclid=Cj0KCQjwlemWBhDUARIsAFp1rLXhzeMo63_PdYfMPOdiclVj95tevREa6CvooCXBeXsZKC_7iQKeFuQaAlIeEALw_wcB&gclsrc=aw.ds)dry mix. This way I can thicken as needed with the powder and don't run any risk of mold.
 
 ### Loading the pallet knife
 
