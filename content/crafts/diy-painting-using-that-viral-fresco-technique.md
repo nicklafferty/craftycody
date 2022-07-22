@@ -23,8 +23,8 @@ So, this week I decided to try it. There isn't much detail to go into, but I'll 
 1. Canvas
 2. Acrylic paints
 3. Pallet knife
-4. Spackle or [Plaster](https://www.walmart.com/ip/DAP-Patching-Plaster-32-oz/17243999) (I used plaster) (tip: use [Plaster of Paris dry mix](https://www.lowes.com/pd/DAP-8-lb-Plaster-of-Paris/1002997942?cm_mmc=shp-_-c-_-prd-_-pnt-_-ggl-_-LIA_PNT_221_Glue-Adhesives-Caulk-Repair-_-1002997942-_-local-_-0-_-0&ds_rl=1286981&gclid=Cj0KCQjwlemWBhDUARIsAFp1rLXhzeMo63_PdYfMPOdiclVj95tevREa6CvooCXBeXsZKC_7iQKeFuQaAlIeEALw_wcB&gclsrc=aw.ds))
-5. Corn starch to thicken plaster
+4. Spackle or [Plaster](https://www.walmart.com/ip/DAP-Patching-Plaster-32-oz/17243999) (tip: use [Plaster of Paris dry mix](https://www.lowes.com/pd/DAP-8-lb-Plaster-of-Paris/1002997942?cm_mmc=shp-_-c-_-prd-_-pnt-_-ggl-_-LIA_PNT_221_Glue-Adhesives-Caulk-Repair-_-1002997942-_-local-_-0-_-0&ds_rl=1286981&gclid=Cj0KCQjwlemWBhDUARIsAFp1rLXhzeMo63_PdYfMPOdiclVj95tevREa6CvooCXBeXsZKC_7iQKeFuQaAlIeEALw_wcB&gclsrc=aw.ds))
+5. Corn starch to thicken plaster if needed
 
 ## How-to:
 
