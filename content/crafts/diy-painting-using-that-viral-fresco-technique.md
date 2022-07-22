@@ -7,7 +7,7 @@ tags = ["diy", "video"]
 title = "DIY: Painting using that viral fresco technique"
 
 +++
-{{< youtube id_here_please >}}
+{{< youtube zXFDBUsz0Kg >}}
 
 I get a lot of craft and DIY-related video recommendations from Instagram and Youtube. Over the last few months, I've gotten an influx of painting videos. I think because they teach you how to paint a thing, but they're also very soothing to watch.
 
