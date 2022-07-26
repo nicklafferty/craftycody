@@ -29,7 +29,7 @@ This is a quick and relatively inexpensive project. IIRC, the whole thing cost m
 4. Sander
 5. Miter saw
 6. Tension curtain rods (x2)
-7. Clamps
+7. [Clamps ](https://amzn.to/3veElK4)(x2 per shelf)
 8. Rubber insulation tape
 9. Safety gear (earmuffs, glasses, mask)
 
@@ -37,4 +37,4 @@ This is a quick and relatively inexpensive project. IIRC, the whole thing cost m
 
 Decide how long you want your shelves to be. I went with 2ft each so I bought a 4ft long board and cut it in half. I also went with a 1x4 because the depth of my window is 5-inches so a 1x6 would be too wide and the curtains would close awkwardly.
 
-The other thing you have to decide on is the clamps that will be holding the shelves up. I tried to find ones I saw in pictures, but Lowe's was out of stock (of course) so I had to improvise a little. I went with these zinc grounding clamps. They're metal, only a little more expensive than what I was going to buy, and they come with the bolts to tighten them.
+The other thing you have to decide on is the clamps that will be holding the shelves up. I tried to find ones I saw in pictures, but Lowe's was out of stock (of course) so I had to improvise a little. I went with these [zinc grounding clamps](https://amzn.to/3veElK4). They're metal, only a little more expensive than what I was going to buy, and they come with the bolts to tighten them. They also add an industrial look to the shelves which matches how we've decorated the rest of the space.
