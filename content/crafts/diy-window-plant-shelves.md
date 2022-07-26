@@ -69,4 +69,4 @@ Give the shelf a little push down to verify everything is on there securely.
 
 All that's left is to add your plants! I placed my lightest plants on the shelves. These tension rods can hold about 15 pounds, but there's no need to push that limit otherwise disaster will strike.
 
-You can add all kinds of decor to these shelves as well. Maybe lightweight stained glass or fairy lights!
+You can add all kinds of decor to these shelves as well. Maybe a lightweight stained glass or fairy lights!
