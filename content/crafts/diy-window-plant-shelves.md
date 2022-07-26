@@ -52,3 +52,5 @@ To make sure the holes would be even, I measured 2 1/2 inches into the wood and 
 Clamp down the wood to the edge of a workbench and drill the holes. When you're done, give the wood a light sanding to take care of any splinters.
 
 Feel free to stain or paint your shelves any color. I liked how the natural color of the wood looked against the black tension rods so I left mine plain.
+
+### Installing into the window:
