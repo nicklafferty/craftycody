@@ -55,7 +55,7 @@ Feel free to stain or paint your shelves any color. I liked how the natural colo
 
 ### Installing into the window:
 
-Slide the shelves onto the tension rods before securing them into the window. We'll decide the final place for the shelves once the whole unit is tight in the window frame.
+Slide the shelves onto the tension rods before securing them into the window. We'll decide the final place for the shelves once the whole unit is tight in the window frame. Keep the part of the rod you tighten at the top and don't put shelves on it.
 
 Once the rods are secure, decide where you want your shelves to sit. I placed mine higher up since I have taller plants that will live below on the window sill itself.
 
