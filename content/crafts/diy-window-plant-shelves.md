@@ -15,3 +15,7 @@ And it paid off!
 I found some great ideas on how to utilize the vertical space of my windows without drilling or any complex construction. It's always a fun challenge to try and recreate something I see online and to see how cost-effective I can do it.
 
 This is a quick and relatively inexpensive project. IIRC, the whole thing cost me about $40.
+
+Supples:
+
+How-to:
