@@ -56,3 +56,11 @@ Feel free to stain or paint your shelves any color. I liked how the natural colo
 ### Installing into the window:
 
 Slide the shelves onto the tension rods before securing them into the windows. We'll decide the final place for the shelves once the whole unit is tight in the window frame.
+
+Once the rods are secure, decide where you want your shelves to sit. I placed mine higher up since I have taller plants that will live below on the window sill itself.
+
+Cut two pieces of rubber insulation tape so they will wrap around the rods once. Put a piece on either rod and slide the shelf over them.
+
+Now, attach one of your clamps under the shelf and over the insulation tape. Screw it on tight, but not too tight to crack the rods- they are plastic after all. Make sure the shelf is level before securing the second clamp.
+
+Give the shelf a little push down to verify everything is on there securely.
