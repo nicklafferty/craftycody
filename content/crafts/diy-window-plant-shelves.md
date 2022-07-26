@@ -23,4 +23,14 @@ This is a quick and relatively inexpensive project. IIRC, the whole thing cost m
 
 ## Supples:
 
+1. 1x4x4 piece of wood cut in half
+2. Drill
+3. 1 1/4" spade bit
+4. Sander
+5. Miter saw
+6. Tension curtain rods (x2)
+7. Clamps
+8. Rubber insulation tape
+9. Safety gear (earmuffs, glasses, mask, gloves)
+
 ## How-to:
