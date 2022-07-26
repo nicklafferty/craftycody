@@ -31,6 +31,8 @@ This is a quick and relatively inexpensive project. IIRC, the whole thing cost m
 6. Tension curtain rods (x2)
 7. Clamps
 8. Rubber insulation tape
-9. Safety gear (earmuffs, glasses, mask, gloves)
+9. Safety gear (earmuffs, glasses, mask)
 
 ## How-to:
+
+Decide how long you want your shelves to be. I went with 2ft each so I bought a 4ft long board and cut it in half.
