@@ -38,6 +38,8 @@ This is a quick and relatively inexpensive project. If I remember correctly, the
 
 Decide how long you want your shelves to be. I went with 2ft each so I bought a 4ft long board and cut it in half. I also went with a 1x4 because the depth of my window is 5-inches so a 1x6 would be too wide and the curtains would close awkwardly.
 
+![](/uploads/window-plant-shelves-supplies-2.jpg)
+
 The other thing you have to decide on is the clamps that will be holding the shelves up. I tried to find ones I saw in pictures, but Lowe's was out of stock (of course) so I had to improvise a little. I went with these [zinc grounding clamps](https://amzn.to/3veElK4). They're metal, only a little more expensive than what I was going to buy, and they come with the bolts to tighten them. They also add an industrial look to the shelves which matches how we've decorated the rest of the space.
 
 ![](/uploads/window-plant-shelves-supplies-3.jpg)
@@ -65,6 +67,8 @@ Slide the shelves onto the tension rods before securing them into the window. We
 Once the rods are secure, decide where you want your shelves to sit. I placed mine higher up since I have taller plants that will live below on the window sill itself.
 
 Cut two pieces of rubber insulation tape so they will wrap around the rods once. Put a piece on either rod and slide the shelf over them.
+
+![](/uploads/window-plant-shelves-supplies-1.jpg)
 
 Now, attach one of your clamps under the shelf and over the insulation tape. Screw it on tight, but not too tight to crack the rods- they are plastic after all. Make sure the shelf is level before securing the second clamp.
 
