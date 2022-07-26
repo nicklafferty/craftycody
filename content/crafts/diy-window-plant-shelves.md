@@ -19,7 +19,7 @@ I found some great ideas on how to utilize the vertical space of my windows with
 
 Basically, they're floating shelves that use tension rods and some clamps to "float". I'm going to be putting two shelves on mine, but you can add as many as you need so long as it's within the weight requirements for the rods. You don't want this thing crashing down in the middle of the night.
 
-This is a quick and relatively inexpensive project. IIRC, the whole thing cost me about $40.
+This is a quick and relatively inexpensive project. If I remember correctly, the whole thing cost about $40.
 
 ## Supples:
 
