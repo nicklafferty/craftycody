@@ -64,3 +64,9 @@ Cut two pieces of rubber insulation tape so they will wrap around the rods once.
 Now, attach one of your clamps under the shelf and over the insulation tape. Screw it on tight, but not too tight to crack the rods- they are plastic after all. Make sure the shelf is level before securing the second clamp.
 
 Give the shelf a little push down to verify everything is on there securely.
+
+### Decorate!
+
+All that's left is to add your plants! I placed my lightest plants on the shelves. These tension rods can hold about 15 pounds, but there's no need to push that limit otherwise disaster will strike.
+
+You can add all kinds of decor to these shelves as well. Maybe lightweight stained glass or fairy lights!
