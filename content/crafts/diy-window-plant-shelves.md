@@ -30,7 +30,7 @@ This is a quick and relatively inexpensive project. IIRC, the whole thing cost m
 5. Miter saw
 6. Tension curtain rods (x2)
 7. [Clamps ](https://amzn.to/3veElK4)(x2 per shelf)
-8. Rubber insulation tape
+8. [Rubber insulation tape](https://amzn.to/3Bg0WK1)
 9. Safety gear (earmuffs, glasses, mask)
 
 ## How-to:
