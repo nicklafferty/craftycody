@@ -40,7 +40,7 @@ Decide how long you want your shelves to be. I went with 2ft each so I bought a 
 
 ![](/uploads/window-plant-shelves-supplies-2.jpg)
 
-The other thing you have to decide on is the clamps that will be holding the shelves up. I tried to find ones I saw in pictures, but Lowe's was out of stock (of course) so I had to improvise a little. I went with these [zinc grounding clamps](https://amzn.to/3veElK4). They're metal, only a little more expensive than what I was going to buy, and they come with the bolts to tighten them. They also add an industrial look to the shelves which matches how we've decorated the rest of the space.
+The other thing you have to decide on is the clamps that will be holding the shelves up. I tried to find ones I saw in pictures, but Lowe's was out of stock (of course) so I had to improvise a little. I went with these [zinc ground clamps](https://amzn.to/3veElK4). They're metal, only a little more expensive than what I was going to buy, and they come with the bolts to tighten them. They also add an industrial look to the shelves which matches how we've decorated the rest of the space.
 
 ![](/uploads/window-plant-shelves-supplies-3.jpg)
 
