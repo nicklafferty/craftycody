@@ -17,7 +17,7 @@ And it paid off!
 
 I found some great ideas on how to utilize the vertical space of my windows without drilling or any complex construction. It's always a fun challenge to try and recreate something I see online and to see how cost-effective I can do it.
 
-Basically, they're floating shelves that use tension rods and some clamps to "float". I'm going to be putting two shelves on mine, but you can add as many as you need so long as it's within the weight requirements for the rods. You don't want this thing crashing down in the middle of the night.
+Basically, they're floating shelves that use curtain tension rods and some clamps to "float". I'm going to be putting two shelves on mine, but you can add as many as you need so long as it's within the weight requirements for the rods. You don't want this thing crashing down in the middle of the night.
 
 This is a quick and relatively inexpensive project. If I remember correctly, the whole thing cost about $40.
 
