@@ -28,7 +28,7 @@ This is a quick and relatively inexpensive project. If I remember correctly, the
 3. [1 1/4" spade bit](https://amzn.to/3RWKUut)
 4. Sander
 5. Miter saw
-6. [Tension curtain rods (x2)](https://www.walmart.com/ip/Mainstays-1-Bronze-Adjustable-Tension-Window-Curtain-Rod-48-84-Oil-Rubbed-Bronze/689963352)
+6. [Tension curtain rods](https://www.walmart.com/ip/Mainstays-1-Bronze-Adjustable-Tension-Window-Curtain-Rod-48-84-Oil-Rubbed-Bronze/689963352) (x2)
 7. [Clamps ](https://amzn.to/3veElK4)(x2 per shelf)
 8. [Rubber insulation tape](https://amzn.to/3Bg0WK1)
 9. Safety gear (earmuffs, glasses, mask)
