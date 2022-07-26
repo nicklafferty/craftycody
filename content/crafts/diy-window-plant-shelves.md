@@ -8,7 +8,6 @@ tags = ["diy", "video"]
 title = "DIY: Window Plant Shelves"
 
 +++
-
 {{< youtube id_here_please >}}
 
 I, like many people, have too many plants and not enough window sills to put them on. We also have a pretty dark house so I feel compelled to put most of my plants in our large, picture window at the front of our house. However, the window sill is only about 5-inches deep and, even though it's long, it filled up quickly. Since I ran out of horizontal space, it was time to get some ideas which lead to spending hours on [Pinterest](https://www.pinterest.com/codyscraftcorner/).
@@ -41,13 +40,19 @@ Decide how long you want your shelves to be. I went with 2ft each so I bought a 
 
 The other thing you have to decide on is the clamps that will be holding the shelves up. I tried to find ones I saw in pictures, but Lowe's was out of stock (of course) so I had to improvise a little. I went with these [zinc grounding clamps](https://amzn.to/3veElK4). They're metal, only a little more expensive than what I was going to buy, and they come with the bolts to tighten them. They also add an industrial look to the shelves which matches how we've decorated the rest of the space.
 
+![](/uploads/window-plant-shelves-supplies-3.jpg)
+
 Measure your window's height and get the tension rod that will fit. I bought Walmart's brand in black. They're 1-inch wide which is why I went with a 1 1/4-inch spade bit for the shelves. If your rods are smaller or larger then change the spade bit accordingly.
+
+![](/uploads/window-plant-shelves-supplies-4.jpg)
 
 ### Cutting and Drilling:
 
 I cut my piece of wood in half and ended up with two, 2ft pieces. This is a great project because this is the only cut I had to make.
 
 To make sure the holes would be even, I measured 2 1/2 inches into the wood and 1 3/4 inches down. I marked where those two lines intersected and that's where I drill my holes. The holes need to be placed far enough from the edge so you don't split the wood. Also, we're measuring 1 3/4 inches down because a 1x4 is actually 0.5x3.5 and half of 3.5 is 1.75 or 1 3/4.
+
+![](/uploads/spade-bit-diagram-for-plant-shelves.png)
 
 Clamp down the wood to the edge of a workbench and drill the holes. When you're done, give the wood a light sanding to take care of any splinters.
 
@@ -63,6 +68,8 @@ Cut two pieces of rubber insulation tape so they will wrap around the rods once.
 
 Now, attach one of your clamps under the shelf and over the insulation tape. Screw it on tight, but not too tight to crack the rods- they are plastic after all. Make sure the shelf is level before securing the second clamp.
 
+![](/uploads/finished-window-plant-shelves-3.jpg)
+
 Give the shelf a little push down to verify everything is on there securely.
 
 ### Decorate!
@@ -70,3 +77,5 @@ Give the shelf a little push down to verify everything is on there securely.
 All that's left is to add your plants! I placed my lightest plants on the shelves. These tension rods can hold about 15 pounds, but there's no need to push that limit otherwise disaster will strike.
 
 You can add all kinds of decor to these shelves as well. Maybe a lightweight stained glass or fairy lights!
+
+![](/uploads/finished-window-plant-shelves-2.jpg)![](/uploads/finished-window-plant-shelves-1.jpg)
