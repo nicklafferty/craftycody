@@ -3,7 +3,7 @@ date = 2022-07-29T05:00:00Z
 description = "Utilizing vertical window space so you can buy even more plants."
 draft = true
 image = ""
-slug = ""
+slug = "window-plant-shelves"
 tags = ["diy", "video"]
 title = "DIY: Window Plant Shelves"
 
@@ -54,3 +54,5 @@ Clamp down the wood to the edge of a workbench and drill the holes. When you're 
 Feel free to stain or paint your shelves any color. I liked how the natural color of the wood looked against the black tension rods so I left mine plain.
 
 ### Installing into the window:
+
+Slide the shelves onto the tension rods before securing them into the windows. We'll decide the final place for the shelves once the whole unit is tight in the window frame.
