@@ -25,10 +25,10 @@ This is a quick and relatively inexpensive project. IIRC, the whole thing cost m
 
 1. 1x4x4 piece of wood cut in half
 2. Drill
-3. 1 1/4" spade bit
+3. [1 1/4" spade bit](https://amzn.to/3RWKUut)
 4. Sander
 5. Miter saw
-6. Tension curtain rods (x2)
+6. [Tension curtain rods (x2)](https://www.walmart.com/ip/Mainstays-1-Bronze-Adjustable-Tension-Window-Curtain-Rod-48-84-Oil-Rubbed-Bronze/689963352)
 7. [Clamps ](https://amzn.to/3veElK4)(x2 per shelf)
 8. [Rubber insulation tape](https://amzn.to/3Bg0WK1)
 9. Safety gear (earmuffs, glasses, mask)
