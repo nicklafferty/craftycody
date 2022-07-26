@@ -48,3 +48,7 @@ Measure your window's height and get the tension rod that will fit. I bought Wal
 I cut my piece of wood in half and ended up with two, 2ft pieces. This is a great project because this is the only cut I had to make.
 
 To make sure the holes would be even, I measured 2 1/2 inches into the wood and 1 3/4 inches down. I marked where those two lines intersected and that's where I drill my holes. The holes need to be placed far enough from the edge so you don't split the wood. Also, we're measuring 1 3/4 inches down because a 1x4 is actually 0.5x3.5 and half of 3.5 is 1.75 or 1 3/4.
+
+Clamp down the wood to the edge of a workbench and drill the holes. When you're done, give the wood a light sanding to take care of any splinters.
+
+Feel free to stain or paint your shelves any color. I liked how the natural color of the wood looked against the black tension rods so I left mine plain.
