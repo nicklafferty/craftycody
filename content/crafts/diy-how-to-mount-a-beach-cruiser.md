@@ -57,4 +57,6 @@ There wasn't too much trouble mounting these. It's important to predrill since t
 
 The last thing we did was to wrap a little rubber insulation tape around the pipes. This will, hopefully, help in reducing scratches on the bike itself from the metal brackets.
 
-Now, onto the moment of truth! All that's left is to pop the bike up on the wall and hope for the best.
+Now, onto the moment of truth! All that's left is to pop the bike up on the wall and hope for the best. It's been a few days now and she's still up there. I'm also not seeing any hairline cracks on the wall so I'd call this a success.
+
+It's a fun way to put some "art" up on a large, lonely wall and a unique way to store your bikes.
