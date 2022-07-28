@@ -34,6 +34,7 @@ Let's get started!
 3. Pipe shelf brackets (x2)
 4. Screws (x8)
 5. Stud finder
-6. Bicycle
+6. Insulation tape (reduce scratches)
+7. Bicycle
 
 ## How-to:
