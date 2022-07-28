@@ -16,6 +16,6 @@ It's a large wall that was previously taken up by acoustic panels and store-boug
 
 Enter my bike. It was a birthday present from my folks back when I still lived with them. Yikes, that was a long time ago. It's made a couple of moves with us and I just don't use it as much as I should. We keep moving to hilly areas and it's really suited for flat terrain i.e. a boardwalk at a beach.
 
-We've been doing a little spring cleaning and selling unused furniture on OfferUp and my husband wanted me to add the bike to the list. It's been living in the garage, unused mostly, The thing is though is that I love this bike. I love how beach cruisers look, I love that it's my favorite color, and I love it because it was a present from my parents. I have a _really_ hard time giving away anything that has the slightest bit of meaning which is why most of my stuff is still at my parent's house.
+We've been doing a little spring cleaning and selling unused furniture on OfferUp and my husband wanted me to add the bike to the list. It's been living in the garage and getting in the way of my makeshift workshop. The thing is though is that I love this bike. I love how beach cruisers look, I love that it's my favorite color, and I love it because it was a present from my parents. I have a _really_ hard time giving away anything that has the slightest bit of meaning which is why most of my stuff is still at my parent's house.
 
 Imagine my surprise when he suggested we should mount the dang thing onto the wall so we could display it properly.
