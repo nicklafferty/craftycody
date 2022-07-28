@@ -8,9 +8,9 @@ tags = []
 title = "DIY: How to Mount a Beach Cruiser"
 
 +++
-I get nervous when mounting anything to the wall. I always feel like it's going to come crashing down in the middle of the night. However, that's literally never happened to me (yet) because I use proper screws and drill into studs.
+I get nervous when mounting anything to the wall. I always feel like it's going to come crashing down in the middle of the night. However, that's literally never happened to me (yet) because I always drill into studs.
 
-It doesn't matter because I felt the same when my husband suggested we mount my super-cool, lime green beach cruiser on our living room wall.
+It doesn't matter though because I felt the same when my husband suggested we mount my super-cool, lime green beach cruiser on our living room wall.
 
 It's a large wall that was previously taken up by acoustic panels and store-bought art pieces. We didn't really know how else to fill it so it became a catch-all of sorts. The acoustic panels did help since our bedroom is right behind the living room and this big wall has the hallway on the other side of it. The space was definitely functional but lacked any kind of personality.
 
