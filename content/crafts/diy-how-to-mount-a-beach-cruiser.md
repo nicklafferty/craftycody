@@ -25,6 +25,8 @@ Imagine my surprise when he suggested we should mount the dang thing onto the wa
 
 I searched around online to try and find a mount I liked and nothing was really grabbing me or were way too expensive. I did find a few that were basically pegs in the wall and it clicked. I would use the same shelving brackets we used on our kitchen shelves! They're 8-inch iron pipes that can each hold about 80 pounds. The bike doesn't weigh that much, but it is a lot heavier than normal bikes so I was happy to overcompensate on the weight requirements.
 
+Let's get started!
+
 ## Supplies:
 
 1. Drill
@@ -34,4 +36,4 @@ I searched around online to try and find a mount I liked and nothing was really 
 5. Stud finder
 6. Bicycle
 
-How-to:
+## How-to:
