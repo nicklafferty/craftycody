@@ -20,4 +20,4 @@ We've been doing a little spring cleaning and selling unused furniture on OfferU
 
 Imagine my surprise when he suggested we should mount the dang thing onto the wall so we could display it properly. Very exciting.
 
-I searched around online to try and find a mount I liked and nothing was really grabbing me or was way too expensive which is usually the case.
+I searched around online to try and find a mount I liked and nothing was really grabbing me or were way too expensive.
