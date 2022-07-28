@@ -45,4 +45,10 @@ For my bike to fit up against the wall, we had to pivot the handlebar around 90 
 
 We took everything off our wall and removed all the hooks/nails. My husband lifted up the bike and I directed him around until it was level and centered(ish) on the wall.
 
-When we found the right position, he lifted it back up and I placed
+When we found the right position, he lifted it back up and I placed each pipe bracket on the wall and in the spot where it would hold the bike. I used a pencil to mark where the holes were so I could predrill them without anyone having to hold anything up.
+
+### Drilling
+
+Once I drilled all eight holes, I put the brackets back on the wall so I could mount them. This is where I used my impact driver. It does a great job drilling into the studs. I used #12 1 1/2 inch screws to mount the pipe shelf brackets. These were the recommended screws labeled on the brackets themselves.
+
+There wasn't too much trouble mounting these. It's important to predrill since that's like a guide for the screws and helps them go in straight.
