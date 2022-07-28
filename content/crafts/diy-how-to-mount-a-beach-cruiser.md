@@ -4,10 +4,13 @@ description = "A stylish and functional way of mounting your bike to a wall for 
 draft = true
 image = ""
 slug = ""
-tags = []
+tags = ["diy", "video"]
 title = "DIY: How to Mount a Beach Cruiser"
 
 +++
+
+{{< youtube id_here_please >}}
+
 I get nervous when mounting anything to the wall. I always feel like it's going to come crashing down in the middle of the night. However, that's literally never happened to me (yet) because I always drill into studs.
 
 It doesn't matter though because I felt the same when my husband suggested we mount my super-cool, lime green beach cruiser on our living room wall.
@@ -22,12 +25,13 @@ Imagine my surprise when he suggested we should mount the dang thing onto the wa
 
 I searched around online to try and find a mount I liked and nothing was really grabbing me or were way too expensive. I did find a few that were basically pegs in the wall and it clicked. I would use the same shelving brackets we used on our kitchen shelves! They're 8-inch iron pipes that can each hold about 80 pounds. The bike doesn't weigh that much, but it is a lot heavier than normal bikes so I was happy to overcompensate on the weight requirements.
 
-Supplies:
+## Supplies:
 
 1. Drill
 2. Impact driver
 3. Pipe shelf brackets (x2)
 4. Screws (x8)
 5. Stud finder
+6. Bicycle
 
 How-to:
