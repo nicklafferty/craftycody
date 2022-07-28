@@ -39,6 +39,8 @@ Let's get started!
 
 ## How-to:
 
-### Setting up the space
+### Setting Up
 
-We took everything off our wall
+We took everything off our wall and removed all the hooks/nails. My husband lifted up the bike and I directed him around until it was level and centered(ish) on the wall.
+
+For my bike to fit up against the wall, we had to pivot the handlebar around 90 degrees and remove one of the pedals. It's more flush against the wall this way and they're easy fixes.
