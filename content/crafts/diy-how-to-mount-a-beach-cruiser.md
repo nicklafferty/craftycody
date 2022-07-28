@@ -18,4 +18,4 @@ Enter my bike. It was a birthday present from my folks back when I still lived w
 
 We've been doing a little spring cleaning and selling unused furniture on OfferUp and my husband wanted me to add the bike to the list. It's been living in the garage and getting in the way of my makeshift workshop. The thing though is that I love this bike. I love how beach cruisers look, I love that it's my favorite color, and I love it because it was a present from my parents. I have a _really_ hard time giving away anything that has the slightest bit of meaning which is why most of my stuff is still at my parent's house.
 
-Imagine my surprise when he suggested we should mount the dang thing onto the wall so we could display it properly.
+Imagine my surprise when he suggested we should mount the dang thing onto the wall so we could display it properly. Very exciting.
