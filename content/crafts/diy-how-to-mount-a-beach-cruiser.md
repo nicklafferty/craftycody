@@ -29,12 +29,16 @@ Let's get started!
 
 ## Supplies:
 
-1. Drill
-2. Impact driver
-3. Pipe shelf brackets (x2)
+1. [Drill](https://amzn.to/3zem94b)
+2. [Impact driver](https://amzn.to/3Q5LEvE)
+3. [Pipe shelf brackets](https://www.homedepot.com/p/Everbilt-8-in-Black-Industrial-Pipe-Shelf-Bracket-19682/302089331) (x2)
 4. Screws (x8)
-5. Stud finder
-6. Insulation tape (reduce scratches)
-7. Bicycle
+5. [Stud finder](https://amzn.to/3SbctjC)
+6. [Insulation tape](https://www.lowes.com/pd/Frost-King-1-8-in-Rubber-Plumbing-Pipe-Wrap-Insulation/3427634) (reduce scratches)
+7. [Bicycle](https://sun.bike/collections/cruisers)
 
 ## How-to:
+
+### Setting up the space
+
+We took everything off our wall
