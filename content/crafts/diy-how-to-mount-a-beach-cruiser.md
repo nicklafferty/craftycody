@@ -3,7 +3,7 @@ date = ""
 description = "A stylish and functional way of mounting your bike to a wall for some instant art."
 draft = true
 image = ""
-slug = "wall-mounting-a-bicycle"
+slug = "wall-mounting-bicycle"
 tags = ["diy", "video"]
 title = "DIY: How to Mount a Beach Cruiser"
 
