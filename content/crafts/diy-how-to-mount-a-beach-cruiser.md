@@ -3,7 +3,7 @@ date = ""
 description = "A stylish and functional way of mounting your bike to a wall for some instant art."
 draft = true
 image = ""
-slug = ""
+slug = "wall-mounting-a-bicycle"
 tags = ["diy", "video"]
 title = "DIY: How to Mount a Beach Cruiser"
 
@@ -50,7 +50,7 @@ When we found the right position, he lifted it back up and I placed each pipe br
 
 Once I predrilled all eight holes, I put the brackets back on the wall so I could mount them. This is where I used my impact driver. It does a great job drilling into the studs. I used [#12 1-1/2 inch screws](https://amzn.to/3zhI1vB) to mount the pipe shelf brackets. These were the recommended screws labeled on the brackets themselves.
 
-There wasn't too much trouble mounting these. It's important to predrill since that's like a guide for the screws and helps them go in straight. Predrilling also helps you determine that your holes are in fact going into studs. If there is no resistance then it's probably just drywall. I had to adjust a few of the holes for this reason but it's better to figure it out before you're actually mounting the brackets.
+There wasn't too much trouble mounting these. It's important to predrill since that's like a guide for the screws and helps them go in straight. Predrilling also helps you determine that your holes are in fact going into studs. If there is no resistance then it's probably just drywall. I had to adjust a few of the holes for this reason but it's better to figure it out before you're actually mounting the brackets. You want at least two screws on each bracket going into the studs.
 
 ### Mounting
 
