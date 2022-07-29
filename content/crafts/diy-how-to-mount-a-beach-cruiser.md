@@ -40,7 +40,7 @@ Let's get started!
 
 ### Setting Up
 
-For my bike to fit up against the wall, we had to pivot the handlebar around 90 degrees and remove one of the pedals. It sits flush against the wall this way and they're easy fixes. My pedal was stuck on there _really_ well and I [watched this video](https://www.youtube.com/watch?v=j2pNdTWLE94) which worked like a charm. You'll probably need a large [hex key](https://amzn.to/3zF88y6) to loosen the handlebars and turn them.
+For my bike to fit up against the wall, we had to pivot the handlebar around 90 degrees and remove one of the pedals. It sits flush against the wall this way and they're easy fixes. My pedal was stuck on there _really_ well and I [watched this video](https://www.youtube.com/watch?v=j2pNdTWLE94) which worked like a charm. The only tool needed is a [15mm box wrench](https://amzn.to/3Jmx94o). You'll probably need a large [hex key](https://amzn.to/3zF88y6) to loosen the handlebars and turn them then tighten them into place.
 
 We took everything off our wall and removed all the hooks/nails. My husband lifted up the bike and I directed him around until it was level and centered(ish) on the wall.
 
