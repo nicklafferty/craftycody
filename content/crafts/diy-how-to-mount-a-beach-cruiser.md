@@ -44,7 +44,7 @@ For my bike to fit up against the wall, we had to pivot the handlebar around 90 
 
 We took everything off our wall and removed all the hooks/nails. My husband lifted up the bike and I directed him around until it was level and centered(ish) on the wall.
 
-When we found the right position, he lifted it back up and I placed each pipe bracket on the wall and in the spot where it would hold the bike. I used a pencil to mark where the holes were so I could predrill them without anyone having to hold anything up.
+When we found the right position, he lifted it back up and I placed each pipe bracket on the wall and in the spot where it would hold the bike. I used a pencil to mark where the holes were so I could predrill them without anyone having to hold anything up. Remember to use the appropriate size bit for the screws you're using. I bought this [screw/bit size checker](https://amzn.to/3bh6ycm) so I always know which bit to use.
 
 ### Drilling
 
