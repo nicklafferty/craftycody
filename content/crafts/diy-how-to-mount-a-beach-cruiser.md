@@ -10,6 +10,8 @@ title = "DIY: How to Mount a Beach Cruiser"
 +++
 {{< youtube id_here_please >}}
 
+_There are Amazon affiliate links for the products I use at home. I make a small commission with your purchase, but there is absolutely no charge to you._
+
 I get nervous when mounting anything to the wall. I always feel like it's going to come crashing down in the middle of the night. However, that's literally never happened to me (yet) because I always drill into studs.
 
 It doesn't matter though because I felt the same when my husband suggested we mount my super-cool, lime green beach cruiser on our living room wall.
