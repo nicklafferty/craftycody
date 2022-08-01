@@ -1,8 +1,8 @@
 +++
-date = ""
+date = 2022-08-05T05:00:00Z
 description = "A stylish and functional way of mounting your bike to a wall for some instant art."
 draft = true
-image = ""
+image = "/uploads/mounting-a-bike-header.png"
 slug = "wall-mounting-bicycle"
 tags = ["diy", "video"]
 title = "DIY: How to Mount a Beach Cruiser"
@@ -46,11 +46,15 @@ For my bike to fit up against the wall, we had to pivot the handlebar around 90 
 
 We took everything off our wall and removed all the hooks/nails. My husband lifted up the bike and I directed him around until it was level and centered(ish) on the wall.
 
+![](/uploads/premount.jpg)
+
 When we found the right position, he lifted it back up and I placed each pipe bracket on the wall and in the spot where it would hold the bike. I used a pencil to mark where the holes were so I could predrill them without anyone having to hold anything up. Remember to use the appropriate size bit for the screws you're using. I bought this [screw/bit size checker](https://amzn.to/3bh6ycm) so I always know which bit to use.
 
 ### Drilling
 
 Once I predrilled all eight holes, I put the brackets back on the wall so I could mount them. This is where I used my impact driver. It does a great job drilling into the studs. I used [#12 1-1/2 inch screws](https://amzn.to/3zhI1vB) to mount the pipe shelf brackets. These were the recommended screws labeled on the brackets themselves.
+
+![](/uploads/bracket-stud-finder.jpg)
 
 There wasn't too much trouble mounting these. It's important to predrill since that's like a guide for the screws and helps them go in straight. Predrilling also helps you determine that your holes are in fact going into studs. If there is no resistance then it's probably just drywall. I had to adjust a few of the holes for this reason but it's better to figure it out before you're actually mounting the brackets. You want at least two screws on each bracket going into the studs.
 
@@ -58,6 +62,10 @@ There wasn't too much trouble mounting these. It's important to predrill since t
 
 The last thing we did was to wrap a little rubber insulation tape around the pipes. This will, hopefully, help in reducing scratches on the bike itself from the metal brackets.
 
+![](/uploads/close-up-shelf-bracket.jpg)
+
 Now, onto the moment of truth! All that's left is to pop the bike up on the wall and hope for the best. It's been a few days now and she's still up there. I'm also not seeing any hairline cracks on the wall so I'd call this a success.
 
 It's a fun way to put some "art" up on a large, lonely wall and a unique way to store your bikes.
+
+![](/uploads/bike-mounted.jpg)
