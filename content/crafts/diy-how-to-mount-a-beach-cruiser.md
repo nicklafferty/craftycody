@@ -8,7 +8,7 @@ tags = ["diy", "video"]
 title = "DIY: How to Mount a Beach Cruiser"
 
 +++
-{{< youtube id_here_please >}}
+{{< youtube 8iOt_bivJ4k >}}
 
 _There are Amazon affiliate links for the products I use at home. I make a small commission with your purchase, but there is absolutely no charge to you._
 
