@@ -1,7 +1,6 @@
 +++
-date = 2022-08-05T05:00:00Z
+date = 2022-08-03T05:00:00Z
 description = "A stylish and functional way of mounting your bike to a wall for some instant art."
-draft = true
 image = "/uploads/mounting-a-bike-header.png"
 slug = "wall-mount-bicycle"
 tags = ["diy", "video"]
