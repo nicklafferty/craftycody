@@ -12,4 +12,4 @@ I mentioned in my [last IKEA post](https://craftycody.com/crafts/doors-ikea-kall
 
 These doors will be a little bigger than the ones I made for my tv stand. Basically what I'll be doing is doubling the size of each door and only adding two to the kallax instead of four.
 
-This project should go even faster than my last one since there will be less cutting and I kind of know what I'm doing now.
+This project should go even faster than my last one since there will be less cutting and I kind of know what I'm doing now. I think the hardest part will be finding cabinet pulls I like.
