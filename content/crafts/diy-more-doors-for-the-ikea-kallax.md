@@ -21,6 +21,8 @@ This project should go even faster than my last one since there will be less cut
 3. Drill
 4. Sander
 5. Stain/Paint if needed
+6. Burlap/Rattan/Fabric of choice
+7. Stapler
 
 ## How-to:
 
@@ -33,3 +35,7 @@ Sanding
 Clamping
 
 Drilling
+
+Adding fabric
+
+Mounting
