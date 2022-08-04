@@ -22,12 +22,14 @@ This project should go even faster than my last one since there will be less cut
  2. Miter saw
  3. Drill
  4. Sander
- 5. Stain/Paint if needed
- 6. Burlap/Rattan/Fabric of choice
- 7. Stapler
- 8. Hinges (x4)
- 9. Cabinet pulls
-10. Safety gear
+ 5. Wood glue
+ 6. Clamps
+ 7. Stain/Paint if needed
+ 8. Burlap/Rattan/Fabric of choice
+ 9. Stapler
+10. Hinges (x4)
+11. Cabinet pulls
+12. Safety gear
 
 ## How-to:
 
@@ -37,7 +39,7 @@ This project should go even faster than my last one since there will be less cut
 
 ### Sanding
 
-### Clamping
+### Gluing
 
 ### Drilling
 
