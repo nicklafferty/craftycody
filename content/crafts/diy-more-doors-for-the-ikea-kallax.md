@@ -12,6 +12,8 @@ I mentioned in my [last IKEA post](https://craftycody.com/crafts/doors-ikea-kall
 
 These doors will be a little bigger than the ones I made for my tv stand. Basically, I'll be doubling the size of each door and only adding two to the kallax instead of four. I wanted it to look a little different than the one in the living room. I also won't be staining or painting these doors, however, you easily could if you wanted.
 
+I guess this would count as an IKEA hack. I have one more kallax after this one and will more than likely be adding doors to it as well. Maybe I can come up with something a little more special since it's a 2x2 cubby unit.
+
 This project should go even faster than my last one since there will be less cutting and I kind of know what I'm doing now. I think the hardest part will be finding cabinet pulls I like.
 
 ## Supplies:
