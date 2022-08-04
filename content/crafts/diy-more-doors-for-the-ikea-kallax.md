@@ -16,15 +16,16 @@ This project should go even faster than my last one since there will be less cut
 
 ## Supplies:
 
-1. Wood (1x3s)
-2. Miter saw
-3. Drill
-4. Sander
-5. Stain/Paint if needed
-6. Burlap/Rattan/Fabric of choice
-7. Stapler
-8. Cabinet pulls
-9. Safety gear
+ 1. Wood (1x3s)
+ 2. Miter saw
+ 3. Drill
+ 4. Sander
+ 5. Stain/Paint if needed
+ 6. Burlap/Rattan/Fabric of choice
+ 7. Stapler
+ 8. Hinges (x4)
+ 9. Cabinet pulls
+10. Safety gear
 
 ## How-to:
 
