@@ -28,16 +28,16 @@ This project should go even faster than my last one since there will be less cut
 
 ## How-to:
 
-Cut list
+### Cut list
 
-Cutting
+### Cutting
 
-Sanding
+### Sanding
 
-Clamping
+### Clamping
 
-Drilling
+### Drilling
 
-Adding fabric
+### Adding fabric
 
-Mounting
+### Mounting
