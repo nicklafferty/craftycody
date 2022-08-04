@@ -10,6 +10,8 @@ title = "DIY: More doors for the IKEA kallax"
 +++
 _This post contains Amazon affiliate links to the actual products I use daily. I make a small commission with your order, but there is no cost to you._
 
+You can find PDF plans for all of my IKEA hacks and more on [my Etsy page](https://www.etsy.com/shop/CodysCraftyCo).
+
 Google Analytics sends me some data each month. It doesn't go into a lot of detail, but I get to see the broad strokes of how my website is doing and I'm steadily going up in the charts. One thing I pay attention to is what people are searching for when they click on my website and it has become apparent that everyone wants more IKEA hacks. So here we go.
 
 I mentioned in my [last IKEA post](https://craftycody.com/crafts/doors-ikea-kallax/) that I have several kallax shelving units in my house and I've had them all for years. I hate getting rid of perfectly good furniture just to buy something new, so I started updating what I had. I've already put a set of doors on one kallax, so now it's time to move on to the one in my sunroom.
