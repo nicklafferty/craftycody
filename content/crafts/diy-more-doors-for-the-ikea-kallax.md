@@ -20,6 +20,16 @@ This project should go even faster than my last one since there will be less cut
 2. Miter saw
 3. Drill
 4. Sander
-5. 
+5. Stain/Paint if needed
 
 ## How-to:
+
+Cut list
+
+Cutting
+
+Sanding
+
+Clamping
+
+Drilling
