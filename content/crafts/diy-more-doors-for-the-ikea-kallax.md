@@ -30,7 +30,7 @@ This project should go even faster than my last one since there will be less cut
  8. Burlap/Rattan/Fabric of choice
  9. Stapler
 10. Hinges (x4)
-11. Cabinet pulls
+11. Cabinet pulls (x2)
 12. Safety gear
 
 ## How-to:
