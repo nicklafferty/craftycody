@@ -23,6 +23,8 @@ This project should go even faster than my last one since there will be less cut
 5. Stain/Paint if needed
 6. Burlap/Rattan/Fabric of choice
 7. Stapler
+8. Cabinet pulls
+9. Safety gear
 
 ## How-to:
 
