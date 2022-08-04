@@ -8,3 +8,4 @@ tags = []
 title = "DIY: More doors for the IKEA kallax"
 
 +++
+I mentioned in my [last IKEA post](https://craftycody.com/crafts/doors-ikea-kallax/) that I have several shelving units in my house.
