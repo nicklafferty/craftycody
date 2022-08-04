@@ -8,6 +8,9 @@ tags = ["diy", "video"]
 title = "DIY: More doors for the IKEA kallax"
 
 +++
+
+{{< youtube id_here_please >}}
+
 _This post contains Amazon affiliate links to the actual products I use daily. I make a small commission with your order, but there is no cost to you._
 
 You can find PDF plans for all of my IKEA hacks and more on [my Etsy page](https://www.etsy.com/shop/CodysCraftyCo).
@@ -21,6 +24,8 @@ These doors will be a little bigger than the ones I made for my tv stand. Basica
 I guess this would count as an IKEA hack. I have one more kallax after this one and will more than likely be adding doors to it as well. Maybe I can come up with something a little more special since it's a 2x2 cubby unit.
 
 This project should go even faster than my last one since there will be less cutting and I kind of know what I'm doing now. I think the hardest part will be finding cabinet pulls I like.
+
+Let's get started.
 
 ## Supplies:
 
