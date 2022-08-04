@@ -30,13 +30,13 @@ Let's get started.
 ## Supplies:
 
  1. Wood (1x3s)
- 2. Miter saw
- 3. Drill
- 4. Sander
+ 2. [Miter saw](https://amzn.to/3zYLXCU)
+ 3. [Drill](https://amzn.to/3BHcK83)
+ 4. [Sander](https://amzn.to/3zzE71q)
  5. Wood glue
  6. Clamps
  7. Stain/Paint if needed
- 8. Burlap/Rattan/Fabric of choice
+ 8. [Burlap](https://amzn.to/3oTgz2m)/Rattan/Fabric of choice
  9. Stapler
 10. Hinges (x4)
 11. Cabinet pulls (x2)
