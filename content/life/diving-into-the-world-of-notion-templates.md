@@ -1,8 +1,7 @@
 +++
-date = ""
+date = 2022-08-08T05:00:00Z
 description = "Yet another new craft to add to my repertoire"
-draft = true
-image = ""
+image = "/uploads/notion-templates-header.png"
 slug = "new-notion-templates"
 tags = ["notion"]
 title = "Diving into the world of Notion templates"
