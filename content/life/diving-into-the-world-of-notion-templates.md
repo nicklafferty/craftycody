@@ -3,7 +3,7 @@ date = ""
 description = "Yet another new craft to add to my repertoire"
 draft = true
 image = ""
-slug = ""
+slug = "new-notion-templates"
 tags = ["notion"]
 title = "Diving into the world of Notion templates"
 
@@ -19,3 +19,7 @@ I am _loving_ making these templates. It's so much fun and you can make them all
 My first one is a [plant planner](https://craftycody.gumroad.com/l/my-plant-planner-notion) or plant tracking app. You keep up with all of your plant's watering schedules, light requirements, photos, propagation notes, and more. I tried to make it fun and really cute!
 
 My second Notion template is for [all things concerning your house](https://craftycody.gumroad.com/l/ourhousenotiontemplate). There's a to-do list, reno ideas, contractor bids, an integrated project calendar, and space to keep track of documents during the home buying process.
+
+Both are fairly simple when it comes to templates, but they're also priced simply!
+
+If you have any ideas of what other kinds of Notion templates I could make, feel free to get in touch!
