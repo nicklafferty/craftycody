@@ -16,4 +16,6 @@ Making Notion templates seemed like a natural transition. You get to be creative
 
 I am _loving_ making these templates. It's so much fun and you can make them all within Notion itself! I've completed two templates so far and they're available for purchase on [my Gumroad page](https://craftycody.gumroad.com/).
 
-My first one is a [plant planner](https://craftycody.gumroad.com/l/my-plant-planner-notion) or plant tracking app. You keep up with all of your plant's watering schedules, light requirements, photos, propagation notes, and more.
+My first one is a [plant planner](https://craftycody.gumroad.com/l/my-plant-planner-notion) or plant tracking app. You keep up with all of your plant's watering schedules, light requirements, photos, propagation notes, and more. I tried to make it fun and really cute!
+
+My second Notion template is for [all things concerning your house](https://craftycody.gumroad.com/l/ourhousenotiontemplate). There's a to-do list, reno ideas, contractor bids, an integrated project calendar, and space to keep track of documents during the home buying process.
