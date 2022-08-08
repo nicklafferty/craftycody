@@ -13,3 +13,5 @@ My husband has always been a fan of Notion and has written about them on his own
 We all already know that I enjoy making woodworking plans and crochet patterns for digital releases. It keeps costs down and I like getting creative when making my PDFs- as well as the projects themselves.
 
 Making Notion templates seemed like a natural transition. You get to be creative and you can make one about anything you want. People need templates for all kinds of things like house reno, life, working out, dog schedules, and plants.
+
+I am _loving_ making these templates. It's so much fun and you can make them all within Notion itself! I've completed two templates so far and they're available on my Gumroad page.
