@@ -60,6 +60,8 @@ We're going to be using a little less wood here than my last IKEA project. The v
 
 ### Drilling
 
+Decide which side of the door you want to be the front and flip it over. We're going to add the L-brackets to the back of the doors. I placed each of mine in the center of each join. This allowed space for the staples I'd use to secure the fabric later.
+
 ### Adding fabric
 
 ### Mounting
