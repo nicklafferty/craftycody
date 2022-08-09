@@ -72,6 +72,6 @@ This is a good time to stain or paint the doors if you want. I'm going to leave 
 
 ### Adding fabric
 
-Adding the fabric can be a little tricky and time-consuming.
+Adding the fabric can be a little tricky and time-consuming. Make sure the back of the doors are facing up before you get started.
 
 ### Mounting
