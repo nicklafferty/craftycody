@@ -34,13 +34,15 @@ Let's get started.
  4. [Sander](https://amzn.to/3zzE71q)
  5. Wood glue
  6. Clamps
- 7. Stain/Paint if needed
- 8. [Burlap](https://amzn.to/3oTgz2m)/Rattan/Fabric of choice
- 9. Stapler
-10. Hinges (x4)
-11. Cabinet pulls (x2)
-12. L-brackets (x8)
-13. Safety gear
+ 7. Level
+ 8. Ruler/Speed square
+ 9. Stain/Paint if needed
+10. [Burlap](https://amzn.to/3oTgz2m)/Rattan/Fabric of choice
+11. Stapler
+12. Hinges (x4)
+13. Cabinet pulls (x2)
+14. L-brackets (x8)
+15. Safety gear
 
 ## How-to:
 
@@ -77,3 +79,5 @@ Adding the fabric can be a little tricky and time-consuming. Make sure the back 
 I laid the burlap over the back of one of my frames and started stapling from one corner to another. Be sure to pull your fabric tight as you go. I went slowly to make sure the fabric was coming out even.
 
 ### Mounting
+
+An extra set of hands really helps when it's time to hang the doors.
