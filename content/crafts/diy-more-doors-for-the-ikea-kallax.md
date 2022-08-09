@@ -58,7 +58,7 @@ Give each piece a good sanding to smooth over and get rid of any splinters.
 
 ### Gluing
 
-Glue and clamp your doors together. Each door consists of two 24-inch pieces and two 27.5-inch pieces.
+Glue and clamp your doors together. Each door frame consists of two 24-inch pieces and two 27.5-inch pieces.
 
 When the glue is dry, give the doors another light sanding to get rid of any glue that may have squished out. Excess glue will make stain look weird if you don't get rid of it.
 
@@ -71,5 +71,7 @@ When the L-brackets are all attached, flip the doors back over and decide where 
 This is a good time to stain or paint the doors if you want. I'm going to leave mine natural.
 
 ### Adding fabric
+
+Adding the fabric can be a little tricky and time-consuming.
 
 ### Mounting
