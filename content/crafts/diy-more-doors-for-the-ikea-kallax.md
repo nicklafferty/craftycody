@@ -52,9 +52,9 @@ We're going to be using a little less wood here than my last IKEA project. The v
 24-in (x4)  
 27\.5-in (x4)
 
-### Cutting
-
 ### Sanding
+
+Give each piece a good sanding to smooth over and get rid of any splinters.
 
 ### Gluing
 
