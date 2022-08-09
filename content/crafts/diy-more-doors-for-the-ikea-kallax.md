@@ -8,7 +8,6 @@ tags = ["diy", "video", "ikea"]
 title = "DIY: More doors for the IKEA kallax"
 
 +++
-
 {{< youtube id_here_please >}}
 
 _This post contains Amazon affiliate links to the actual products I use daily. I make a small commission with your order, but there is no cost to you._
@@ -45,6 +44,8 @@ Let's get started.
 ## How-to:
 
 ### Cut list
+
+We're going to be using a little less wood here than my last IKEA project. The 
 
 ### Cutting
 
