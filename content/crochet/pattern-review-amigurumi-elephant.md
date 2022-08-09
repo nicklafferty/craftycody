@@ -27,3 +27,5 @@ The pattern uses Himalaya brand yarn which we don't have in the States- at least
 I'm absolutely going to buy more of her patterns. I've got my eye on a cute unicorn that I fell in love with on [her Instagram](https://www.instagram.com/p/CaJvPD_g2LQ/?hl=en).
 
 By the looks of her reviews, all of her patterns are pretty easy and she even markets them as such. I love this. I love using simple techniques that we all know to create things that only look complicated. I think from start to finish this little elephant took me about four hours and I'm a pretty slow crocheter.
+
+You'd be hard pressed to find easier patterns that work up as quickly as hers and look as cute as they do. They're priced fairly so check them out!
