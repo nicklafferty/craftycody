@@ -58,6 +58,10 @@ We're going to be using a little less wood here than my last IKEA project. The v
 
 ### Gluing
 
+Glue and clamp your doors together. Each door consists of two 24-inch pieces and two 27.5-inch pieces.
+
+When the glue is dry, give the doors another light sanding to get rid of any glue that may have squished out. Excess glue will make stain look weird if you don't get rid of it.
+
 ### Drilling
 
 Decide which side of the door you want to be the front and flip it over. We're going to add the L-brackets to the back of the doors. I placed each of mine in the center of each join. This allowed space for the staples I'd use to secure the fabric later.
