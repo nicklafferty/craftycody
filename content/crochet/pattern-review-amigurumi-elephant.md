@@ -3,8 +3,8 @@ date = ""
 description = "A quick, cute, and simple pattern by Chirkatoys"
 draft = true
 image = ""
-slug = ""
-tags = []
+slug = "crochet-elephant-review"
+tags = ["review", "crochet"]
 title = "Pattern Review: Amigurumi Elephant"
 
 +++
