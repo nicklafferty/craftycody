@@ -20,6 +20,8 @@ I almost got away with only using one skein of my main color- I was so close! On
 
 Either way, you won't use a ton of yarn with this pattern either. I bought three skeins of Baby Bee yarn (weight 5)- two skeins for my main color and one as the accent for the feet. It was also 30% off yarn day so my bill was a whopping $11. Not too bad for a handmade stuffed animal.
 
+She uses Himalaya brand yarn which we don't have in the States- at least not that I can find. This is too bad because I see a lot of crocheters using it and I'm totally jealous. It's a weight 6 yarn and you get about 130 yards per skein.
+
 ## Final thoughts
 
 I'm absolutely going to buy more of her patterns. I've got my eye on a cute unicorn that I fell in love with on [her Instagram](https://www.instagram.com/p/CaJvPD_g2LQ/?hl=en).
