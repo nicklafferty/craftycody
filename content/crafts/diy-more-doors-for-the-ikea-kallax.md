@@ -45,7 +45,7 @@ Let's get started.
 
 ### Cut list
 
-We're going to be using a little less wood here than my last IKEA project. The 
+We're going to be using a little less wood here than my last IKEA project. The vertical pieces will be 24-inches like before, but the horizontal pieces will be 27.5-inches.
 
 ### Cutting
 
