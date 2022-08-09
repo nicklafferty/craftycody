@@ -18,7 +18,7 @@ I don't have any critiques when it comes to this one y'all. It's a really easy p
 
 I almost got away with only using one skein of my main color- I was so close! One ear short! If our skeins were bigger, I would have been golden- or if I used a smaller hook maybe. Who knows?
 
-Either way, you won't use a ton of yarn with this pattern either. I bought three skeins of Baby Bee yarn (weight 5)- two skeins for my main color and one as the accent for the feet. It was also 30% off yarn day so my bill was a whopping $11. Not too bad for a handmade stuffed animal.
+Either way, you won't use a ton of yarn with this pattern either. I bought three skeins of "Adore-A-Ball" Baby Bee yarn (weight 5)- two skeins for my main color and one as the accent for the feet. It was also 30% off yarn day so my bill was a whopping $11. Not too bad for a handmade stuffed animal.
 
 The pattern uses Himalaya brand yarn which we don't have in the States- at least not that I can find. This is too bad because I see a lot of crocheters using it and I'm totally jealous. It's a weight 6 yarn and you get about 130 yards per skein. You can find it on Etsy for fair prices, but I think shipping takes a while.
 
