@@ -78,6 +78,12 @@ Adding the fabric can be a little tricky and time-consuming. Make sure the back 
 
 I laid the burlap over the back of one of my frames and started stapling from one corner to another. Be sure to pull your fabric tight as you go. I went slowly to make sure the fabric was coming out even.
 
+### Hardware
+
+Once the fabric is on, it's time to add the hinges. I line mine up with the L-brackets since they're all in about the same place.
+
+Flip the door around and attached your cabinet pulls as well.
+
 ### Mounting
 
 An extra set of hands really helps when it's time to hang the doors.
