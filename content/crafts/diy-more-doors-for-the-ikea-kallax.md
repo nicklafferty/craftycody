@@ -39,13 +39,14 @@ Let's get started.
  9. Stapler
 10. Hinges (x4)
 11. Cabinet pulls (x2)
-12. Safety gear
+12. L-brackets (x8)
+13. Safety gear
 
 ## How-to:
 
 ### Cut list
 
-We're going to be using a little less wood here than my last IKEA project. The vertical pieces will be 24-inches like before, but the horizontal pieces will be 27.5-inches. I bought three 6-foot pieces of lumber and one 4-foot piece to accommodate all the cuts.
+We're going to be using a little less wood here than my last IKEA project. The vertical pieces will be 24-inches like before, but the horizontal pieces will be 27.5-inches. I bought three 6-foot pieces of lumber and one 4-foot piece to accommodate all of the cuts.
 
 **1x3s:**  
 24-in (x4)  
