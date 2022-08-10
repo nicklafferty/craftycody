@@ -56,7 +56,7 @@ We're going to be using a little less wood here than my last IKEA project. The v
 
 ### Sanding
 
-Give each piece a good sanding to smooth over and get rid of any splinters.
+Give each piece a good sanding to smooth over and get rid of any splinters. Sanding also gets rid of any pencil marks made while measuring out pieces.
 
 ### Gluing
 
@@ -84,7 +84,7 @@ I laid the burlap over the back of one of my frames and started stapling from on
 
 Once the fabric is on, it's time to add the hinges. I line mine up with the L-brackets since they're all in about the same place.
 
-Flip the door around and attached your cabinet pulls as well.
+Flip the door around and attach your cabinet pulls as well.
 
 ### Mounting
 
