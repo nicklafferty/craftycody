@@ -41,7 +41,7 @@ Let's get started.
 11. Stapler
 12. Hinges (x4)
 13. Cabinet pulls/knobs (x2)
-14. L-brackets (x8)
+14. Flat L-brackets (x8)
 15. Safety gear
 
 ## How-to:
