@@ -89,3 +89,9 @@ Flip the door around and attach your cabinet pulls as well.
 ### Mounting
 
 An extra set of hands really helps when it's time to hang the doors.
+
+I have my husband hold the door up and we position it where we'd like it to sit then use a level on top of the door to make sure it's straight. When it's in the right place, I use a marker to mark where the hinge screws need to go.
+
+Then, we can set the door down and predrill pilot holes for those screws. Once drilled, hold the door back up and use the hinge's included screws to attach to the kallax.
+
+The second door is easier because you can use the level across the first door to make sure this one is perfect. Mark the holes the same as before, predrill pilot holes, and attach.
