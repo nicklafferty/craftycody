@@ -40,7 +40,7 @@ Let's get started.
 10. [Burlap](https://amzn.to/3oTgz2m)/Rattan/Fabric of choice
 11. Stapler
 12. Hinges (x4)
-13. Cabinet pulls (x2)
+13. Cabinet pulls/knobs (x2)
 14. L-brackets (x8)
 15. Safety gear
 
@@ -60,7 +60,9 @@ Give each piece a good sanding to smooth over and get rid of any splinters.
 
 ### Gluing
 
-Glue and clamp your doors together. Each door frame consists of two 24-inch pieces and two 27.5-inch pieces. The 27.5-inch pieces will be the tops and bottoms while the 24-inch pieces will be the sides and are placed in-between the larger pieces.
+Glue and clamp your doors together. I always keep them clamped for a few hours then let the glue dry overnight. 
+
+Each door frame consists of two 24-inch pieces and two 27.5-inch pieces. The 27.5-inch pieces will be the tops and bottoms while the 24-inch pieces will be the sides and are placed in-between the larger pieces.
 
 When the glue is dry, give the doors another light sanding to get rid of any glue that may have squished out. Excess glue will make stain look weird if you don't get rid of it.
 
@@ -68,7 +70,7 @@ When the glue is dry, give the doors another light sanding to get rid of any glu
 
 Decide which side of the door you want to be the front and flip it over. We're going to add the L-brackets to the back of the doors. I placed each of mine in the center of each join. This allowed space for the staples I'd use to secure the fabric later.
 
-When the L-brackets are all attached, flip the doors back over and decide where you want your handles to be. Mine are fairly long so I put them near the tops of the doors. Mark where you need to drill the holes then use the finished door as a template for the other door so the handles will be aligned and you don't have to remeasure. Sand off any splinters that may come from drilling.
+When the L-brackets are all attached, flip the doors back over and decide where you want your handles/pulls/knobs to be. Mine are fairly long so I put them near the tops of the doors. Mark where you need to drill the holes then use the finished door as a template for the other door so the handles will be aligned and you don't have to remeasure. Sand off any splinters that may come from drilling.
 
 This is a good time to stain or paint the doors if you want. I'm going to leave mine natural.
 
