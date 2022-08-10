@@ -95,3 +95,7 @@ I have my husband hold the door up and we position it where we'd like it to sit 
 Then, we can set the door down and predrill pilot holes for those screws. Once drilled, hold the door back up and use the hinge's included screws to attach to the kallax.
 
 The second door is easier because you can use the level across the first door to make sure this one is perfect. Mark the holes the same as before, predrill pilot holes, and attach.
+
+## Complete!
+
+These are simple doors that up the kallax's game in a big way. You can customize them to your heart's content with different fabrics, paint, and cabinet pulls.
