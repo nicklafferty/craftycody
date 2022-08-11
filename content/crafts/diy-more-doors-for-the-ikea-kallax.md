@@ -70,7 +70,7 @@ When the glue is dry, give the doors another light sanding to get rid of any glu
 
 Decide which side of the door you want to be the front and flip it over. We're going to add the flat L-brackets to the back of the doors. I placed each of mine in the center of each join. This allowed space for the staples I'd use to secure the fabric later.
 
-When the L-brackets are all attached, flip the doors back over and decide where you want your handles/pulls/knobs to be. Mine are fairly long so I put them near the tops of the doors. Mark where you need to drill the holes then use the finished door as a template for the other door so the handles will be aligned and you don't have to remeasure. Simply lay the finished door on top of the second door and use a pencil to mark the holes. Sand off any splinters that may come from drilling. We'll actually attach the knobs later, for now, we're just drilling the holes.
+When the L-brackets are all attached, flip the doors back over and decide where you want your handles/pulls/knobs to be. Mine are fairly long so I put them near the tops of the doors. Mark where you need to drill the holes then use the finished door as a template for the other door so the handles will be aligned and you don't have to remeasure. Simply lay the finished door on top of the second door and use a pencil to mark the holes. Sand off any splinters that may come from drilling. We'll formally attach the knobs later, for now, we're only drilling the holes.
 
 This is a good time to stain or paint the doors if you want. I'm going to leave mine natural.
 
