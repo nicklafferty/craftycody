@@ -82,7 +82,7 @@ I laid the burlap over the back of one of my frames and started stapling from on
 
 ### Hardware
 
-Once the fabric is on, it's time to add the hinges. I lined mine up with the L-brackets since they're all in about the same place.
+Once the fabric is on, it's time to add the hinges. I lined mine up with the bottoms of the L-brackets since they're all in about the same place.
 
 Flip the door around and attach your cabinet pulls as well.
 
