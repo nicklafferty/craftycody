@@ -41,7 +41,7 @@ Let's get started.
 11. Stapler
 12. Hinges (x4)
 13. Cabinet pulls/knobs (x2)
-14. Flat L-brackets (x8)
+14. [Flat L-brackets](https://www.lowes.com/pd/ReliaBilt-ReliaBilt-1-1-2-in-Zinc-Plated-Flat-Corner-Brace-4-Pack/5003433045) (x8)
 15. Safety gear
 
 ## How-to:
