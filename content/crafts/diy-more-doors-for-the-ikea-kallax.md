@@ -2,7 +2,7 @@
 date = ""
 description = "The people want IKEA hacks so that's what they're going to get."
 draft = true
-image = ""
+image = "/uploads/more-ikea-kallax-doors-header.png"
 slug = "bigger-ikea-kallax-doors"
 tags = ["diy", "video", "ikea"]
 title = "DIY: More doors for the IKEA kallax"

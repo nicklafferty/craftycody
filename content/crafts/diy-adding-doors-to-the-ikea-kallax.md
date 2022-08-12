@@ -3,7 +3,7 @@ date = 2022-03-31T05:00:00Z
 description = "My first official Ikea hack. "
 image = "/uploads/ikea-kallax-cabinet-doors-diy.png"
 slug = "doors-ikea-kallax"
-tags = ["diy", "video"]
+tags = ["diy", "video", "ikea"]
 title = "DIY: Adding doors to the Ikea Kallax"
 
 +++
