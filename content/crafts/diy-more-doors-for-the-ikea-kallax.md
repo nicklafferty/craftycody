@@ -54,6 +54,10 @@ We're going to be using a little less wood here than my last IKEA project. The v
 24-in (x4)  
 27\.5-in (x4)
 
+![](/uploads/a-setup-for-ikea-doors-2.jpg)
+
+![](/uploads/a-setup-for-ikea-doors-1.jpg)
+
 ### Sanding
 
 Give each piece a good sanding to smooth over and get rid of any splinters. Sanding also gets rid of any pencil marks made while measuring out pieces.
@@ -63,6 +67,8 @@ Give each piece a good sanding to smooth over and get rid of any splinters. Sand
 Glue and clamp your doors together. I always keep them clamped for a few hours then let the glue dry overnight.
 
 Each door frame consists of two 24-inch pieces and two 27.5-inch pieces. The 27.5-inch pieces will be the tops and bottoms while the 24-inch pieces will be the sides and are placed in-between the larger pieces.
+
+![](/uploads/b-clamping-ikea-doors-1.jpg)
 
 When the glue is dry, give the doors another light sanding to get rid of any glue that may have squished out. Excess glue will make stain look weird if you don't get rid of it.
 
