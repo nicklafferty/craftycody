@@ -76,13 +76,19 @@ When the glue is dry, give the doors another light sanding to get rid of any glu
 
 Decide which side of the door you want to be the front and flip it over. We're going to add the flat L-brackets to the back of the doors. I placed each of mine in the center of each join. This allowed space for the staples I'd use to secure the fabric later.
 
+![](/uploads/c-adding-l-brackets-to-ikea-doors-2.jpg)
+
 When the L-brackets are all attached, flip the doors back over and decide where you want your handles/pulls/knobs to be. Mine are fairly long so I put them near the tops of the doors. Mark where you need to drill the holes then use the finished door as a template for the other door so the handles will be aligned and you don't have to remeasure. Simply lay the finished door on top of the second door and use a pencil to mark the holes. Sand off any splinters that may come from drilling. We'll formally attach the knobs later, for now, we're only drilling the holes.
+
+![](/uploads/c-adding-l-brackets-to-ikea-doors-1.jpg)
 
 This is a good time to stain or paint the doors if you want. I'm going to leave mine natural.
 
 ### Adding fabric
 
 Adding the fabric can be a little tricky and time-consuming. Make sure the back of the doors are facing up before you get started.
+
+![](/uploads/d-adding-burlap-to-doors-1.jpg)
 
 I laid the burlap over the back of one of my frames and started stapling from one corner to another. Be sure to pull your fabric tight as you go. I went slowly to make sure the fabric was coming out even.
 
