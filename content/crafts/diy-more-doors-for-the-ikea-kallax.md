@@ -104,7 +104,7 @@ Once the fabric is on, it's time to add the hinges. I lined mine up with the bot
 
 An extra set of hands really helps when it's time to hang the doors.
 
-I have my husband hold the door up and we position it where we'd like it to sit then use a level on top of the door to make sure it's straight. When it's in the right place, I use a marker to mark where the hinge screws need to go.
+I have my husband hold the door up and we position it where we'd like it to sit then use a level on top of the door to make sure it's straight. When it's in the right place, I use a marker to mark where the hinge screws need to go. My doors sit about a half inch from the top of the kallax so that I have plenty of clearance at the bottom for rugs.
 
 Then, we can set the door down and predrill pilot holes for those screws. Once drilled, hold the door back up and use the hinge's included screws to attach to the kallax.
 
