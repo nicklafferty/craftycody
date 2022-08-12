@@ -112,6 +112,12 @@ Then, we can set the door down and predrill pilot holes for those screws. Once d
 
 The second door is easier because you can use the level across the first door to make sure this one is perfect. Mark the holes the same as before, predrill pilot holes, and attach.
 
+I put my cabinet pulls on here at the end. I also added a bit of rubber insulation tape on top of the screws. They can scratch the kallax if left unchecked.
+
+![](/uploads/f-finished-doors-closeups-3.jpg)
+
+![](/uploads/f-finished-doors-closeups-1.jpg)
+
 ## Complete!
 
 These are simple doors that up the kallax's game in a big way. You can customize them to your heart's content with different fabrics, paint, and cabinet pulls.
