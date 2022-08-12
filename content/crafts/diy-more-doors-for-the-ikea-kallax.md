@@ -121,3 +121,5 @@ I put my cabinet pulls on here at the end. I also added a bit of rubber insulati
 ## Complete!
 
 These are simple doors that up the kallax's game in a big way. You can customize them to your heart's content with different fabrics, paint, and cabinet pulls.
+
+![](/uploads/g-finished-doors-2.jpg)
