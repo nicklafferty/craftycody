@@ -18,7 +18,7 @@ Google Analytics sends me some data each month. It doesn't go into a lot of deta
 
 I mentioned in my [last IKEA post](https://craftycody.com/crafts/doors-ikea-kallax/) that I have several kallax shelving units in my house and I've had them all for years. I hate getting rid of perfectly good furniture just to buy something new, so I started updating what I had. I've already put a set of doors on one kallax, so now it's time to move on to the one in my sunroom.
 
-These doors will be bigger than the ones I made for my tv stand. Basically, I'll be doubling the size of each door and only adding two to the kallax instead of four. I wanted it to look a little different than the one in the living room. I also won't be staining or painting these doors, however, you easily could if you wanted.
+These doors will be bigger than the ones I made for my tv stand. Basically, I'll be doubling the size of each door and only adding two to the kallax instead of four. I wanted it to look slightly different than the living room one. I also won't be staining or painting these doors, however, you easily could if you wanted.
 
 I guess this would count as an IKEA hack. I have one more kallax after this one and will more than likely be adding doors to it as well. Maybe I can come up with something a little more special since it's a 2x2 cubby unit.
 
@@ -112,7 +112,7 @@ Then, we can set the door down and predrill pilot holes for those screws. Once d
 
 The second door is easier because you can use the level across the first door to make sure this one is perfect. Mark the holes the same as before, predrill pilot holes, and attach.
 
-I put my cabinet pulls on here at the end. I also added a bit of rubber insulation tape on top of the screws. They can scratch the kallax if left unchecked.
+I put my cabinet pulls on here at the end. I also added a bit of [rubber insulation tape](https://www.lowes.com/pd/Frost-King-1-8-in-Rubber-Plumbing-Pipe-Wrap-Insulation/3427634) on top of the screws. They can scratch the kallax if left unchecked.
 
 ![](/uploads/f-finished-doors-closeups-3.jpg)
 
