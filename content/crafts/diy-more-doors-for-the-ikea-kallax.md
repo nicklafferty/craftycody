@@ -1,7 +1,6 @@
 +++
 date = 2022-08-12T05:00:00Z
 description = "The people want IKEA hacks so that's what they're going to get."
-draft = true
 image = "/uploads/more-ikea-kallax-doors-header.png"
 slug = "bigger-ikea-kallax-doors"
 tags = ["diy", "video", "ikea"]
