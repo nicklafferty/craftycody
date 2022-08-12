@@ -96,7 +96,9 @@ I laid the burlap over the back of one of my frames and started stapling from on
 
 Once the fabric is on, it's time to add the hinges. I lined mine up with the bottoms of the L-brackets since they're all in about the same place.
 
-Flip the door around and attach your cabinet pulls as well.
+![](/uploads/e-hinges-2.jpg)
+
+![](/uploads/e-hinges-1.jpg)
 
 ### Mounting
 
@@ -105,6 +107,8 @@ An extra set of hands really helps when it's time to hang the doors.
 I have my husband hold the door up and we position it where we'd like it to sit then use a level on top of the door to make sure it's straight. When it's in the right place, I use a marker to mark where the hinge screws need to go.
 
 Then, we can set the door down and predrill pilot holes for those screws. Once drilled, hold the door back up and use the hinge's included screws to attach to the kallax.
+
+![](/uploads/f-finished-doors-closeups-2.jpg)
 
 The second door is easier because you can use the level across the first door to make sure this one is perfect. Mark the holes the same as before, predrill pilot holes, and attach.
 
