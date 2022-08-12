@@ -7,7 +7,7 @@ tags = ["diy", "video", "ikea"]
 title = "DIY: More doors for the IKEA kallax"
 
 +++
-{{< youtube id_here_please >}}
+{{< youtube as_w63qscv4 >}}
 
 _This post contains Amazon affiliate links to the actual products I use daily. I make a small commission with your order, but there is no cost to you._
 
