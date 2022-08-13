@@ -2,7 +2,7 @@
 date = ""
 description = "A quick, cute, and simple pattern by Chirkatoys"
 draft = true
-image = ""
+image = "/uploads/ami-elephant-crochet-pattern-review.png"
 slug = "crochet-elephant-review"
 tags = ["review", "crochet"]
 title = "Pattern Review: Amigurumi Elephant"
@@ -29,3 +29,5 @@ I'm absolutely going to buy more of her patterns. I've got my eye on a cute unic
 By the looks of her reviews, all of her patterns are pretty easy and she even markets them as such. I love this. I love using simple techniques that we all know to create things that only look complicated. I think from start to finish this little elephant took me about four hours and I'm a pretty slow crocheter.
 
 You'd be hard pressed to find easier patterns that work up as quickly as hers and look as cute as they do. They're priced fairly so check them out!
+
+![](/uploads/pxl_20220809_194421377.jpg)![](/uploads/pxl_20220809_194344196-mp.jpg)![](/uploads/pxl_20220809_194350767.jpg)
