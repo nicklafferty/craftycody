@@ -17,6 +17,10 @@ You can check out my elephant and more of my makes on [my Instagram](https://www
 
 I don't have any critiques when it comes to this one y'all. It's a really easy pattern that uses only simple stitches and some great techniques e.g. joining arms and legs as you go instead of having to line them up and sew them on later. Sewing is my least favorite part of amigurumi and this pattern makes it totally tolerable.
 
+She also has a solid technique when it comes to shaping the face. I usually don't do that kind of thing as I'm a bit of a lazy crocheter, but it takes about 10 seconds with her help.
+
+There are lots of photos for guidance and you can always get in touch with her if you have any questions.
+
 ## Yarn
 
 I almost got away with only using one skein of my main color- I was so close! One ear short! If our skeins were bigger, I would have been golden- or if I used a smaller hook maybe. Who knows?
