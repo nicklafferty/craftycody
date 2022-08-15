@@ -21,6 +21,8 @@ She also has a solid technique when it comes to shaping the face. I usually don'
 
 There are lots of photos for guidance and you can always get in touch with her if you have any questions.
 
+The only mod I made with this pattern was to the yarn and hook used.
+
 ## Yarn
 
 I almost got away with only using one skein of my main color- I was so close! One ear short! If our skeins were bigger, I would have been golden- or if I used a smaller hook maybe. Who knows?
