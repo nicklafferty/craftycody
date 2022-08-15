@@ -11,6 +11,10 @@ Okay y'all, no lie, I loved this pattern. Go get it. [This elephant pattern](htt
 
 It's by [Kate at Chirkatoys](https://www.etsy.com/shop/AmigurumiEstonia?ref=simple-shop-header-name&listing_id=1185496030) and she has a _ton_ of adorable patterns.
 
+You can check out my elephant and more of my makes on [my Instagram](https://www.instagram.com/codyscraftcorner/).
+
+## Pattern
+
 I don't have any critiques when it comes to this one y'all. It's a really easy pattern that uses only simple stitches and some great techniques e.g. joining arms and legs as you go instead of having to line them up and sew them on later. Sewing is my least favorite part of amigurumi and this pattern makes it totally tolerable.
 
 ## Yarn
