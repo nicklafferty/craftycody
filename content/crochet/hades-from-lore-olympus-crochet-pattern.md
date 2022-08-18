@@ -22,6 +22,14 @@ Like Persephone, he's very simple in his design. I used a larger hook to create 
 
 ## Supplies
 
+Yarn
+
+Hook
+
+G-4.25mm Hook
+
+Misc.
+
 I'm also wondering who I should make next? These characters are great as stash-busting projects since they don't use a lot of yarn and are brightly colored. Maybe all of Hades' dogs? Daphne, our favorite flower nymph? Hera, even though I'm not sure I have any yellow yarn? Oh well, time to go shopping I guess.
 
 I will keep everyone updated on [Instagram](https://www.instagram.com/codyscraftcorner/) if I decide to make more of the cast, but for now, I hope you all enjoy Persephone and Hades!
