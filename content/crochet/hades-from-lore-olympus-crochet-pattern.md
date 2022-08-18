@@ -20,6 +20,8 @@ Please don't resell my pattern or claim it as your own, but be sure to tag me in
 
 Like Persephone, he's very simple in his design. I used a larger hook to create the height difference but still used weight 4 yarn. That's really the only yarn I use so I have to make patterns that work with it. I also think it's more commonly available and inexpensive, at least here in the US, so I try to make all my patterns with that in mind. I don't want these to cost $50 in materials alone.
 
+There are no complicated techniques, just time-consuming ones e.g. the hair. This pattern would probably be suitable for an intermediate-beginner and up.
+
 ## Supplies:
 
 ### Yarn
@@ -38,7 +40,8 @@ Like Persephone, he's very simple in his design. I used a larger hook to create 
 2. Stitch markers
 3. Black felt
 4. 14mm safety eyes
-5. Scissors
+5. Floral wire
+6. Scissors
 
 I'm also wondering who I should make next? These characters are great as stash-busting projects since they don't use a lot of yarn and are brightly colored. Maybe all of Hades' dogs? Daphne, our favorite flower nymph? Hera, even though I'm not sure I have any yellow yarn? Oh well, time to go shopping I guess.
 
