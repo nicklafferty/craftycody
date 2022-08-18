@@ -26,6 +26,8 @@ There are no complicated techniques, just time-consuming ones e.g. the hair. Thi
 
 ### Yarn
 
+I use less than a full skein of each kind of yarn.
+
 1. Yarn Bee in Teal
 2. Yarn Bee Mini Maker in Light Blue
 3. Crafter's Secret in Black and White
@@ -40,7 +42,7 @@ There are no complicated techniques, just time-consuming ones e.g. the hair. Thi
 2. Stitch markers
 3. Black felt
 4. 14mm safety eyes
-5. Floral wire
+5. 18-in floral wire
 6. Scissors
 
 I'm also wondering who I should make next? These characters are great as stash-busting projects since they don't use a lot of yarn and are brightly colored. Maybe all of Hades' dogs? Daphne, our favorite flower nymph? Hera, even though I'm not sure I have any yellow yarn? Oh well, time to go shopping I guess.
