@@ -1,16 +1,15 @@
 +++
-date = ""
+date = 2022-08-20T05:00:00Z
 description = "Aidoneus is ready to head out with Kore!"
-draft = true
 image = ""
-slug = ""
-tags = []
+slug = "hades-crochet-pattern"
+tags = ["crochet", "pattern"]
 title = "Hades from Lore Olympus Crochet Pattern"
 
 +++
 I finally finished a set! I always start with one character and then never get around to making their counterpart. Well, now that's a thing of the past because Hades is done (months later)!
 
-You can find Hades and Persephone for sale in my Etsy shop. Grab the bundle for a little discount!
+You can find [Hades](https://www.etsy.com/listing/1289506079/hades-the-king-of-the-underworld-crochet?click_key=2802d16ff469294155e21b6beba34fb099f170d6%3A1289506079&click_sum=5e7303f4&ref=shop_home_feat_4) and Persephone for sale in my Etsy shop. Grab the bundle for a little discount (coming soon)!
 
 If you haven't yet, be sure to give [Lore Olympus](https://www.webtoons.com/en/romance/lore-olympus/list?title_no=1320&page=1) a read. That's what inspired these patterns. They're purely a homage to the comic- I am in no way affiliated with Lore Olympus.
 
