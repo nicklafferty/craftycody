@@ -1,7 +1,7 @@
 +++
 date = 2022-08-20T05:00:00Z
 description = "Aidoneus is ready to head out with Kore!"
-image = ""
+image = "/uploads/hades-crochet-pattern-header.png"
 slug = "hades-crochet-pattern"
 tags = ["crochet", "pattern"]
 title = "Hades from Lore Olympus Crochet Pattern"
@@ -10,6 +10,8 @@ title = "Hades from Lore Olympus Crochet Pattern"
 I finally finished a set! I always start with one character and then never get around to making their counterpart. Well, now that's a thing of the past because Hades is done (months later)!
 
 You can find [Hades](https://www.etsy.com/listing/1289506079/hades-the-king-of-the-underworld-crochet?click_key=2802d16ff469294155e21b6beba34fb099f170d6%3A1289506079&click_sum=5e7303f4&ref=shop_home_feat_4) and Persephone for sale in my Etsy shop. Grab the bundle for a little discount (coming soon)!
+
+![](/uploads/hades-and-persephone-small.jpg)
 
 If you haven't yet, be sure to give [Lore Olympus](https://www.webtoons.com/en/romance/lore-olympus/list?title_no=1320&page=1) a read. That's what inspired these patterns. They're purely a homage to the comic- I am in no way affiliated with Lore Olympus.
 
@@ -47,3 +49,5 @@ I use less than a full skein of each kind of yarn.
 I'm also wondering who I should make next? These characters are great as stash-busting projects since they don't use a lot of yarn and are brightly colored. Maybe all of Hades' dogs? Daphne, our favorite flower nymph? Hera, even though I'm not sure I have any yellow yarn? Oh well, time to go shopping I guess.
 
 I will keep everyone updated on [Instagram](https://www.instagram.com/codyscraftcorner/) if I decide to make more of the cast, but for now, I hope you all enjoy Persephone and Hades!
+
+![](/uploads/hades_crochet.jpg)![](/uploads/hades-profile-2-small.jpg)![](/uploads/hades-profile-small.jpg)
