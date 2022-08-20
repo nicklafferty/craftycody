@@ -9,7 +9,7 @@ title = "Hades from Lore Olympus Crochet Pattern"
 +++
 I finally finished a set! I always start with one character and then never get around to making their counterpart. Well, now that's a thing of the past because Hades is done (months later)!
 
-You can find [Hades](https://www.etsy.com/listing/1289506079/hades-the-king-of-the-underworld-crochet?click_key=2802d16ff469294155e21b6beba34fb099f170d6%3A1289506079&click_sum=5e7303f4&ref=shop_home_feat_4) and Persephone for sale in my Etsy shop. Grab the bundle for a little discount (coming soon)!
+You can find [Hades](https://www.etsy.com/listing/1289506079/hades-the-king-of-the-underworld-crochet?click_key=2802d16ff469294155e21b6beba34fb099f170d6%3A1289506079&click_sum=5e7303f4&ref=shop_home_feat_4) and [Persephone ](https://www.etsy.com/listing/1230827966/persephone-the-goddess-of-spring-crochet?click_key=e9e831fa95c2e4417b661caf2a5894db47da2fdd%3A1230827966&click_sum=bf12bd3a&ref=shop_home_feat_4)for sale in my Etsy shop. Grab the bundle for a little discount (coming soon)!
 
 ![](/uploads/hades-and-persephone-small.jpg)
 
