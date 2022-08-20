@@ -29,7 +29,7 @@ There are no complicated techniques, just time-consuming ones e.g. the hair. Thi
 
 I use less than a full skein of each kind of yarn.
 
-1. Yarn Bee in Teal
+1. Yarn Bee Soft and Sleek in Teal Blue
 2. Yarn Bee Mini Maker in Light Blue
 3. Crafter's Secret in Black and White
 
