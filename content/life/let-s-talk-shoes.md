@@ -22,7 +22,7 @@ As I got older, my care for fashion flew by the wayside. I wasn't going out near
 
 When I started moving from house to house with my now-husband, not every pair would make the move so the collection dwindled even more. Moving is a great time to do some spring cleaning, by the way, and shoes that I hadn't worn for 5 years stopped making the cut.
 
-Then the pandemic happened and no one did anything anymore. We all devolved into sweatpants and messy buns. Which I honestly lived for. Masks were/are a great excuse to not feel like you have to plaster a full-face of makeup on just to run errands.
+Then the pandemic happened and no one did anything anymore. We all devolved into sweatpants and messy buns. Which I honestly lived for. Masks were/are a great excuse to not feel like you have to plaster a full face of makeup on just to run errands.
 
 Now that it's sort-of-okay-sort-of-not to go out again, I'm rediscovering my style. Spoiler alert: I still really like shoes. However, this time it's turned into sneakers. I love a good pair of kicks. Unfortunately, it's my most expensive love affair to date. Fortunately, I'm a full-grown adult now. Life works in mysterious ways, doesn't it?
 
