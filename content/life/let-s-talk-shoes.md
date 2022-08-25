@@ -3,12 +3,12 @@ date = ""
 description = "To say I like shoes would be an understatement."
 draft = true
 image = ""
-slug = "talking-about-shoes"
+slug = "shoe-talk"
 tags = ["clothing"]
 title = "Let's talk shoes."
 
 +++
-Listen, I am well aware of the tired, old stereotype that all women love shoes. Oh and we all need huge closets for all our shoes and oops! We keep maxing out our poor husband's credit cards.
+Listen, I am well aware of the tired, old stereotype that all women love shoes. Oh and we all need huge closets for all our shoes and oopsies! We keep maxing out our poor husband's credit cards.
 
 Okay, but like. Shoes are rad.
 
