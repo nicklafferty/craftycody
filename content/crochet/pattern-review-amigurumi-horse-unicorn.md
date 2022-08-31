@@ -19,7 +19,7 @@ These patterns are so wonderful. They use simple techniques and work up so quick
 
 ## Pattern
 
-The pattern itself is very similar to the elephant. It consists of all single crochet stitches (plus a few slip stitches) and works up quickly.
+The pattern itself is very similar to the elephant. It consists of all single crochet stitches (plus a few slip stitches) and works up quickly. I used a J-hook throughout.
 
 ![](/uploads/unicorn-unassembled.jpg)
 
