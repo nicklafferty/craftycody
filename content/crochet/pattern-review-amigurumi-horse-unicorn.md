@@ -2,7 +2,7 @@
 date = ""
 description = "Reviewing another pattern by Chirkatoys!"
 draft = true
-image = ""
+image = "/uploads/ami-unicorn-pattern-review-header.png"
 slug = "crochet-unicorn-review"
 tags = ["review", "crochet"]
 title = "Pattern Review: Amigurumi Horse (Unicorn)"
