@@ -20,9 +20,15 @@ These patterns are so wonderful. They use simple techniques and work up so quick
 
 ## Pattern
 
+The pattern itself is very similar to the elephant. It consists of all single crochet stitches (sans a few slip stitches) and works up quickly.
+
 ![](/uploads/unicorn-unassembled.jpg)
 
+You once again attach the limbs as you work the body so there is minimal sewing and lining things up. She also has a great technique for shaping the face.
+
 ![](/uploads/unicorn-ears.jpg)
+
+In particular, I thought the ears were both clever and very cute. They look complicated but are quite the opposite. You could also make and use these for a costume!
 
 ## Yarn
 
@@ -36,10 +42,12 @@ I found an alternative yarn that I think is very comparable to the Himalaya bran
 
 ![](/uploads/unicorn-yarn-pile.jpg)
 
-Their website has a minimum order ($75) to qualify for free shipping and shipping costs $11. They also sell through Walmart and the shipping is free no matter the order size. The downside here is you will not get the points you would if you ordered through their website. You can get some cashback if you [shop using Rakuten](https://www.rakuten.com/r/CKREUL3?eeid=28187)!
+Their website has a minimum order ($75) to qualify for free shipping and shipping costs $11. They also sell through Walmart and the shipping is free no matter the order size. The downside here is you will not get the points you would if you ordered through their website. However, you can get some cashback if you [shop using Rakuten](https://www.rakuten.com/r/CKREUL3?eeid=28187)!
 
-I wanted something textured for her hair and ended up getting one skein of [Bernat Pipsqueak yarn in candy girl](https://www.walmart.com/ip/Bernat-Bulky-100-Polyester-Candy-Girl-Yarn-101-yd/17474581).
+I wanted something textured for her hair and ended up getting one skein of [Bernat Pipsqueak yarn in candy girl](https://www.walmart.com/ip/Bernat-Bulky-100-Polyester-Candy-Girl-Yarn-101-yd/17474581). I've never used it before, but it looked like the textured yarn she used for her horse.
 
 ![](/uploads/bernat-pipsqueak-yarn.jpg)
+
+It's super soft, but beware! IT SHEDS. Be sure to have a vacuum ready to go when you're done. It's also quite thin, so I had to use two strands per stitch for the hair.
 
 ## Final thoughts
