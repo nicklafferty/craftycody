@@ -1,7 +1,6 @@
 +++
-date = ""
+date = 2022-08-31T05:00:00Z
 description = "Reviewing another pattern by Chirkatoys!"
-draft = true
 image = "/uploads/ami-unicorn-pattern-review-header.png"
 slug = "crochet-unicorn-review"
 tags = ["review", "crochet"]
@@ -20,7 +19,7 @@ These patterns are so wonderful. They use simple techniques and work up so quick
 
 ## Pattern
 
-The pattern itself is very similar to the elephant. It consists of all single crochet stitches (sans a few slip stitches) and works up quickly.
+The pattern itself is very similar to the elephant. It consists of all single crochet stitches (plus a few slip stitches) and works up quickly.
 
 ![](/uploads/unicorn-unassembled.jpg)
 
@@ -51,3 +50,9 @@ I wanted something textured for her hair and ended up getting one skein of [Bern
 It's super soft, but beware! IT SHEDS. Be sure to have a vacuum ready to go when you're done. It's also quite thin, so I had to use two strands per stitch for the hair.
 
 ## Final thoughts
+
+I don't think mine turned out quite as cute as the pattern maker's, but that's on me. I'm not super good at amigurumi details and my yarn selection is limited.
+
+However, this pattern is great. You technically have the option between three different animals (horse, donkey, or zebra) and she guides you through the process of making each.
+
+If you want to make the unicorn as I did, she has the color combos in the pattern as well. The unicorn uses the "horse" pattern. The only thing I'm having trouble with is finding a suitable horn! I'm probably going to have to crochet a little something.
