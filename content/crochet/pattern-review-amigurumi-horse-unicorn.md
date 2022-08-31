@@ -12,7 +12,7 @@ I couldn't help myself. The second I finished [Hades](https://craftycody.com/cro
 
 I previously reviewed her [elephant pattern](https://craftycody.com/crochet/crochet-elephant-review/) as well.
 
-I absolutely fell in love with this little unicorn on her [Instagram](https://www.instagram.com/chirka_toys/?hl=en) and knew I had to make her for myself.
+I absolutely fell in love with [this little unicorn](https://www.etsy.com/listing/1199430153/crochet-pattern-horse-zebra-donkey-pdf?click_key=faabc1d3e4d7d54bd4560a9964a8b486e63da401%3A1199430153&click_sum=0b1a5f4d&ref=hp_rf-1) on her [Instagram](https://www.instagram.com/chirka_toys/?hl=en) and knew I had to make her for myself.
 
 These patterns are so wonderful. They use simple techniques and work up so quickly that they make great, last-minute gifts if you're a crocheter who works well under pressure.
 
