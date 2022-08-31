@@ -16,6 +16,8 @@ I absolutely fell in love with this little unicorn on her [Instagram](https://ww
 
 These patterns are so wonderful. They use simple techniques and work up so quickly that they make great, last-minute gifts if you're a crocheter who works well under pressure.
 
+![](/uploads/ami-unicorn-watermark.jpg)
+
 ## Pattern
 
 ## Yarn
