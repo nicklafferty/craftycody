@@ -7,6 +7,8 @@ tags = ["review", "crochet"]
 title = "Pattern Review: Amigurumi Horse (Unicorn)"
 
 +++
+UPDATE: I decided to use this [pattern](https://christacodesign.com/2022/02/22/how-to-crochet-a-cone-step-by-step-tutorial/) for her horn! I used an E-hook and fairly thin, gold yarn. I have no idea what weight it is as I've had it for years.
+
 I couldn't help myself. The second I finished [Hades](https://craftycody.com/crochet/hades-crochet-pattern/), I bought the yarn and pattern I needed to make Chirkatoys' super cute unicorn.
 
 I previously reviewed her [elephant pattern](https://craftycody.com/crochet/crochet-elephant-review/) as well.
