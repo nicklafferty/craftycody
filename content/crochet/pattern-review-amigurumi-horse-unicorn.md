@@ -20,6 +20,10 @@ These patterns are so wonderful. They use simple techniques and work up so quick
 
 ## Pattern
 
+![](/uploads/unicorn-unassembled.jpg)
+
+![](/uploads/unicorn-ears.jpg)
+
 ## Yarn
 
 I don't usually order yarn. It can be expensive, and I don't find myself needing that much for any given project to justify the cost/shipping.
@@ -30,8 +34,12 @@ I knew this pattern used Himalaya yarn, but I'm skeptical about ordering it beca
 
 I found an alternative yarn that I think is very comparable to the Himalaya brand. I bought seven skeins of [Premier Yarns Parfait Chunky](https://www.premieryarns.com/collections/parfait-yarns/products/parfchunky) in bubblegum, lilac, seaside, tangerine, key lime, and white.
 
+![](/uploads/unicorn-yarn-pile.jpg)
+
 Their website has a minimum order ($75) to qualify for free shipping and shipping costs $11. They also sell through Walmart and the shipping is free no matter the order size. The downside here is you will not get the points you would if you ordered through their website. You can get some cashback if you [shop using Rakuten](https://www.rakuten.com/r/CKREUL3?eeid=28187)!
 
 I wanted something textured for her hair and ended up getting one skein of [Bernat Pipsqueak yarn in candy girl](https://www.walmart.com/ip/Bernat-Bulky-100-Polyester-Candy-Girl-Yarn-101-yd/17474581).
+
+![](/uploads/bernat-pipsqueak-yarn.jpg)
 
 ## Final thoughts
