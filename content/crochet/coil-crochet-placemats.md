@@ -30,7 +30,7 @@ This post and accompanying video will lay out the trial and error I went through
 2. Yarn (Cotton, weight 4, dark grey)
 3. Crochet hook (H-5mm hook)
 4. Scissors
-5. E600 glue
+5. Hot glue
 
 ## How-to:
 
@@ -46,4 +46,4 @@ We are going to repeat this process until we're done basically.
 
 I noticed that my rows were getting shorter as the rope strands were getting longer. To mitigate this, add a few stitches to the end of each row. I did mine by crocheting around the bottom AND top piece of rope I was working through. This binds the ends of the rope together and will help the rainbow take shape.
 
-When I used all of my rope, I finished off the yarn and cut all of the rope loops. Using E600 glue I glued the ends together to bring in the rainbow a bit.
+When I used all of my rope, I finished off the yarn and cut all of the rope loops. I glued the ends together to bring in the rainbow a bit.
