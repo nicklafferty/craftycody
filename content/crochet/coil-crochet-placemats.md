@@ -45,3 +45,5 @@ Instead of crocheting in a spiral and working in the round, I'm going to be work
 We are going to repeat this process until we're done basically.
 
 I noticed that my rows were getting shorter as the rope strands were getting longer. To mitigate this, add a few stitches to the end of each row. I did mine by crocheting around the bottom AND top piece of rope I was working through. This binds the ends of the rope together and will help the rainbow take shape.
+
+When I used all of my rope, I finished off the yarn and cut all of the rope loops. Using E600 glue I glued the ends together to bring in the rainbow a bit.
