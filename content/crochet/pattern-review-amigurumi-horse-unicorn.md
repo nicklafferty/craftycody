@@ -60,3 +60,7 @@ I don't think mine turned out quite as cute as the pattern maker's, but that's o
 However, this pattern is great. You technically have the option between three different animals (horse, donkey, or zebra) and she guides you through the process of making each.
 
 If you want to make the unicorn as I did, she has the color combos in the pattern as well. The unicorn uses the "horse" pattern. The only thing I'm having trouble with is finding a suitable horn! I'm probably going to have to crochet a little something.
+
+UPDATE again: Here's a close-up of her new horn:
+
+![](/uploads/pxl_20220831_205712537-portrait.jpg)
