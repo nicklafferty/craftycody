@@ -25,9 +25,11 @@ This post and accompanying video will lay out the trial and error I went through
 ## Supplies:
 
 1. Rope (6 yards, 3/8in thick)
-2. Yarn (Cotton yarn, any color. I used dark grey)
+2. Yarn (Cotton, weight 4, dark grey)
 3. Crochet hook (H-5mm hook)
 4. Scissors
 5. E600 glue
 
 ## How-to:
+
+You can use any thickness of rope and color of yarn you'd like. Also, be aware that 6 yards might not be enough to get the desired size. This was a total experiment for me, so learn from my mistakes!
