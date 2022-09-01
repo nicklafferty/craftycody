@@ -35,3 +35,9 @@ This post and accompanying video will lay out the trial and error I went through
 ## How-to:
 
 You can use any thickness of rope and color of yarn you'd like. Also, be aware that 6 yards might not be enough to get the desired size. This was a total experiment for me, so learn from my mistakes!
+
+Start with a magic ring and place the end of the rope on top. I started with 14 single crochets in the magic ring.  We're going to be single crocheting around the rope from start to finish. When you yarn over and pull up a loop, you will pull it up past the rope so it's even with the loop on your hook then finish the single crochet as normal.
+
+Pull the ring tight and your rope will fold in half. This is the beginning of the rainbow.
+
+Instead of crocheting in a spiral and working in the round, I'm going to be working in rows. So, chain one and turn your work, and then single crochet across as normal. Remember to always crochet around the rope.
