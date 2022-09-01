@@ -41,3 +41,7 @@ Start with a magic ring and place the end of the rope on top. I started with 14 
 Pull the ring tight and your rope will fold in half. This is the beginning of the rainbow.
 
 Instead of crocheting in a spiral and working in the round, I'm going to be working in rows. So, chain one and turn your work, and then single crochet across as normal. Remember to always crochet around the rope.
+
+We are going to repeat this process until we're done basically.
+
+I noticed that my rows were getting shorter as the rope strands were getting longer. To mitigate this, add a few stitches to the end of each row. I did mine by crocheting around the bottom AND top piece of rope I was working through. This binds the ends of the rope together and will help the rainbow take shape.
