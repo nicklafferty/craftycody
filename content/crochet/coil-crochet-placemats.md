@@ -16,7 +16,7 @@ I had an idea in my head that I wanted a boho vibe with a little rustic thrown i
 
 I will note that doing a circle or rectangle would have been a _lot_ easier so keep that in mind as you read.
 
-I admittedly went to Walmart because I knew they would have all the supplies immediately ready. The rope was about $5/package (I needed two) and the yarn was about $1.60 which was a lot more reasonable. I would suggest [ordering in bulk on Amazon](https://amzn.to/3Q9siFo). You'll get a way better deal especially if you need to make several of these.
+I admittedly went to Walmart because I knew they would have all the supplies immediately ready. The rope was about $5/package (I bought two) and the yarn was about $1.60 which was a lot more reasonable. I would suggest [ordering in bulk on Amazon](https://amzn.to/3Q9siFo). You'll get a way better deal especially if you need to make several of these.
 
 I've also never done coil crochet but thought it would be the best way to join the rope strands together. I watched about two seconds of a video to learn how to start the coil and all it is is a magic circle and I thought I could wing the rest.
 
