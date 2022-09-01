@@ -24,9 +24,9 @@ This post and accompanying video will lay out the trial and error I went through
 
 ## Supplies:
 
-1. Rope
-2. Yarn
-3. Crochet hook
+1. Rope (6 yards, 3/8in thick)
+2. Yarn (Cotton yarn, any color. I used dark grey)
+3. Crochet hook (H-5mm hook)
 4. Scissors
 5. E600 glue
 
