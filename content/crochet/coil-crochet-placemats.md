@@ -8,6 +8,9 @@ tags = ["crochet", "video"]
 title = "Coil Crochet Placemats"
 
 +++
+
+{{< youtube UGk2GKNdnvs >}}
+
 This is going to sound silly, but I've been hunting for placemats for a couple of months now. They either don't fit with the vision I have in my head or they are too expensive. I only need them once a year so I didn't want to blow a bunch of money on pre-made junk.
 
 So I decided to blow money on _crafting_.
