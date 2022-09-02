@@ -1,7 +1,6 @@
 +++
 date = 2022-09-02T05:00:00Z
 description = "Or how I learned crocheting around rope is kind of a pain."
-draft = true
 image = "/uploads/coil-crochet-blog-header.png"
 slug = "coil-crochet-placemats"
 tags = ["crochet", "video"]
@@ -15,6 +14,8 @@ This is going to sound silly, but I've been hunting for placemats for a couple o
 So I decided to blow money on _crafting_.
 
 I had an idea in my head that I wanted a boho vibe with a little rustic thrown in. Neutral-toned rainbows are popular right now and I have to admit that I agree with the trend. I think they're super cute so that's the shape I decided on for my placemats.
+
+![](/uploads/finished-placemat.jpg)
 
 I will note that doing a circle or rectangle would have been a _lot_ easier so keep that in mind as you read.
 
@@ -48,12 +49,14 @@ Instead of crocheting in a spiral and working in the round, I'm going to be work
 
 We are going to repeat this process until we're done basically.
 
+![](/uploads/placemat-small.jpg)
+
 I noticed that my rows were getting shorter as the rope strands were getting longer. To mitigate this, add a few stitches to the end of each row. I did mine by crocheting around the bottom AND top piece of rope I was working through. This binds the ends of the rope together and will help the rainbow take shape.
 
 When I used all of my rope, I finished off the yarn and cut all of the rope loops. I glued the ends together to bring in the rainbow a bit.
 
-After burning my fingers a few times and letting the glue dry, I frayed the ends of the rope with my fingers to give it a more finished look. And to hide imperfections.
+![](/uploads/placemat-before-fringe.jpg)
 
-![](/uploads/finished-placemat.jpg)
+After burning my fingers a few times and letting the glue dry, I frayed the ends of the rope with my fingers to give it a more finished look. And to hide imperfections.
 
 ![](/uploads/finished-placemat-angle.jpg)
