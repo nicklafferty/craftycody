@@ -53,3 +53,7 @@ I noticed that my rows were getting shorter as the rope strands were getting lon
 When I used all of my rope, I finished off the yarn and cut all of the rope loops. I glued the ends together to bring in the rainbow a bit.
 
 After burning my fingers a few times and letting the glue dry, I frayed the ends of the rope with my fingers to give it a more finished look. And to hide imperfections.
+
+![](/uploads/finished-placemat.jpg)
+
+![](/uploads/finished-placemat-angle.jpg)
