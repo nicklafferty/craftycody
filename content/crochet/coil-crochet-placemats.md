@@ -8,7 +8,6 @@ tags = ["crochet", "video"]
 title = "Coil Crochet Placemats"
 
 +++
-
 {{< youtube UGk2GKNdnvs >}}
 
 This is going to sound silly, but I've been hunting for placemats for a couple of months now. They either don't fit with the vision I have in my head or they are too expensive. I only need them once a year so I didn't want to blow a bunch of money on pre-made junk.
@@ -34,6 +33,8 @@ This post and accompanying video will lay out the trial and error I went through
 3. Crochet hook (H-5mm hook)
 4. Scissors
 5. Hot glue
+
+![](/uploads/placemat-supplies.jpg)
 
 ## How-to:
 
