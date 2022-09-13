@@ -18,11 +18,11 @@ Until I started doing some research into South Padre. Since it's so far south, i
 
 Fast forward a few months, my husband gets the idea to take his parents on a vacation and lands on South Padre. It's a beach, it's driveable, and we can bring our dog who had never seen the ocean before.
 
+![](/uploads/pxl_20220909_194610202.jpg)
+
 The whole place really took me by surprise. It's hard to get a beat on something without seeing it for yourself, but once you cross the big bridge and get to the island proper, it really does feel like Miami albeit with much less of a party vibe.
 
 The island is filled with high-rise condos and billionaires are currently buying up real estate and renovating it. While that means prices will skyrocket, it's looking terrific and updated.
-
-The most surprising thing was that the water was actually blue. Like really, really blue. You don't feel like you're in Texas at all and it's surreal.
 
 ![](/uploads/south-padre-google-maps.png)
 
