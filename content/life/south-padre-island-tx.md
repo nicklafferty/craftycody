@@ -22,6 +22,8 @@ The whole place really took me by surprise. It's hard to get a beat on something
 
 The island is filled with high-rise condos and billionaires are currently buying up real estate and renovating it. While that means prices will skyrocket, it's looking terrific and updated.
 
+The most surprising thing was that the water was actually blue. Like really, really blue. You don't feel like you're in Texas at all and it's surreal.
+
 ![](/uploads/south-padre-google-maps.png)
 
 This is the area where we did all of our vacationing. The part of the island we stayed on was probably only about 10 miles long and maybe a mile wide at the widest. Sometimes while driving you could see the beach out either car window at the same time. It's a really tiny place and would be walkable in cooler months.
@@ -66,7 +68,11 @@ Holiday Sand Sculpture Village (by Gravity Park Amusement Park)
 
 ## Check out my outfits
 
+This is all the beach wear I wore on vacation so everything has the seal of approval that it stays on and looks good in the ocean. They're Amazon affiliate links so I'll get a little kickback from your purchase, but there is no added cost to you so shop away!
+
 Swimsuit
+
+Hat
 
 Shorts
 
