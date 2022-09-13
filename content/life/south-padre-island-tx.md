@@ -70,7 +70,13 @@ Holiday Sand Sculpture Village (by Gravity Park Amusement Park)
 
 This is all the beach wear I wore on vacation so everything has the seal of approval that it stays on and looks good in the ocean. They're Amazon affiliate links so I'll get a little kickback from your purchase, but there is no added cost to you so shop away!
 
+![](/uploads/pxl_20220910_161320321.jpg)
+
+I wore this every day at the beach. [My swimsuit](https://amzn.to/3BdNN2j) was only $24 when purchased, but it looks like it went back up to $29. Keep checking for sales! You can wear it two different ways and it comes in a ton of color options. I got a size medium in green and it fits great. There is a little ruching around the stomach for some camouflage as well.
+
 Swimsuit
+
+Sunglasses
 
 Hat
 
