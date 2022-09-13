@@ -22,6 +22,8 @@ The whole place really took me by surprise. It's hard to get a beat on something
 
 The island is filled with high-rise condos and billionaires are currently buying up real estate and renovating it. While that means prices will skyrocket, it's looking terrific and updated.
 
+I want to run down what we were up to in South Padre to help convince fellow Texans (or anyone!) to make the drive and visit.
+
 ## Beach
 
 ## Restaurants
