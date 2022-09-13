@@ -1,8 +1,8 @@
 +++
-date = ""
+date = 2022-09-16T05:00:00Z
 description = "My first time to the best beach in my home state."
 draft = true
-image = ""
+image = "/uploads/south-padre-vacation-header.png"
 slug = "south-padre-tx"
 tags = ["vacation"]
 title = "South Padre Island, TX"
@@ -59,3 +59,11 @@ Laguna BOB
 Tequila Sunset
 
 Holiday Sand Sculpture Village (by Gravity Park Amusement Park)
+
+## Check out my outfits
+
+Swimsuit
+
+Shorts
+
+Tank top
