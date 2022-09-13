@@ -20,10 +20,10 @@ Fast forward a few months, my husband gets the idea to take his parents on a vac
 
 The whole place really took me by surprise. It's hard to get a beat on something without seeing it for yourself, but once you cross the big bridge and get to the island proper, it really does feel like Miami albeit with much less of a party vibe.
 
-The island is filled with high-rise condos and billionaires are currently buying up real estate and renovating it. While that means prices will skyrocket, it's looking really good.
+The island is filled with high-rise condos and billionaires are currently buying up real estate and renovating it. While that means prices will skyrocket, it's looking terrific and updated.
 
-Beach
+## Beach
 
-Restaurants
+## Restaurants
 
-Things to do
+## Things to do
