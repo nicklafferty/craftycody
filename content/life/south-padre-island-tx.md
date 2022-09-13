@@ -26,6 +26,36 @@ I want to run down what we were up to in South Padre to help convince fellow Tex
 
 ## Beach
 
+VRBO
+
+Beach
+
 ## Restaurants
 
+Joe's Oyster Bar
+
+Los Tortugos Seafood Market
+
+The Meatball Cafe
+
+Whataburger
+
 ## Things to do
+
+South Padre Island Birding and Nature Center
+
+Shopping
+
+\-Ocean Palm Shopping Center (Karen's Custom Toe Rings, Karma Coffee and Books)
+
+\-Mercado Faro (also in a shopping center with antique store, cafes, food, and souvenirs)
+
+Pirate's Landing Fishing Pier
+
+Port Isabel Lighthouse
+
+Laguna BOB
+
+Tequila Sunset
+
+Holiday Sand Sculpture Village (by Gravity Park Amusement Park)
