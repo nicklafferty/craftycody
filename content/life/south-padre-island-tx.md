@@ -14,7 +14,9 @@ I've lived in Texas my entire life and had never been to South Padre. It's not t
 
 I also assumed it was similar enough to Galveston which, bless them, isn't that great of a beach. The gulf is usually pretty brown too. I figured I'd always have to fly to go to decent beaches and that was just the way of it.
 
-Until I started doing some research into South Padre. Since it's so far south, it benefits from the tropical climate of Mexico and more closely resembles Miami than it does Galveston.
+Until I started doing some research into South Padre. Since it's so far south, it benefits from the tropical climate of Mexico and, since it's a long island, more closely resembles Miami than it does Galveston.
+
+Fast forward a few months and my husband gets the idea to take his parents on a vacation and lands on South Padre. It's a beach, it's driveable, and we can bring our dog who had never seen the ocean before.
 
 Beach
 
