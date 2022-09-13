@@ -18,6 +18,8 @@ Until I started doing some research into South Padre. Since it's so far south, i
 
 Fast forward a few months and my husband gets the idea to take his parents on a vacation and lands on South Padre. It's a beach, it's driveable, and we can bring our dog who had never seen the ocean before.
 
+The whole place really took me by surprise. It's hard to get a beat on something without seeing it for yourself, but once you cross the big bridge and get to the island proper, it really does feel like Miami albeit with much less of a party vibe.
+
 Beach
 
 Restaurants
