@@ -32,9 +32,7 @@ I want to run down what we were up to in South Padre to help convince fellow Tex
 
 ## Beach
 
-VRBO
-
-Beach
+We [stayed at this VRBO](https://www.vrbo.com/228178ha) that was basically right on the beach! Every morning we could sip our coffee from a bench swing or rocking chair and look out over the ocean- it was incredible. There was also easy beach access directly across the street. Literally only had to walk a few steps and you were in the sand.
 
 ## Restaurants
 
