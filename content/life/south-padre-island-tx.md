@@ -22,9 +22,11 @@ The whole place really took me by surprise. It's hard to get a beat on something
 
 The island is filled with high-rise condos and billionaires are currently buying up real estate and renovating it. While that means prices will skyrocket, it's looking terrific and updated.
 
-I want to run down what we were up to in South Padre to help convince fellow Texans (or anyone!) to make the drive and visit.
-
 ![](/uploads/south-padre-google-maps.png)
+
+This is the area where we did all of our vacationing. The part of the island we stayed on was probably only about 10 miles long and maybe a mile wide at the widest. Sometimes while driving you could see the beach out either car window at the same time. It's a really tiny place and would be walkable in cooler months.
+
+I want to run down what we were up to in South Padre to help convince fellow Texans (or anyone!) to make the drive and visit.
 
 ## Beach
 
