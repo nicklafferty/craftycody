@@ -24,6 +24,8 @@ The island is filled with high-rise condos and billionaires are currently buying
 
 I want to run down what we were up to in South Padre to help convince fellow Texans (or anyone!) to make the drive and visit.
 
+![](/uploads/south-padre-google-maps.png)
+
 ## Beach
 
 VRBO
