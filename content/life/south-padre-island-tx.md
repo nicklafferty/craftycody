@@ -124,11 +124,11 @@ That's my husband waving down at us from atop the [Port Isabel Lighthouse](http:
 
 ![](/uploads/pxl_20220911_003448191.jpg)
 
-There are a lot of bars in South Padre and there's a whole strip of them along the coastline. [Laguna BOB](http://lagunabob.com/) is located in a pretty fun area. If you get here at a good time, you can grab a spot and watch the sunset while sipping something cold. They don't have cider though.
+There are a lot of bars in South Padre and there's a whole strip of them along the coastline. [Laguna BOB](http://lagunabob.com/) is located in a pretty fun area. If you get here at a good time, you can grab a spot and watch the sunset while sipping something cold. They don't have cider though, but they do have live music.
 
 ### Tequila Sunset
 
-Right next door to Laguna BOB is [Tequila Sunset](https://www.facebook.com/tequilasunset/). It's quite a bit bigger, has ample seating and a large bar, and has a bunch of TVs so you won't miss the game (see: week 1 Bucs @ Cowboys).
+Right next door to Laguna BOB is [Tequila Sunset](https://www.facebook.com/tequilasunset/). It's quite a bit bigger, has ample seating and a large bar, and has a bunch of TVs so you won't miss the game (see: week 1 Bucs @ Cowboys). They also have live music.
 
 ### Holiday Sand Sculpture Village (by Gravity Park Amusement Park)
 
