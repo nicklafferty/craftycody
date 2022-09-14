@@ -94,7 +94,7 @@ There are quite a few little shopping centers around South Padre and Port Isabel
 
 One of the shopping areas is right next to the Port Isabel Lighthouse and has some neat shops. The one I was most interested in was the [Mercado Faro](https://www.facebook.com/portisabeltx/videos/live-from-the-mercado-faro-on-maxan-street-in-downtown-port-isabel/618449585409152/) which was a covered market with several vendors selling their wares. Also y'all, it was dirt cheap and they had all kinds of treasures. Lots of jewelry, stones, clothing, and nicknacks. I wanted to stay longer, but there was no air-conditioning and it was _very_ hot. There's also an antique store, food, cafes, and souvenir shops.
 
-After the Mercado, we headed back across the bridge to the [Ocean Palm Shopping Center](https://www.google.com/maps/place/Ocean+Palm+Shopping+Center/@26.1029064,-97.1672466,15z/data=!4m5!3m4!1s0x0:0x6fff10f5926c17a1!8m2!3d26.1029036!4d-97.1672899). This place has several shops to choose from and, as far as I know, all have AC! There's also one of those giant souvenir shops that sell t-shirts for around $6. It's a tourist trap, but it's fun to look around. 
+After the Mercado, we headed back across the bridge to the [Ocean Palm Shopping Center](https://www.google.com/maps/place/Ocean+Palm+Shopping+Center/@26.1029064,-97.1672466,15z/data=!4m5!3m4!1s0x0:0x6fff10f5926c17a1!8m2!3d26.1029036!4d-97.1672899). This place has several shops to choose from and, as far as I know, all have AC! There's also one of those giant souvenir shops that sell t-shirts for around $6. It's a tourist trap, but it's fun to look around.
 
 We went to [Karma Coffee and Books](https://www.facebook.com/KarmaCoffeeBooks/) first to grab an iced coffee to fight the hot day. It was pretty tasty! I always get a plain vanilla latte and this one had some hints of cinnamon and wasn't too sweet. The whole place smells like incense so if you're sensitive watch out. It's a good-sized place that also sells little desserts and books as the name suggests.
 
@@ -109,6 +109,10 @@ They make all their rings and, from looking around, they all seem to be sterling
 Honestly, even if you're not into jewelry, you may like it. They're comfortable and add a cute flash when you wear your sandals. It's helping a small business too and Mike was a great guy.
 
 ### Pirate's Landing Fishing Pier
+
+We didn't spend a lot of time here, but you can go out on this big ol' pier and do some fishing. It's also a great place to watch the sunset.
+
+There are some boats you can charter and, in particular, there is a pirate ship you can go out on. I think it's kind of like a show with actors and music that you're a part of.
 
 ### Port Isabel Lighthouse
 
