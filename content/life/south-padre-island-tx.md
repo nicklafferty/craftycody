@@ -58,6 +58,8 @@ Tip: Get the shrimp tacos and ask for a bowl of salsa on the side. They're incre
 
 ### The Meatball Cafe
 
+![](/uploads/pxl_20220911_230050928.jpg)
+
 ### Whataburger
 
 ## Things to do
