@@ -106,7 +106,7 @@ One of the groups was a mother and her daughters who happened to originally be f
 
 They make all their rings and, from looking around, they all seem to be sterling silver or gold so you shouldn't end up with an itchy, green toe. They have all kinds of styles and the prices seem fair.
 
-Honestly, even if you're not into jewelry, you may like it. They're comfortable and add a cute flash when you wear your sandals. It's helping a small business and Mike was a great guy.
+Honestly, even if you're not into jewelry, you may like it. They're comfortable and add a cute flash when you wear your sandals. It's helping a small business too and Mike was a great guy.
 
 ### Pirate's Landing Fishing Pier
 
