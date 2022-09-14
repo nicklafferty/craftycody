@@ -78,9 +78,9 @@ I wore this every day at the beach. [My swimsuit](https://amzn.to/3BdNN2j) was o
 
 [My hat](https://amzn.to/3xpqx0b) is a _touch_ big for my head, but it's still cute and allows me to wear a ponytail or bun while keeping the sun off my face. By big, I mean it covers my ears just a bit but stays put on my head. The adjustable band is velcro and there's an adorable, subtle bow on the back. I ordered beige brown and it was only $15.
 
-I did a lot of research into sunglasses and ultimately went with [this pair of sunnies](https://amzn.to/3Le8Aas) from J+S. I ordered a size large with pink mirror lenses. They look great, are inexpensive, and will protect your eyes.
+I did a lot of research into sunglasses and ultimately went with [this pair of sunnies](https://amzn.to/3Le8Aas) from J+S. I ordered a size large with pink mirror lenses. They look great, are inexpensive, and, most importantly, will protect your eyes.
 
-Men's swim shorts always have convenient pockets, but it always seems like women's clothes get left out. I found this [pair of high-waisted shorts](https://amzn.to/3RYUH2f) with a zip-up pocket and always wear them when I do anything in the water. They're also great for working out because they're so lightweight and dry quickly.
+Men's swim shorts always have convenient pockets, but it seems like women's clothes get left out. I found this [pair of high-waisted shorts](https://amzn.to/3RYUH2f) with a zip-up pocket and usually wear them when I do anything in the water. They're also great for working out because they're so lightweight and dry quickly.
 
 ![](/uploads/pxl_20220911_002550820.jpg)
 
