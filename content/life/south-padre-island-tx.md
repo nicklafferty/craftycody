@@ -82,7 +82,7 @@ Alright, I had to include it! It was technically the last restaurant we went to.
 
 ![](/uploads/bigpadrespibirding.jpg)
 
-That's Big Padre. You can meet him at the South Padre Island Birding and Nature Center. It's $10 and the money goes towards the conservation of gators and other animals.
+That's Big Padre. You can meet him at the [South Padre Island Birding and Nature Center](https://www.spibirding.com/). It's $10 and the money goes towards the conservation of gators and other animals.
 
 ### Shopping
 
