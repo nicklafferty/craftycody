@@ -128,7 +128,7 @@ There are a lot of bars in South Padre and there's a whole strip of them along t
 
 ### Tequila Sunset
 
-Right next door to Laguna BOB is [Tequila Sunset](https://www.facebook.com/tequilasunset/). It's quite a bit bigger, has ample seating and a large bar, and has a bunch of TVs so you won't miss the game (see: Week 1 Bucs @ Cowboys). They also have live music.
+Right next door to Laguna BOB is [Tequila Sunset](https://www.facebook.com/tequilasunset/). It's quite a bit bigger, has ample seating and a large bar, and has a bunch of TVs so you won't miss the game (see: Week 1 Bucs @ Cowboys). They also have live music...and cider.
 
 ### Holiday Sand Sculpture Village (by Gravity Park Amusement Park)
 
@@ -154,4 +154,6 @@ Men's swim shorts always have convenient pockets, but it seems like women's clot
 
 ![](/uploads/pxl_20220911_002550820.jpg)
 
-This [crop tank](https://amzn.to/3QLe5ia) was another Amazon find a while ago, but I'm constantly wearing it. It's perfect for the gym but comes in so many colors you could wear it every day for different stuff. It hugs you at the bottom so the fabric bunches some to create a unique silhouette that pairs well with tight yoga pants. I got a medium in army green, but would probably go with a small next time.
+This [crop tank](https://amzn.to/3QLe5ia) was another Amazon find a while ago, but I'm constantly wearing it. It's perfect for the gym but comes in so many colors you could wear it every day for different stuff. It hugs you at the bottom so the fabric bunches some to create a unique silhouette that pairs well with tight yoga pants. I got a medium in army green, but would probably go with a small next time. Also, please ignore that my husband and I are wearing similarly colored shirts. This was not planned but happens too often.
+
+Until next time, South Padre!
