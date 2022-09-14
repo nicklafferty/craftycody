@@ -156,4 +156,6 @@ Men's swim shorts always have convenient pockets, but it seems like women's clot
 
 This [crop tank](https://amzn.to/3QLe5ia) was another Amazon find a while ago, but I'm constantly wearing it. It's perfect for the gym but comes in so many colors you could wear it every day for different stuff. It hugs you at the bottom so the fabric bunches some to create a unique silhouette that pairs well with tight yoga pants. I got a medium in army green, but would probably go with a small next time. Also, please ignore that my husband and I are wearing similarly colored shirts. This was not planned but happens too often.
 
-Until next time, South Padre!
+## Until next time, South Padre!
+
+Everything said and done, it was a great vacation. I wish we could have stayed longer, but the real world calls. We're definitely planning to go back when it's a touch cooler so we can spend more time outside and not rush through things. Also planning on eating 100% more seafood. Going out three times was not enough!
