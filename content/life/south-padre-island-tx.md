@@ -18,13 +18,13 @@ Until I started doing some research into South Padre. Since it's so far south, i
 
 Fast forward a few months, my husband gets the idea to take his parents on a vacation and landed on South Padre. It's a beach, it's driveable, and we can bring our dog who had never seen the ocean before.
 
-![](/uploads/pxl_20220909_194610202.jpg)
+![](/uploads/pxl_20220909_194610202.jpg "driving into South Padre")
 
 The whole place really took me by surprise. It's hard to get a beat on something without seeing it for yourself, but once you cross the big bridge and get to the island proper, it really does feel like Miami albeit with much less of a party vibe.
 
 The island is filled with high-rise condos and billionaires are currently buying up real estate and renovating it. While that means prices will skyrocket, it's looking terrific and updated.
 
-![](/uploads/south-padre-google-maps.png)
+![](/uploads/south-padre-google-maps.png "South Padre Google maps")
 
 This is the area where we did all of our vacationing. The part of the island we stayed on was probably only about 10 miles long and maybe a mile wide at the widest. Sometimes while driving you could see the beach out either car window at the same time. It's a really tiny place and would be walkable in cooler months.
 
@@ -32,11 +32,11 @@ I want to run down what we were up to in South Padre to help convince fellow Tex
 
 ## Beach
 
-![](/uploads/pxl_20220909_220746377.jpg)
+![](/uploads/pxl_20220909_220746377.jpg "view from VRBO")
 
 We [stayed at this VRBO](https://www.vrbo.com/228178ha) that was basically right on the beach! Every morning we could sip our coffee from a bench swing or rocking chair and look out over the ocean- it was incredible. There was also easy beach access directly across the street. Literally only had to walk a few steps and you were in the sand.
 
-![](/uploads/pxl_20220910_151019369.jpg)
+![](/uploads/pxl_20220910_151019369.jpg "South Padre beach")
 
 The beach itself was so nice. Very clean, with no seaweed anywhere, and it was sparsely populated because I think we went in the offseason which I highly recommend. You can section off your own chunk of the beach and not have anyone around you all day.
 
@@ -44,15 +44,17 @@ And, as I said earlier, the water was so blue!
 
 ## Restaurants
 
+There are so many restaurants to choose from that I don't think you could go wrong. Here are the ones we tried during our stay.
+
 ### Joe's Oyster Bar
 
-![](/uploads/pxl_20220909_225620452.jpg)
+![](/uploads/pxl_20220909_225620452.jpg "joe's oyster bar food")
 
 [Joe's Oyster Bar](https://www.gulfseafoodmarket.com/) is a no-frills place in Port Isabel that does seafood right. Our VRBO host had a binder with a _ton_ of recommendations on where to eat and Joe's was a favorite. What was so wild to me about all the seafood restaurants was the prices. It's insanely cheap. I had the Nathan Special. It was only $14 and had a grilled piece of flounder, shrimp, and a crab cake included. That and everything was caught that morning. Definitely some of the best seafood I've had. We also shared a half order of raw oysters which were great as well.
 
 ### Los Tortugos Seafood Market
 
-![](/uploads/pxl_20220910_224540031.jpg)
+![](/uploads/pxl_20220910_224540031.jpg "lost tortugos ceviche")
 
 [Los Tortugos](https://www.facebook.com/Los-Tortugos-Seafood-Market-550066458523389/) is another place that has great seafood at even better prices. Our group of four ate here for $50 and all had seafood dishes. I got the ceviche and they brought out a massive bowl- the photo doesn't do it justice. I couldn't even finish!
 
@@ -62,7 +64,7 @@ Tip: Get the shrimp tacos and ask for a bowl of salsa on the side. They're incre
 
 ### The Meatball Cafe
 
-![](/uploads/pxl_20220911_230050928.jpg)
+![](/uploads/pxl_20220911_230050928.jpg "meatball cafe shrimp scampi pasta")
 
 [The Meatball Cafe](http://www.themeatball-cafe.com/) is a casual Italian place with slightly steep prices. Most everything on the menu is over $20. That being said, it was delicious. Solid, authentic Italian food. They make all of their noodles in-house as well as a few sauces/dressings.
 
@@ -76,23 +78,23 @@ Alright, I had to include it! It was technically the last restaurant we went to.
 
 ## Things to do
 
-South Padre Island Birding and Nature Center
+### South Padre Island Birding and Nature Center
 
-Shopping
+### Shopping
 
 \-Ocean Palm Shopping Center (Karen's Custom Toe Rings, Karma Coffee and Books)
 
 \-Mercado Faro (also in a shopping center with antique store, cafes, food, and souvenirs)
 
-Pirate's Landing Fishing Pier
+### Pirate's Landing Fishing Pier
 
-Port Isabel Lighthouse
+### Port Isabel Lighthouse
 
-Laguna BOB
+### Laguna BOB
 
-Tequila Sunset
+### Tequila Sunset
 
-Holiday Sand Sculpture Village (by Gravity Park Amusement Park)
+### Holiday Sand Sculpture Village (by Gravity Park Amusement Park)
 
 ## Check out my outfits
 
