@@ -16,7 +16,7 @@ I also assumed it was similar enough to Galveston which, bless them, isn't that 
 
 Until I started doing some research into South Padre. Since it's so far south, it benefits from the tropical climate of Mexico and, since it's a long island, more closely resembles Miami than it does Galveston.
 
-Fast forward a few months, my husband gets the idea to take his parents on a vacation and lands on South Padre. It's a beach, it's driveable, and we can bring our dog who had never seen the ocean before.
+Fast forward a few months, my husband gets the idea to take his parents on a vacation and landed on South Padre. It's a beach, it's driveable, and we can bring our dog who had never seen the ocean before.
 
 ![](/uploads/pxl_20220909_194610202.jpg)
 
