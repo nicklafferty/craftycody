@@ -78,11 +78,15 @@ Alright, I had to include it! It was technically the last restaurant we went to.
 
 ## Things to do
 
+South Padre isn't all partying and Spring Break shenanigans. There are lots of casual and family-friendly activities too.
+
 ### South Padre Island Birding and Nature Center
 
 ![](/uploads/bigpadrespibirding.jpg)
 
 That's Big Padre. You can meet him at the [South Padre Island Birding and Nature Center](https://www.spibirding.com/). It's $10 and the money goes towards the conservation of gators and other animals.
+
+There are interesting and educational talks and you can pay a little more to feed and take pictures with small gators. There's also a long boardwalk where you can watch birds. It's all mostly outside, so go on a nice day.
 
 ### Shopping
 
