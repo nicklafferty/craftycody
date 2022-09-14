@@ -60,6 +60,12 @@ Tip: Get the shrimp tacos and ask for a bowl of salsa on the side. They're incre
 
 ![](/uploads/pxl_20220911_230050928.jpg)
 
+[The Meatball Cafe](http://www.themeatball-cafe.com/) is a casual Italian place with slightly steep prices. Most everything on the menu is over $20. That being said, it was delicious as well. Solid, authentic Italian food. They make all of their noodles in-house as well as a few sauces/dressings.
+
+Not to brag, but I think I ordered the best thing on the menu. I got the shrimp scampi pasta and it was so rich and delicious. I can't say enough good things. Was it heavy? Absolutely. Was it worth it? Definitely.
+
+Tip: Get the fried cheese ravioli appetizer. They're giant, amazing, and easily enough for a table of four.
+
 ### Whataburger
 
 ## Things to do
