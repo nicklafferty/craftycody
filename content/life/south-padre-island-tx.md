@@ -80,6 +80,10 @@ Alright, I had to include it! It was technically the last restaurant we went to.
 
 ### South Padre Island Birding and Nature Center
 
+![](/uploads/bigpadrespibirding.jpg)
+
+That's Big Padre. You can meet him at the South Padre Island Birding and Nature Center. It's $10 and the money goes towards the conservation of gators and other animals.
+
 ### Shopping
 
 \-Ocean Palm Shopping Center (Karen's Custom Toe Rings, Karma Coffee and Books)
