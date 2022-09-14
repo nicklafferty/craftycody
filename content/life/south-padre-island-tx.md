@@ -76,7 +76,7 @@ This is all the beach wear I wore on vacation so everything has the seal of appr
 
 I wore this every day at the beach. [My swimsuit](https://amzn.to/3BdNN2j) was only $24 when purchased, but it looks like it went back up to $29. Keep checking for sales! You can wear it two different ways and it comes in a ton of color options. I got a size medium in green and it fits great. There is a little ruching around the stomach for some camouflage as well.
 
-[My hat](https://amzn.to/3xpqx0b) is a _touch_ big for my head, but it's still really cute and lets me wear a ponytail or bun while keeping the sun off my face. By big, I mean it covers my ears just a bit but stays put on my head. The adjustable band is velcro and there's an adorable, subtle bow on the back. I ordered beige brown and it was only $15.
+[My hat](https://amzn.to/3xpqx0b) is a _touch_ big for my head, but it's still cute and allows me to wear a ponytail or bun while keeping the sun off my face. By big, I mean it covers my ears just a bit but stays put on my head. The adjustable band is velcro and there's an adorable, subtle bow on the back. I ordered beige brown and it was only $15.
 
 I did a lot of research into sunglasses and ultimately went with [this pair of sunnies](https://amzn.to/3Le8Aas) from J+S. I ordered a size large with pink mirror lenses. They look great, are inexpensive, and will protect your eyes.
 
