@@ -128,6 +128,8 @@ There are a lot of bars in South Padre and there's a whole strip of them along t
 
 ### Tequila Sunset
 
+Right next door to Laguna BOB is [Tequila Sunset](https://www.facebook.com/tequilasunset/). It's quite a bit bigger, has ample seating and a large bar, and has a bunch of TVs so you won't miss the game (see: week 1 Bucs @ Cowboys).
+
 ### Holiday Sand Sculpture Village (by Gravity Park Amusement Park)
 
 ## Check out my outfits
