@@ -50,6 +50,10 @@ This is a no-frills place in Port Isabel that does seafood right. Our VRBO host 
 
 ![](/uploads/pxl_20220910_224540031.jpg)
 
+Again, great seafood at even better prices. Our group of four ate here for $50 and all had seafood dishes. I got the ceviche and they brought out a massive bowl- the photo doesn't do it justice. I couldn't even finish!
+
+It was very tasty, but the lime juice got to me after a while and so the flavor got a little same-y. It's technically an appetizer so I do recommend getting it for the group and having a few bites, but get something else for your main dish.
+
 ### The Meatball Cafe
 
 ### Whataburger
