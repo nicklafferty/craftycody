@@ -44,9 +44,11 @@ And, as I said earlier, the water was so blue!
 
 ![](/uploads/pxl_20220909_225620452.jpg)
 
-This is a no-frills place that does seafood right. Our VRBO host had a binder with a _ton_ of recommendations on where to eat and Joe's was a favorite. What was so wild to me about all the seafood restaurants was the prices. It's insanely cheap. I had the Nathan Special. It was only $14 and had a grilled piece of flounder, shrimp, and a crab cake included. That and everything was caught that morning.
+This is a no-frills place in Port Isabel that does seafood right. Our VRBO host had a binder with a _ton_ of recommendations on where to eat and Joe's was a favorite. What was so wild to me about all the seafood restaurants was the prices. It's insanely cheap. I had the Nathan Special. It was only $14 and had a grilled piece of flounder, shrimp, and a crab cake included. That and everything was caught that morning. Definitely some of the best seafood I've had. We also shared a half order of raw oysters which were great as well.
 
 ### Los Tortugos Seafood Market
+
+![](/uploads/pxl_20220910_224540031.jpg)
 
 ### The Meatball Cafe
 
