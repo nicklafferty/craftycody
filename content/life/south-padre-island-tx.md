@@ -40,13 +40,13 @@ And, as I said earlier, the water was so blue!
 
 ## Restaurants
 
-Joe's Oyster Bar
+### Joe's Oyster Bar
 
-Los Tortugos Seafood Market
+### Los Tortugos Seafood Market
 
-The Meatball Cafe
+### The Meatball Cafe
 
-Whataburger
+### Whataburger
 
 ## Things to do
 
@@ -84,4 +84,4 @@ Men's swim shorts always have convenient pockets, but it seems like women's clot
 
 ![](/uploads/pxl_20220911_002550820.jpg)
 
-This [crop tank](https://amzn.to/3QLe5ia) was another Amazon find a while ago, but I'm always wearing it. It's great for the gym but comes in so many colors you could wear it every day for different stuff. It hugs you at the bottom so the fabric bunches some to create a unique silhouette that pairs well with tight yoga pants. I got a medium in army green, but would probably go with a small next time.
+This [crop tank](https://amzn.to/3QLe5ia) was another Amazon find a while ago, but I'm constantly wearing it. It's perfect for the gym but comes in so many colors you could wear it every day for different stuff. It hugs you at the bottom so the fabric bunches some to create a unique silhouette that pairs well with tight yoga pants. I got a medium in army green, but would probably go with a small next time.
