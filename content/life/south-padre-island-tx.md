@@ -94,7 +94,15 @@ There are quite a few little shopping centers around South Padre and Port Isabel
 
 One of the shopping areas is right next to the Port Isabel Lighthouse and has some neat shops. The one I was most interested in was the [Mercado Faro](https://www.facebook.com/portisabeltx/videos/live-from-the-mercado-faro-on-maxan-street-in-downtown-port-isabel/618449585409152/) which was a covered market with several vendors selling their wares. Also y'all, it was dirt cheap and they had all kinds of treasures. Lots of jewelry, stones, clothing, and nicknacks. I wanted to stay longer, but there was no air-conditioning and it was _very_ hot. There's also an antique store, food, cafes, and souvenir shops.
 
-\-Ocean Palm Shopping Center (Karen's Custom Toe Rings, Karma Coffee and Books)
+After the Mercado, we headed back across the bridge to the [Ocean Palm Shopping Center](https://www.google.com/maps/place/Ocean+Palm+Shopping+Center/@26.1029064,-97.1672466,15z/data=!4m5!3m4!1s0x0:0x6fff10f5926c17a1!8m2!3d26.1029036!4d-97.1672899). This place has several shops to choose from and, as far as I know, all have AC! There's also one of those giant souvenir shops that sell t-shirts for around $6. It's a tourist trap, but it's fun to look around. 
+
+We went to Karma Coffee and Books first to grab an iced coffee to fight the hot day. It was pretty tasty! I always get a plain vanilla latte and this one had some hints of cinnamon and wasn't too sweet. The whole place smells like incense so if you're sensitive watch out. It's a good-sized place that also sells little desserts and books as the name suggests.
+
+The real start of the show at Ocean Palm is Karen's Custom Toe Rings. At first, I was a little surprised that a business could run on toe rings alone, but my MIL and I went in to check it out while the guys did something else (who knows).
+
+Let me tell you, we had a lot of fun. There were several other women in there and all were getting fitted for toe rings. The shop is run by a husband and wife team and it was the husband doing all of the chatting and fitting. He was an older guy named Mike who knew all the ins-and-outs of South Padre and also had some great food recommendations.
+
+One of the groups was a mother and her daughters who happened to originally be from DFW (small world). They decided to get matching toe rings 
 
 ### Pirate's Landing Fishing Pier
 
