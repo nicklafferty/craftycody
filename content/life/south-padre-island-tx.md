@@ -116,6 +116,10 @@ There's a restaurant and some boats you can charter and, in particular, there is
 
 ### Port Isabel Lighthouse
 
+![](/uploads/pxl_20220911_192254897.jpg)
+
+That's my husband waving down at us from atop the [Port Isabel Lighthouse](http://portisabellighthouse.com/lighthouse/).
+
 ### Laguna BOB
 
 ### Tequila Sunset
