@@ -90,6 +90,10 @@ There are interesting and educational talks and you can pay a little more to fee
 
 ### Shopping
 
+There are quite a few little shopping centers around South Padre and Port Isabel. These are great to kill some time or find some souvenirs, but be sure it isn't too hot. They're mostly outdoor malls and sometimes don't have AC.
+
+One of the shopping areas is right next to the Port Isabel Lighthouse and has some neat shops. The one I was most interested in was the Mercado Faro which was a covered market with several vendors selling their wares. Also y'all, it was dirt cheap and they had all kinds of treasures. Lots of jewelry, stones, clothing, and nicknacks. I wanted to stay longer, but there was no air-conditioning and it was _very_ hot.
+
 \-Ocean Palm Shopping Center (Karen's Custom Toe Rings, Karma Coffee and Books)
 
 \-Mercado Faro (also in a shopping center with antique store, cafes, food, and souvenirs)
