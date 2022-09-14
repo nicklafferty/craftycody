@@ -132,7 +132,11 @@ Right next door to Laguna BOB is [Tequila Sunset](https://www.facebook.com/tequi
 
 ### Holiday Sand Sculpture Village (by Gravity Park Amusement Park)
 
-There is this cool, rotating [sand castle sculpture garden](https://www.facebook.com/holidaysandcastles/) in the same area as the bars I mentioned. I sadly didn't get any photos, but you can check them out on Facebook.
+There is this cool, rotating [sand castle sculpture garden](https://www.facebook.com/holidaysandcastles/) in the same area as the bars I mentioned. I sadly didn't get any photos, but you can check them out on Facebook. The artwork is incredible.
+
+![](/uploads/pxl_20220911_002537174.jpg)
+
+It's also right beside an amusement park with a Ferris wheel and several scary-looking suspension rides.
 
 ## Check out my outfits
 
