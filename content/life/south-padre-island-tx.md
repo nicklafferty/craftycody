@@ -42,6 +42,10 @@ And, as I said earlier, the water was so blue!
 
 ### Joe's Oyster Bar
 
+![](/uploads/pxl_20220909_225620452.jpg)
+
+This is a no-frills place that does seafood right. Our VRBO host had a binder with a _ton_ of recommendations on where to eat and Joe's was a favorite.
+
 ### Los Tortugos Seafood Market
 
 ### The Meatball Cafe
