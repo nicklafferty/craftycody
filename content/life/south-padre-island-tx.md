@@ -32,7 +32,11 @@ I want to run down what we were up to in South Padre to help convince fellow Tex
 
 ## Beach
 
+![](/uploads/pxl_20220909_220746377.jpg)
+
 We [stayed at this VRBO](https://www.vrbo.com/228178ha) that was basically right on the beach! Every morning we could sip our coffee from a bench swing or rocking chair and look out over the ocean- it was incredible. There was also easy beach access directly across the street. Literally only had to walk a few steps and you were in the sand.
+
+![](/uploads/pxl_20220910_151019369.jpg)
 
 The beach itself was so nice. Very clean, with no seaweed anywhere, and it was sparsely populated because I think we went in the offseason which I highly recommend. You can section off your own chunk of the beach and not have anyone around you all day.
 
