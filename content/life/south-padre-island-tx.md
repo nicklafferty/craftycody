@@ -80,7 +80,7 @@ I wore this every day at the beach. [My swimsuit](https://amzn.to/3BdNN2j) was o
 
 I did a lot of research into sunglasses and ultimately went with [this pair of sunnies](https://amzn.to/3Le8Aas) from J+S. I ordered a size large with pink mirror lenses. They look great, are inexpensive, and, most importantly, will protect your eyes.
 
-Men's swim shorts always have convenient pockets, but it seems like women's clothes get left out. I found this [pair of high-waisted shorts](https://amzn.to/3RYUH2f) with a zip-up pocket and usually wear them when I do anything in the water. They're also great for working out because they're so lightweight and dry quickly.
+Men's swim shorts always have convenient pockets, but it seems like women's clothes get left out. I found this [pair of high-waisted shorts](https://amzn.to/3RYUH2f) with a zip-up pocket and usually wear them when I do anything in the water. They're also great for working out because they're lightweight and dry quickly.
 
 ![](/uploads/pxl_20220911_002550820.jpg)
 
