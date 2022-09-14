@@ -68,6 +68,8 @@ Tip: Get the fried cheese ravioli appetizer. They're giant, amazing, and easily 
 
 ### Whataburger
 
+Alright, I had to include it! It was technically the last restaurant we went to. My husband picked up some breakfast taquitos (potato, ftw) before we headed back home. Honestly, they were probably the best I've had and they were huge. One will do you just right.
+
 ## Things to do
 
 South Padre Island Birding and Nature Center
