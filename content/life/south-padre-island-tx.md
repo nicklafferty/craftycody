@@ -54,6 +54,8 @@ Again, great seafood at even better prices. Our group of four ate here for $50 a
 
 It was very tasty, but the lime juice got to me after a while and so the flavor got a little same-y. It's technically an appetizer so I do recommend getting it for the group and having a few bites, but get something else for your main dish.
 
+Tip: Get the shrimp tacos and ask for a bowl of salsa on the side. They're incredible!
+
 ### The Meatball Cafe
 
 ### Whataburger
