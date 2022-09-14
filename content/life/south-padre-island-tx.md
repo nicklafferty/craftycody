@@ -44,7 +44,7 @@ And, as I said earlier, the water was so blue!
 
 ![](/uploads/pxl_20220909_225620452.jpg)
 
-This is a no-frills place that does seafood right. Our VRBO host had a binder with a _ton_ of recommendations on where to eat and Joe's was a favorite.
+This is a no-frills place that does seafood right. Our VRBO host had a binder with a _ton_ of recommendations on where to eat and Joe's was a favorite. What was so wild to me about all the seafood restaurants was the prices. It's insanely cheap. I had the Nathan Special. It was only $14 and had a grilled piece of flounder, shrimp, and a crab cake included. That and everything was caught that morning.
 
 ### Los Tortugos Seafood Market
 
