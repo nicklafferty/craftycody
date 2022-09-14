@@ -118,9 +118,11 @@ There's a restaurant and some boats you can charter and, in particular, there is
 
 ![](/uploads/pxl_20220911_192254897.jpg)
 
-That's my husband waving down at us from atop the [Port Isabel Lighthouse](http://portisabellighthouse.com/lighthouse/).
+That's my husband waving down at us from atop the [Port Isabel Lighthouse](http://portisabellighthouse.com/lighthouse/). There are stunning views from the top and you can take 360-degree panos. There's also a visitor's center with more history and info that you can tour.
 
 ### Laguna BOB
+
+![](/uploads/pxl_20220911_003448191.jpg)
 
 ### Tequila Sunset
 
