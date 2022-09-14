@@ -110,7 +110,7 @@ Honestly, even if you're not into jewelry, you may like it. They're comfortable 
 
 ### Pirate's Landing Fishing Pier
 
-We didn't spend a lot of time here, but you can go out on this big ol' pier and do some fishing. It's also a great place to watch the sunset.
+We didn't spend a lot of time here, but you can go out on this [big ol' pier](https://www.piratespier.com/) and do some fishing. It's also a great place to watch the sunset.
 
 There's a restaurant and some boats you can charter and, in particular, there is a pirate ship you can go out on. I think it's kind of like a show with actors and music that you're a part of.
 
