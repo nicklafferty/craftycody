@@ -1,7 +1,6 @@
 +++
-date = 2022-09-16T05:00:00Z
+date = 2022-09-15T05:00:00Z
 description = "My first time to the best beach in my home state."
-draft = true
 image = "/uploads/south-padre-vacation-header.png"
 slug = "south-padre-tx"
 tags = ["vacation"]
