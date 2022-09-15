@@ -37,9 +37,11 @@ We [stayed at this VRBO](https://www.vrbo.com/228178ha) that was basically right
 
 The beach itself was so nice. Very clean, with no seaweed anywhere, and it was sparsely populated because I think we went in the offseason which I highly recommend. You can section off your own chunk of the beach and not have anyone around you all day.
 
+And, as I said earlier, the water was so blue!
+
 ![](/uploads/pxl_20220912_115912761.jpg)
 
-And, as I said earlier, the water was so blue!
+And this is our lil' man after running through the surf. It took him a while to figure out the water wasn't going to attack him, but he loved it once he let loose. He is also very smelly and this is from the day we left, so.
 
 ## Restaurants
 
