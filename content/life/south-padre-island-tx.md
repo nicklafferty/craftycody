@@ -22,8 +22,6 @@ Fast forward a few months, my husband gets the idea to take his parents on a vac
 
 The whole place really took me by surprise. It's hard to get a beat on something without seeing it for yourself, but once you cross the big bridge and get to the island proper, it really does feel like Miami albeit with much less of a party vibe.
 
-The island is filled with high-rise condos and billionaires are currently buying up real estate and renovating it. While that means prices will skyrocket, it's looking terrific and updated.
-
 ![](/uploads/south-padre-google-maps.png "South Padre Google maps")
 
 This is the area where we did all of our vacationing. The part of the island we stayed on was probably only about 10 miles long and maybe a mile wide at the widest. Sometimes while driving you could see the beach out either car window at the same time. It's a really tiny place and would be walkable in cooler months.
@@ -161,3 +159,5 @@ This [crop tank](https://amzn.to/3QLe5ia) was another Amazon find a while ago, b
 ## Until next time, South Padre!
 
 Everything said and done, it was a great vacation. I wish we could have stayed longer, but the real world calls. We're definitely planning to go back when it's a touch cooler so we can spend more time outside and not rush through things. Also planning on eating 100% more seafood. Going out three times was not enough!
+
+![](/uploads/pxl_20220909_172346699.jpg)
