@@ -35,3 +35,11 @@ I think this will count as a Dollar Tree craft because I found everything there 
 9. Scissors
 
 ## How-to:
+
+Okay, this one is really, really easy and can bend completely to your tastes.
+
+What I did was fill each of the jars evenly with sand, then placed some of my larger shells on the sand. I sprinkled some of the faux pearls in then repeated shells, pearls, shells until I was done.
+
+I'll note here that I think I'm going to take the shells out of one of my jars and add them to the other two so that they're more full. I thought I had more shells than I did.
+
+Once I had all my shells in the jars, I closed up the lids. Then, I took the nautical rope and wrapped it around the top twice, got the length of slack I wanted, then cut it so I could tie it into a bow. I'm going to redo this part when I move my shells around and try to tie some kind of nautical knot, but I'll have to research how to do it.
