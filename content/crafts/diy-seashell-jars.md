@@ -44,4 +44,4 @@ I'll note here that I think I'm going to take the shells out of one of my jars a
 
 Once I had all my shells in the jars, I closed up the lids. Then, I took the nautical rope and wrapped it around the top twice, got the length of slack I wanted, then cut it so I could tie it into a bow. I'm going to redo this part when I move my shells around and try to tie some kind of nautical knot, but I'll have to research how to do it.
 
-When all the rope, I took one of the little, wooden seashell tags and wrote "South Padre 2022" and glued it onto the rope. I used gel super glue, but hot glue might be better. The tags were an impromptu item I found at Dollar Tree that fit with the theme perfectly. A happy accident.
+When all the rope was on, I took one of the little, wooden seashell tags and wrote "South Padre 2022". I did use a practice one. Sharpie was way too thick, so I used a normal pen. Then I glued it onto the rope. I used gel super glue, but hot glue might be better. The tags were an impromptu item I found at Dollar Tree that fit with the theme perfectly. A happy accident.
