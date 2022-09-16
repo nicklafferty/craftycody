@@ -20,6 +20,16 @@ So I did a little searching and got the idea to use mason jars. Then, my brain t
 
 I decided to use some nautical rope, white sand, fake pearls, and my shells to create little vignettes inside the jars. It's a very simple and affordable craft that you can do to remember any beach vacation.
 
-Supplies:
+## Supplies:
 
-How-to:
+1. Seashells
+2. Mason jars (I used three, but would have been good with two)
+3. Nautical rope
+4. White sand
+5. Faux pearls
+6. Wooden seashell tags
+7. Glue
+8. Pen
+9. Scissors
+
+## How-to:
