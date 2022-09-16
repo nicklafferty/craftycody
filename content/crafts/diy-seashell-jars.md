@@ -20,7 +20,7 @@ So I did a little searching and got the idea to use mason jars. Then, my brain t
 
 I decided to use some nautical rope, white sand, fake pearls, and my shells to create little vignettes inside the jars. It's a very simple and affordable craft that you can do to remember any beach vacation.
 
-I think this will count as a Dollar Tree craft because I found everything there except for the mason jars, but I'm pretty sure they have them most of the time. I had to go to Walmart for the jars. If you can't find the individual ones, check the craft aisle. They sell the bulk boxes of jars with the kitchen stuff.
+I think this will count as a Dollar Tree craft because I found everything there except for the mason jars, but I'm pretty sure they have them most of the time. I had to go to Walmart for the jars. If you can't find the individual ones, check the craft aisle. They sell bulk boxes of jars with the kitchen stuff.
 
 ## Supplies:
 
