@@ -1,7 +1,6 @@
 +++
 date = 2022-09-16T05:00:00Z
 description = "Creating a cute souvenir for your memories"
-draft = true
 image = "/uploads/seashell-mason-jars-header.png"
 slug = "diy-seashell-jars"
 tags = ["diy"]
