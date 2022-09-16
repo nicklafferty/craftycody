@@ -7,8 +7,7 @@ tags = ["diy"]
 title = "DIY: Seashell Jars"
 
 +++
-
-{{< youtube id_here_please >}}
+{{< youtube Tcvm26x5630 >}}
 
 I just finished blogging about my [vacation to South Padre](https://craftycody.com/life/south-padre-tx/) and mentioned how beautiful the beach was. Well, it was also FULL of shells!
 
