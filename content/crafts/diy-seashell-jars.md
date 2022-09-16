@@ -8,6 +8,9 @@ tags = ["diy"]
 title = "DIY: Seashell Jars"
 
 +++
+
+{{< youtube id_here_please >}}
+
 I just finished blogging about my [vacation to South Padre](https://craftycody.com/life/south-padre-tx/) and mentioned how beautiful the beach was. Well, it was also FULL of shells!
 
 We went to Miami earlier this summer and the few shells I found were all broken, but on South Padre, there was almost an infinite amount of pristine shells to pick up and take home.
@@ -46,8 +49,8 @@ What I did was fill each of the jars evenly with sand, then placed some of my la
 
 I'll note here that I think I'm going to take the shells out of one of my jars and add them to the other two so that they're more full. I thought I had more shells than I did.
 
-Once I had all my shells in the jars, I closed up the lids. Then, I took the nautical rope and wrapped it around the top twice, got the length of slack I wanted, then cut it so I could tie it into a bow. I'm going to redo this part when I move my shells around and try to tie some kind of nautical knot, but I'll have to research how to do it.
+Once I had all my shells in the jars, I closed up the lids. Then, I took the nautical rope and wrapped it around the top twice, got the length of slack I wanted, then cut it so I could tie it into a bow. I will redo this part when I move my shells around and try to tie some kind of nautical knot, but I'll have to research how to do it.
 
-When all the rope was on, I took one of the little, wooden seashell tags and wrote "South Padre 2022". I did use a practice one. Sharpie was way too thick, so I used a normal pen. Then I glued it onto the rope. I used gel super glue, but hot glue might be better. The tags were an impromptu item I found at Dollar Tree that fit with the theme perfectly. A happy accident.
+When all the rope was on, I took one of the little, wooden seashell tags and wrote "South Padre 2022". I did use a practice one. Sharpie was way too thick, so I used a normal pen. Then I glued it onto the rope. I used gel superglue, but hot glue might be better. The tags were an impromptu item I found at Dollar Tree that fit with the theme perfectly. A happy accident.
 
 And that's it! As I said, it's an easy craft so you can display your shells in a cute way instead of just tossing them into a glass jar.
