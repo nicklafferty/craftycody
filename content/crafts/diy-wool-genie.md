@@ -8,7 +8,7 @@ tags = ["diy"]
 title = "DIY: Wool Genie"
 
 +++
-The other day, someone on r/crochet posted a video of this [amazing, new yarn holder](https://www.woolwarehouse.co.uk/accessories/the-wool-jeanie). It's called the Wool Jeanie and it's amazing. It puts yarn bowls to shame.
+The other day, someone on [r/crochet](https://www.reddit.com/r/crochet) posted a video of this [amazing, new yarn holder](https://www.woolwarehouse.co.uk/accessories/the-wool-jeanie). It's called the Wool Jeanie and it's amazing. It puts yarn bowls to shame.
 
 However, it's out of stock.
 
