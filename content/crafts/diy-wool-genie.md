@@ -23,9 +23,9 @@ All-in-all, this project cost me $16 and one trip to Lowe's. Not too bad. Plus I
 ## Supplies:
 
 1. Dowels
-2. Miter saw
-3. Flush cut saw
-4. Drill
+2. [Miter saw](https://amzn.to/3BWm1ce)
+3. [Flush cut saw](https://amzn.to/3Lu3KGk)
+4. [Drill](https://amzn.to/3RSkCch)
 5. Wood
 6. Hooks
 7. Swivel hook
