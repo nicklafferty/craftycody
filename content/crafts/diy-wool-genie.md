@@ -5,7 +5,7 @@ draft = true
 image = ""
 slug = "diy-wool-jeanie"
 tags = ["diy"]
-title = "DIY: Wool Genie"
+title = "DIY: Wool Jeanie"
 
 +++
 The other day, someone on [r/crochet](https://www.reddit.com/r/crochet) posted a video of this [amazing, new yarn holder](https://www.woolwarehouse.co.uk/accessories/the-wool-jeanie). It's called the Wool Jeanie and it's amazing. It puts yarn bowls to shame.
@@ -21,5 +21,12 @@ I also went back and forth about how to keep the yarn on the stick. I didn't wan
 All-in-all, this project cost me $16 and one trip to Lowe's. Not too bad. Plus I didn't have to pay for shipping.
 
 ## Supplies:
+
+1. Dowels
+2. Saw
+3. Drill
+4. Wood
+5. Hooks
+6. Swivel hook
 
 ## How-to:
