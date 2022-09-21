@@ -33,3 +33,5 @@ All-in-all, this project cost me $16 and one trip to Lowe's. Not too bad. Plus I
 9. [3/8 in x 2 3/16in bolt snap](https://www.lowes.com/pd/National-Hardware-N100-307-V3000-3-8-in-x-2-3-16-in-Bolt-Snap-in-Nickel/1002256752)
 
 ## How-to:
+
+This is a fairly quick project. I was finished in only a few hours.
