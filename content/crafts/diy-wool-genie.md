@@ -36,6 +36,8 @@ All-in-all, this project cost me $16 and one trip to Lowe's. Not too bad. Plus I
 
 This is a fairly quick project. I was finished in only a few hours. I used an oak dowel as my smallest since it's going to be used as a pin and consistently removed. Oak dowels should be stronger than regular poplar dowels.
 
+I used the miter saw to cut all the wood except the 5/16-in dowel. It's thin, so I used my flush cut saw on it.
+
 ### Cut list
 
 **2x4:  
