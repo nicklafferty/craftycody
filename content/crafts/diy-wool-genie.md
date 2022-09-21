@@ -22,7 +22,7 @@ All-in-all, this project cost me $16 and one trip to Lowe's. Not too bad. Plus I
 
 ## Supplies:
 
-1. Dowels - one each of 1in square, 5/8in round, 5/16in round
+1. Dowels - one each of 1-in square, 5/8-in round, and 5/16-in round
 2. [Miter saw](https://amzn.to/3BWm1ce)
 3. [Flush cut saw](https://amzn.to/3Lu3KGk)
 4. [Drill](https://amzn.to/3RSkCch)
@@ -39,21 +39,21 @@ This is a fairly quick project. I was finished in only a few hours. I used an oa
 ### Cut list
 
 **2x4:  
-**14in (x1)  
+**14-in (x1)  
 This will be the base of your yarn winder. I made my base this long for stability, but feel free to choose whatever length you need. I'm also planning on finding some small weights that I can glue onto the base. Will update as soon as I do.
 
 **Square Dowel, 1in  
-**15in (x1)  
+**15-in (x1)  
 This is the vertical length of the yarn winder.
 
 **Round Dowel, 5/8in  
-**7.25in (x1)  
+**7 1/4-in (x1)  
 The horizontal arm that will attach through the top of the square dowel.  
-10 5/8in (x1)  
+10 5/8-in (x1)  
 This is the arm that the yarn will be on. I made it long so it will be suitable for different size skeins.
 
 **Round Dowel, 5/16in  
-**5in (x1)  
+**5-in (x1)  
 This is the pin that will hold the bottom of the skein and keep it from falling off while spinning.
 
 ### Sanding
