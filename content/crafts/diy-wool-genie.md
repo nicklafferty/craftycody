@@ -35,3 +35,17 @@ All-in-all, this project cost me $16 and one trip to Lowe's. Not too bad. Plus I
 ## How-to:
 
 This is a fairly quick project. I was finished in only a few hours.
+
+### Cut list
+
+### Sanding
+
+### Predrill
+
+### Glue
+
+### Drilling
+
+### Screw in hooks
+
+### Put together and test
