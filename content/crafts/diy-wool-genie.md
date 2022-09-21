@@ -26,8 +26,8 @@ All-in-all, this project cost me $16 and one trip to Lowe's. Not too bad. Plus I
 2. [Miter saw](https://amzn.to/3BWm1ce)
 3. [Flush cut saw](https://amzn.to/3Lu3KGk)
 4. [Drill](https://amzn.to/3RSkCch)
-5. Wood
-6. Cup hooks
+5. Wood (scrap 2x4 for base)
+6. Cup hook
 7. [Swivel hook or bolt snap](https://www.lowes.com/pd/National-Hardware-N100-303-V3159-1-2-in-x-3-in-Bolt-Snap-in-Stainless-Steel/1002256940)
 
 ## How-to:
