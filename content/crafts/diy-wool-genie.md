@@ -96,4 +96,12 @@ I held the square dowel and pushed it against the base as I drilled through the 
 
 ### Put it together
 
-### Test
+Flip it back around and make sure there is no wobbling between the square dowel and the base. If it's all good, then it's time to put it together.
+
+The pin comes out of the bottom of the arm so you can slide the dowel through a skein of yarn and then replace the pin. The bolt snap will hang off the arm that's coming out of the square dowel. Attach the bolt snap to the yarn holder's screw eye.
+
+### Complete!
+
+Pull the working end of your yarn and make sure it spins smoothly. I was surprised the bolt snap spun a full 360 degrees so easily. I thought for sure I would get some resistance.
+
+Now it's time for some crochet or knitting projects!
