@@ -27,17 +27,18 @@ All-in-all, this project cost me $16 and one trip to Lowe's. Not too bad. Plus I
 
  1. Dowels - one each of 1-in square, 5/8-in round, and 5/16-in round
  2. Ruler and speed square
- 3. [Miter saw](https://amzn.to/3BWm1ce)
- 4. [Flush cut saw](https://amzn.to/3Lu3KGk)
- 5. [Drill](https://amzn.to/3RSkCch) and various bits
- 6. [5/8in spade bit](https://amzn.to/3UxDxuS)
- 7. Wood (scrap 2x4 for base)
- 8. Wood glue
- 9. 3-in screw (x1)
-10. [3/4in cup hook](https://www.lowes.com/pd/Hillman-Steel-Cup-Hook/3036136)
-11. [1 5/8in screw eye](https://www.lowes.com/pd/National-Hardware-N100-217-TB2014-Screw-Eyes-in-Zinc-Plated/5000052475) (I got a pack of 2)
-12. [3/8 in x 2 3/16in bolt snap](https://www.lowes.com/pd/National-Hardware-N100-307-V3000-3-8-in-x-2-3-16-in-Bolt-Snap-in-Nickel/1002256752)
-13. Safety gear
+ 3. Clamps
+ 4. [Miter saw](https://amzn.to/3BWm1ce)
+ 5. [Flush cut saw](https://amzn.to/3Lu3KGk)
+ 6. [Drill](https://amzn.to/3RSkCch) and various bits
+ 7. [5/8in spade bit](https://amzn.to/3UxDxuS)
+ 8. Wood (scrap 2x4 for base)
+ 9. Wood glue
+10. 3-in screw (x1)
+11. [3/4in cup hook](https://www.lowes.com/pd/Hillman-Steel-Cup-Hook/3036136)
+12. [1 5/8in screw eye](https://www.lowes.com/pd/National-Hardware-N100-217-TB2014-Screw-Eyes-in-Zinc-Plated/5000052475) (I got a pack of 2)
+13. [3/8 in x 2 3/16in bolt snap](https://www.lowes.com/pd/National-Hardware-N100-307-V3000-3-8-in-x-2-3-16-in-Bolt-Snap-in-Nickel/1002256752)
+14. Safety gear
 
 ## How-to:
 
@@ -88,6 +89,8 @@ I screwed in all the hooks by hand and then tightened them with a pair of pliers
 Put a little wood glue on the bottom of the square dowel and try to line up its and the 2x4 base's pilot holes when you glue it down. Make sure it's straight, then let dry for an hour.
 
 ### Drilling
+
+Once the glue is dry, flip the base over and clamp down on your workbench.
 
 ### Attach to base
 
