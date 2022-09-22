@@ -26,15 +26,16 @@ All-in-all, this project cost me $16 and one trip to Lowe's. Not too bad. Plus I
 ## Supplies:
 
  1. Dowels - one each of 1-in square, 5/8-in round, and 5/16-in round
- 2. [Miter saw](https://amzn.to/3BWm1ce)
- 3. [Flush cut saw](https://amzn.to/3Lu3KGk)
- 4. [Drill](https://amzn.to/3RSkCch) and various bits
- 5. [5/8in spade bit](https://amzn.to/3UxDxuS)
- 6. Wood (scrap 2x4 for base)
- 7. 3-in screw (x1)
- 8. [3/4in cup hook](https://www.lowes.com/pd/Hillman-Steel-Cup-Hook/3036136)
- 9. [1 5/8in screw eye](https://www.lowes.com/pd/National-Hardware-N100-217-TB2014-Screw-Eyes-in-Zinc-Plated/5000052475) (I got a pack of 2)
-10. [3/8 in x 2 3/16in bolt snap](https://www.lowes.com/pd/National-Hardware-N100-307-V3000-3-8-in-x-2-3-16-in-Bolt-Snap-in-Nickel/1002256752)
+ 2. Ruler and speed square
+ 3. [Miter saw](https://amzn.to/3BWm1ce)
+ 4. [Flush cut saw](https://amzn.to/3Lu3KGk)
+ 5. [Drill](https://amzn.to/3RSkCch) and various bits
+ 6. [5/8in spade bit](https://amzn.to/3UxDxuS)
+ 7. Wood (scrap 2x4 for base)
+ 8. 3-in screw (x1)
+ 9. [3/4in cup hook](https://www.lowes.com/pd/Hillman-Steel-Cup-Hook/3036136)
+10. [1 5/8in screw eye](https://www.lowes.com/pd/National-Hardware-N100-217-TB2014-Screw-Eyes-in-Zinc-Plated/5000052475) (I got a pack of 2)
+11. [3/8 in x 2 3/16in bolt snap](https://www.lowes.com/pd/National-Hardware-N100-307-V3000-3-8-in-x-2-3-16-in-Bolt-Snap-in-Nickel/1002256752)
 
 ## How-to:
 
@@ -72,7 +73,9 @@ Now it's time to both predrill a pilot hole for the singular screw we'll be usin
 
 On the square dowl, measure about 1 1/2-in down from the top and mark a point in the middle of the wood. Use the 5/8-in spade bit to bore a hole through this point. Then, take the 7 1/4-in round dowel piece and insert it through that hole. I used a rubber mallet to hammer it through the other side. You can glue it if you'd like, but it's really in there and I'm not worried about it.
 
-On the 10 5/8-in round dowel piece, mark a spot about 1-in from the bottom and use a 5/16-in bit to drill a hole through that point. This is where the 5/16-in
+On the 10 5/8-in round dowel piece, mark a spot about 1-in from the bottom and use a 5/16-in bit to drill a hole through that point. This is where the 5/16-in dowel will be used as a pin to hold the bottom of the yarn.
+
+Lastly, place the square dowel where you would like it to sit on the 2x4 base. Mine is a few inches from the edge to help with stability. I traced the base of the square dowel onto the 2x4, then used
 
 ### Screw in hooks
 
