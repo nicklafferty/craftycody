@@ -8,7 +8,6 @@ tags = ["diy"]
 title = "DIY: Wool Jeanie"
 
 +++
-
 {{< youtube id_here_please >}}
 
 The other day, someone on [r/crochet](https://www.reddit.com/r/crochet) posted a video of this [amazing, new yarn holder](https://www.woolwarehouse.co.uk/accessories/the-wool-jeanie). It's called the Wool Jeanie and it's amazing. It puts yarn bowls to shame.
@@ -21,7 +20,7 @@ The twirling motion was the toughest part. I've never made anything with moving 
 
 I also went back and forth about how to keep the yarn on the stick. I didn't want to do anything too complex or too expensive so I settled on a thick dowel with a skinnier one used as a pin on the base. That will hold the bottom of the yarn. You can take out the pin and slide the yarn off without running the top hook through the skein.
 
-All-in-all, this project cost me $16 and one trip to Lowe's. Not too bad. Plus I didn't have to pay for shipping. 
+All-in-all, this project cost me $16 and one trip to Lowe's. Not too bad. Plus I didn't have to pay for shipping.
 
 ## Supplies:
 
@@ -66,6 +65,8 @@ This is the arm that the yarn will be on. I made it long so it will be suitable 
 \**5-in (x1)  
 This is the pin that will hold the bottom of the skein and keep it from falling off while spinning.
 
+![](/uploads/wool-jeanie-wood.jpg)
+
 ### Sanding
 
 After making all of the cuts, be sure to give everything a good sanding since you'll be picking this thing up and moving it around often.
@@ -83,6 +84,8 @@ Lastly, place the square dowel where you would like it to sit on the 2x4 base. M
 ### Screw in hooks
 
 I screwed in all the hooks by hand and then tightened them with a pair of pliers. The cup hook goes on the end of the arm and the screw eye goes on the end of the dowel that will be holding the yarn. Be sure to put it at the opposite end from the pin hole you just made.
+
+![](/uploads/wool-jeanie-supplies.jpg)
 
 ### Glue
 
@@ -107,3 +110,5 @@ Pull the working end of your yarn and make sure it spins smoothly. I was surpris
 This was a really fast project to complete. I think I had about one hour of video footage before editing it down. Between that and waiting for the glue to dry, this only took me a couple of hours.
 
 Now it's time for some crochet or knitting projects!
+
+![](/uploads/finished-wool-jeanie-2.jpg)
