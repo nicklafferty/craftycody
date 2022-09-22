@@ -28,7 +28,7 @@ All-in-all, this project cost me $16 and one trip to Lowe's. Not too bad. Plus I
  4. [Drill](https://amzn.to/3RSkCch)
  5. [5/8in spade bit](https://amzn.to/3UxDxuS)
  6. Wood (scrap 2x4 for base)
- 7. 4-in screw (x1)
+ 7. 3-in screw (x1)
  8. [3/4in cup hook](https://www.lowes.com/pd/Hillman-Steel-Cup-Hook/3036136)
  9. [1 5/8in screw eye](https://www.lowes.com/pd/National-Hardware-N100-217-TB2014-Screw-Eyes-in-Zinc-Plated/5000052475) (I got a pack of 2)
 10. [3/8 in x 2 3/16in bolt snap](https://www.lowes.com/pd/National-Hardware-N100-307-V3000-3-8-in-x-2-3-16-in-Bolt-Snap-in-Nickel/1002256752)
@@ -69,4 +69,6 @@ This is the pin that will hold the bottom of the skein and keep it from falling 
 
 ### Screw in hooks
 
-### Put together and test
+### Attach to base
+
+### Test
