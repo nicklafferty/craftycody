@@ -22,15 +22,16 @@ All-in-all, this project cost me $16 and one trip to Lowe's. Not too bad. Plus I
 
 ## Supplies:
 
-1. Dowels - one each of 1-in square, 5/8-in round, and 5/16-in round
-2. [Miter saw](https://amzn.to/3BWm1ce)
-3. [Flush cut saw](https://amzn.to/3Lu3KGk)
-4. [Drill](https://amzn.to/3RSkCch)
-5. [5/8in spade bit](https://amzn.to/3UxDxuS)
-6. Wood (scrap 2x4 for base)
-7. [3/4in cup hook](https://www.lowes.com/pd/Hillman-Steel-Cup-Hook/3036136)
-8. [1 5/8in screw eye](https://www.lowes.com/pd/National-Hardware-N100-217-TB2014-Screw-Eyes-in-Zinc-Plated/5000052475) (I got a pack of 2)
-9. [3/8 in x 2 3/16in bolt snap](https://www.lowes.com/pd/National-Hardware-N100-307-V3000-3-8-in-x-2-3-16-in-Bolt-Snap-in-Nickel/1002256752)
+ 1. Dowels - one each of 1-in square, 5/8-in round, and 5/16-in round
+ 2. [Miter saw](https://amzn.to/3BWm1ce)
+ 3. [Flush cut saw](https://amzn.to/3Lu3KGk)
+ 4. [Drill](https://amzn.to/3RSkCch)
+ 5. [5/8in spade bit](https://amzn.to/3UxDxuS)
+ 6. Wood (scrap 2x4 for base)
+ 7. 4-in screw (x1)
+ 8. [3/4in cup hook](https://www.lowes.com/pd/Hillman-Steel-Cup-Hook/3036136)
+ 9. [1 5/8in screw eye](https://www.lowes.com/pd/National-Hardware-N100-217-TB2014-Screw-Eyes-in-Zinc-Plated/5000052475) (I got a pack of 2)
+10. [3/8 in x 2 3/16in bolt snap](https://www.lowes.com/pd/National-Hardware-N100-307-V3000-3-8-in-x-2-3-16-in-Bolt-Snap-in-Nickel/1002256752)
 
 ## How-to:
 
@@ -40,22 +41,22 @@ I used the miter saw to cut all the wood except the 5/16-in dowel. It's thin, so
 
 ### Cut list
 
-**2x4:  
-**14-in (x1)  
+\**2x4:  
+\**14-in (x1)  
 This will be the base of your yarn winder. I made my base this long for stability, but feel free to choose whatever length you need. I'm also planning on finding some small weights that I can glue onto the base. Will update as soon as I do.
 
-**Square Dowel, 1in  
-**15-in (x1)  
+\**Square Dowel, 1in  
+\**15-in (x1)  
 This is the vertical length of the yarn winder.
 
-**Round Dowel, 5/8in  
-**7 1/4-in (x1)  
+\**Round Dowel, 5/8in  
+\**7 1/4-in (x1)  
 The horizontal arm that will attach through the top of the square dowel.  
 10 5/8-in (x1)  
 This is the arm that the yarn will be on. I made it long so it will be suitable for different size skeins.
 
-**Round Dowel, 5/16in  
-**5-in (x1)  
+\**Round Dowel, 5/16in  
+\**5-in (x1)  
 This is the pin that will hold the bottom of the skein and keep it from falling off while spinning.
 
 ### Sanding
