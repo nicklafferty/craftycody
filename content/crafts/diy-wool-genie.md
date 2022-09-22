@@ -50,7 +50,7 @@ I used the miter saw to cut all the wood except the 5/16-in dowel. It's thin, so
 
 **2x4:**  
 14-in (x1)  
-This will be the base of your yarn winder. I made my base this long for stability, but feel free to choose whatever length you need. I'm also planning on finding some small weights that I can glue onto the base. Will update as soon as I do.
+_This will be the base of your yarn winder. I made my base this long for stability, but feel free to choose whatever length you need. I'm also planning on finding some small weights that I can glue onto the base. Will update as soon as I do._
 
 **Square Dowel, 1in**  
 \-15-in (x1)  
