@@ -75,7 +75,7 @@ On the square dowl, measure about 1 1/2-in down from the top and mark a point in
 
 On the 10 5/8-in round dowel piece, mark a spot about 1-in from the bottom and use a 5/16-in bit to drill a hole through that point. This is where the 5/16-in dowel will be used as a pin to hold the bottom of the yarn.
 
-Lastly, place the square dowel where you would like it to sit on the 2x4 base. Mine is a few inches from the edge to help with stability. I traced the base of the square dowel onto the 2x4, then used
+Lastly, place the square dowel where you would like it to sit on the 2x4 base. Mine is a few inches from the edge to help with stability. I traced the base of the square dowel onto the 2x4, then used the speed square to mark a point in the middle. Using a 1/8-in bit, I drilled a pilot hole through the whole base at that point then drilled another pilot hole through the bottom of the square dowel. This will help guide the screw in and keep it straight as well as prevent cracks.
 
 ### Screw in hooks
 
