@@ -53,18 +53,18 @@ I used the miter saw to cut all the wood except the 5/16-in dowel. It's thin, so
 This will be the base of your yarn winder. I made my base this long for stability, but feel free to choose whatever length you need. I'm also planning on finding some small weights that I can glue onto the base. Will update as soon as I do.
 
 **Square Dowel, 1in**  
-15-in (x1)  
-This is the vertical length of the yarn winder.
+\-15-in (x1)  
+_This is the vertical length of the yarn winder._
 
 **Round Dowel, 5/8in**  
-7 1/4-in (x1)  
-The horizontal arm that will attach through the top of the square dowel.  
-10 5/8-in (x1)  
-This is the arm that the yarn will be on. I made it long so it will be suitable for different size skeins.
+\-7 1/4-in (x1)  
+_The horizontal arm that will attach through the top of the square dowel._  
+\-10 5/8-in (x1)  
+_This is the arm that the yarn will be on. I made it long so it will be suitable for different size skeins._
 
 **Round Dowel, 5/16-in**  
-5-in (x1)  
-This is the pin that will hold the bottom of the skein and keep it from falling off while spinning.
+\-5-in (x1)  
+_This is the pin that will hold the bottom of the skein and keep it from falling off while spinning._
 
 ![](/uploads/wool-jeanie-wood.jpg)
 
