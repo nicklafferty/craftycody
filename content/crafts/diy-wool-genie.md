@@ -52,17 +52,17 @@ I used the miter saw to cut all the wood except the 5/16-in dowel. It's thin, so
 14-in (x1)  
 _This will be the base of your yarn winder. I made my base this long for stability, but feel free to choose whatever length you need. I'm also planning on finding some small weights that I can glue onto the base. Will update as soon as I do._
 
-**Square Dowel, 1in**  
+**Square Dowel, 1in:**  
 \-15-in (x1)  
 _This is the vertical length of the yarn winder._
 
-**Round Dowel, 5/8in**  
+**Round Dowel, 5/8in:**  
 \-7 1/4-in (x1)  
 _The horizontal arm that will attach through the top of the square dowel._  
 \-10 5/8-in (x1)  
 _This is the arm that the yarn will be on. I made it long so it will be suitable for different size skeins._
 
-**Round Dowel, 5/16-in**  
+**Round Dowel, 5/16-in:**  
 \-5-in (x1)  
 _This is the pin that will hold the bottom of the skein and keep it from falling off while spinning._
 
@@ -96,7 +96,7 @@ Put a little wood glue on the bottom of the square dowel and try to line up its 
 
 Once the glue is dry, flip the base over and clamp it down to your workbench. It's time to drill in that single screw. I always use an impact driver when screwing things in because it never seems to get stuck. I also used a star head screw out of preference.
 
-I held the square dowel and pushed it against the base as I drilled through the bottom. I also let the screw sink into the wood so my wool jeanie would sit flat.
+I held the square dowel and pushed it against the base as I drilled through the bottom. I also let the screw sink into the wood so my Wool Jeanie would sit flat.
 
 ### Put it together
 
