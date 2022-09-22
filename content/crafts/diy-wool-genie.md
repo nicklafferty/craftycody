@@ -1,7 +1,6 @@
 +++
-date = 2022-09-23T05:00:00Z
+date = 2022-09-22T05:00:00Z
 description = "Making my own twirling yarn holder."
-draft = true
 image = "/uploads/wool-jeanie-diy-header.png"
 slug = "diy-wool-jeanie"
 tags = ["diy"]
@@ -21,6 +20,8 @@ The twirling motion was the toughest part. I've never made anything with moving 
 I also went back and forth about how to keep the yarn on the stick. I didn't want to do anything too complex or too expensive so I settled on a thick dowel with a skinnier one used as a pin on the base. That will hold the bottom of the yarn. You can take out the pin and slide the yarn off without running the top hook through the skein.
 
 All-in-all, this project cost me $16 and one trip to Lowe's. Not too bad. Plus I didn't have to pay for shipping.
+
+![](/uploads/finished-wool-jeanie.jpg)
 
 ## Supplies:
 
