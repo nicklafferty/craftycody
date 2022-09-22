@@ -8,6 +8,9 @@ tags = ["diy"]
 title = "DIY: Wool Jeanie"
 
 +++
+
+{{< youtube id_here_please >}}
+
 The other day, someone on [r/crochet](https://www.reddit.com/r/crochet) posted a video of this [amazing, new yarn holder](https://www.woolwarehouse.co.uk/accessories/the-wool-jeanie). It's called the Wool Jeanie and it's amazing. It puts yarn bowls to shame.
 
 However, it's currently out of stock.
@@ -18,14 +21,14 @@ The twirling motion was the toughest part. I've never made anything with moving 
 
 I also went back and forth about how to keep the yarn on the stick. I didn't want to do anything too complex or too expensive so I settled on a thick dowel with a skinnier one used as a pin on the base. That will hold the bottom of the yarn. You can take out the pin and slide the yarn off without running the top hook through the skein.
 
-All-in-all, this project cost me $16 and one trip to Lowe's. Not too bad. Plus I didn't have to pay for shipping.
+All-in-all, this project cost me $16 and one trip to Lowe's. Not too bad. Plus I didn't have to pay for shipping. 
 
 ## Supplies:
 
  1. Dowels - one each of 1-in square, 5/8-in round, and 5/16-in round
  2. [Miter saw](https://amzn.to/3BWm1ce)
  3. [Flush cut saw](https://amzn.to/3Lu3KGk)
- 4. [Drill](https://amzn.to/3RSkCch)
+ 4. [Drill](https://amzn.to/3RSkCch) and various bits
  5. [5/8in spade bit](https://amzn.to/3UxDxuS)
  6. Wood (scrap 2x4 for base)
  7. 3-in screw (x1)
