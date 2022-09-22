@@ -85,7 +85,7 @@ I screwed in all the hooks by hand and then tightened them with a pair of pliers
 
 ### Glue
 
-Put a little wood 
+Put a little wood glue on the bottom of the square dowel and try to line up its and the 2x4 base's pilot holes when you glue it down. Make sure it's straight, then let dry for an hour.
 
 ### Drilling
 
