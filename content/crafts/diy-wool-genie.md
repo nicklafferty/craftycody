@@ -64,6 +64,8 @@ This is the pin that will hold the bottom of the skein and keep it from falling 
 
 ### Sanding
 
+After making all of the cuts, be sure to give everything a good sanding since you'll be picking this thing up and moving it around often.
+
 ### Predrill
 
 ### Glue
