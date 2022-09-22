@@ -32,10 +32,12 @@ All-in-all, this project cost me $16 and one trip to Lowe's. Not too bad. Plus I
  5. [Drill](https://amzn.to/3RSkCch) and various bits
  6. [5/8in spade bit](https://amzn.to/3UxDxuS)
  7. Wood (scrap 2x4 for base)
- 8. 3-in screw (x1)
- 9. [3/4in cup hook](https://www.lowes.com/pd/Hillman-Steel-Cup-Hook/3036136)
-10. [1 5/8in screw eye](https://www.lowes.com/pd/National-Hardware-N100-217-TB2014-Screw-Eyes-in-Zinc-Plated/5000052475) (I got a pack of 2)
-11. [3/8 in x 2 3/16in bolt snap](https://www.lowes.com/pd/National-Hardware-N100-307-V3000-3-8-in-x-2-3-16-in-Bolt-Snap-in-Nickel/1002256752)
+ 8. Wood glue
+ 9. 3-in screw (x1)
+10. [3/4in cup hook](https://www.lowes.com/pd/Hillman-Steel-Cup-Hook/3036136)
+11. [1 5/8in screw eye](https://www.lowes.com/pd/National-Hardware-N100-217-TB2014-Screw-Eyes-in-Zinc-Plated/5000052475) (I got a pack of 2)
+12. [3/8 in x 2 3/16in bolt snap](https://www.lowes.com/pd/National-Hardware-N100-307-V3000-3-8-in-x-2-3-16-in-Bolt-Snap-in-Nickel/1002256752)
+13. Safety gear
 
 ## How-to:
 
@@ -82,6 +84,8 @@ Lastly, place the square dowel where you would like it to sit on the 2x4 base. M
 I screwed in all the hooks by hand and then tightened them with a pair of pliers. The cup hook goes on the end of the arm and the screw eye goes on the end of the dowel that will be holding the yarn. Be sure to put it at the opposite end from the pin hole you just made.
 
 ### Glue
+
+Put a little wood 
 
 ### Drilling
 
