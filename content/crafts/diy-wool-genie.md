@@ -68,6 +68,10 @@ After making all of the cuts, be sure to give everything a good sanding since yo
 
 ### Predrill
 
+Now it's time to both predrill a pilot hole for the singular screw we'll be using and drilling all the holes the dowels will be fitted into.
+
+On the square dowl, measure about 1-in down from the top and mark a point in the middle of the wood. Use the 5/8-in spade bit to bore a hole through this point. Then, take the 7 1/4-in round dowel piece and insert it through that hole. I used a rubber mallet to hammer it through the other side. You can glue it if you'd like, but it's really in there and I'm not worried about it.
+
 ### Glue
 
 ### Drilling
