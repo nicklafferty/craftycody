@@ -79,6 +79,8 @@ Lastly, place the square dowel where you would like it to sit on the 2x4 base. M
 
 ### Screw in hooks
 
+I screwed in all the hooks by hand and then tightened them with a pair of pliers. The cup hook goes on the end of the arm and the screw eye goes on the end of the dowel that will be holding the yarn. Be sure to put it at the opposite end from the pin hole you just made.
+
 ### Glue
 
 ### Drilling
