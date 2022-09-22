@@ -90,8 +90,10 @@ Put a little wood glue on the bottom of the square dowel and try to line up its 
 
 ### Drilling
 
-Once the glue is dry, flip the base over and clamp down on your workbench.
+Once the glue is dry, flip the base over and clamp it down to your workbench. It's time to drill in that single screw. I always use an impact driver when screwing things in because it never seems to get stuck. I also used a star head screw out of preference.
 
-### Attach to base
+I held the square dowel and pushed it against the base as I drilled through the bottom. I also let the screw sink into the wood so my wool jeanie would sit flat.
+
+### Put it together
 
 ### Test
