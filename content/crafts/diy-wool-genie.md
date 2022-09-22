@@ -58,7 +58,7 @@ The horizontal arm that will attach through the top of the square dowel.
 10 5/8-in (x1)  
 This is the arm that the yarn will be on. I made it long so it will be suitable for different size skeins.
 
-\**Round Dowel, 5/16in  
+\**Round Dowel, 5/16-in  
 \**5-in (x1)  
 This is the pin that will hold the bottom of the skein and keep it from falling off while spinning.
 
@@ -70,13 +70,15 @@ After making all of the cuts, be sure to give everything a good sanding since yo
 
 Now it's time to both predrill a pilot hole for the singular screw we'll be using and drilling all the holes the dowels will be fitted into.
 
-On the square dowl, measure about 1-in down from the top and mark a point in the middle of the wood. Use the 5/8-in spade bit to bore a hole through this point. Then, take the 7 1/4-in round dowel piece and insert it through that hole. I used a rubber mallet to hammer it through the other side. You can glue it if you'd like, but it's really in there and I'm not worried about it.
+On the square dowl, measure about 1 1/2-in down from the top and mark a point in the middle of the wood. Use the 5/8-in spade bit to bore a hole through this point. Then, take the 7 1/4-in round dowel piece and insert it through that hole. I used a rubber mallet to hammer it through the other side. You can glue it if you'd like, but it's really in there and I'm not worried about it.
+
+On the 10 5/8-in round dowel piece, mark a spot about 1-in from the bottom and use a 5/16-in bit to drill a hole through that point. This is where the 5/16-in
+
+### Screw in hooks
 
 ### Glue
 
 ### Drilling
-
-### Screw in hooks
 
 ### Attach to base
 
