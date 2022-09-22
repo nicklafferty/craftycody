@@ -108,7 +108,7 @@ The pin comes out of the bottom of the arm so you can slide the dowel through a 
 
 Pull the working end of your yarn and make sure it spins smoothly. I was surprised the bolt snap spun a full 360 degrees so easily. I thought for sure I would get some resistance.
 
-This was a really fast project to complete. I think I had about one hour of video footage before editing it down. Between that and waiting for the glue to dry, this only took me a couple of hours.
+This was a really fast project to complete. I think I had about one hour of video footage before editing it. Between that and waiting for the glue to dry, this only took me a couple of hours.
 
 Now it's time for some crochet or knitting projects!
 
