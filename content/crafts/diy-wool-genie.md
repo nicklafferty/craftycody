@@ -7,7 +7,7 @@ tags = ["diy"]
 title = "DIY: Wool Jeanie"
 
 +++
-{{< youtube id_here_please >}}
+{{< youtube -bc0APtItLc >}}
 
 UPDATE: My [pinewood derby wheel weights](https://amzn.to/3dGrz1d) arrived today and I added them onto my Wool Jeanie. They stick right on and made it a little heftier. Hoping it will help with any kind of tilting I may encounter while crocheting.
 
