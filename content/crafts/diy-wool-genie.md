@@ -9,6 +9,10 @@ title = "DIY: Wool Jeanie"
 +++
 {{< youtube id_here_please >}}
 
+UPDATE: My [pinewood derby wheel weights](https://amzn.to/3dGrz1d) arrived today and I added them onto my Wool Jeanie. They stick right on and made it a little heftier. Hoping it will help with any kind of tilting I may encounter while crocheting.
+
+![](/uploads/wool-jeanie-with-weights.jpg)
+
 The other day, someone on [r/crochet](https://www.reddit.com/r/crochet) posted a video of this [amazing, new yarn holder](https://www.woolwarehouse.co.uk/accessories/the-wool-jeanie). It's called the Wool Jeanie and it's amazing. It puts yarn bowls to shame.
 
 However, it's currently out of stock.
