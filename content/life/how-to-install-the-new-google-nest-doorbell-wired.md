@@ -31,4 +31,8 @@ Start by turning off all of the power at the breaker box. We went ahead and flip
 
 Once the power is off, pop off the chime box cover. Our old Nest chime was hooked up, but the new chime has fewer wires so we had to reattach the white and red wires back onto the chime box. For us, the red goes on the TRANS screw and the white goes on the FRONT screw. It doesn't matter which screw the Nest's chime wires attach to so long as one is on TRANS and the other on FRONT.
 
-Step 2:
+**Step 2:** Now let's move on to the actual doorbell. To remove an old Nest video doorbell you need to insert a skinny "key" into the bottom and it pops off. If you've lost that key as I have, then a thumbtack works great. Push the pin into the tiny hole on the bottom of the doorbell and it should pop out. Then wiggle it loose and disconnect the wires. Set aside.
+
+Step 3:
+
+Step 4:
