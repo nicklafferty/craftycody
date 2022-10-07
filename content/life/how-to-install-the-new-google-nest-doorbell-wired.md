@@ -18,7 +18,7 @@ All-in-all it's a straightforward process and we didn't run into any issues wher
 
 ## Supplies:
 
-1. [Google Nest Video Doorbell (Wired)](https://store.google.com/us/product/nest_doorbell?hl=en-US)
+1. [Google Nest Video Doorbell (Wired)](https://amzn.to/3CDuiSO)
 2. Drill
 3. Screwdriver
 4. Needlenose pliers
