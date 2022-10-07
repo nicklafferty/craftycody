@@ -33,6 +33,10 @@ Once the power is off, pop off the chime box cover. Our old Nest chime was hooke
 
 **Step 2:** Now let's move on to the actual doorbell. To remove an old Nest video doorbell you need to insert a skinny "key" into the bottom and it pops off. If you've lost that key as I have, then a thumbtack works great. Push the pin into the tiny hole on the bottom of the doorbell and it should pop out. Then wiggle it loose and disconnect the wires. Set aside.
 
-Step 3:
+Go ahead and remove the old doorbell mount as well. I kept the screws and used them on the new mount.
+
+**Step 3:** Let's screw in the new mount to the wall. We had to use the included angle mount since we have brick protruding that would interfere with the doorbell's view.
+
+If you need the angle mount too, then the angle mount goes on first and the flat mount goes on top. Thread the wires into the large holes in the middle of both mounts and then screw both mounts into the wall. The flat mount has a tab that should be at the top and facing toward you when mounted.
 
 Step 4:
