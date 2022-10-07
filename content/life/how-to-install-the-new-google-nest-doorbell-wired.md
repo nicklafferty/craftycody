@@ -39,4 +39,6 @@ Go ahead and remove the old doorbell mount as well. I kept the screws and used t
 
 If you need the angle mount too, then the angle mount goes on first and the flat mount goes on top. Thread the wires into the large holes in the middle of both mounts and then screw both mounts into the wall. The flat mount has a tab that should be at the top and facing toward you when mounted.
 
-Step 4:
+**Step 4:** Now we're going to attach the wires to the doorbell. It doesn't matter which color goes on which side. You can use the included wire extenders, but they aren't necessary. We went ahead and used them.
+
+**Step 5:** Once the wires are attached, smoosh them back
