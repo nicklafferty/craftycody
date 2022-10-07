@@ -46,3 +46,5 @@ If you need the angle mount too, then the angle mount goes on **first** and the 
 The doorbell clips into the mount and then you pull it down to secure it. So it's up and in, then down.
 
 **Step 6:** Tighten the security screw at the top of the mount with the included hex key. This is how you will detach the doorbell when it's time to replace or move. No more thumbtacks!
+
+**Step 7:** Turn all the power back on and your doorbell should have a blue light. You should be able to complete your setup.
