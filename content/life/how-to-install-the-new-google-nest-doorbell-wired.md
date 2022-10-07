@@ -25,6 +25,8 @@ All-in-all it's a straightforward process and we didn't run into any issues wher
 
 ## How-to:
 
-Step 1: The instructions say that we're going to start by disconnecting our old chime and replacing it with the included one. I wish we could just use the chime we had since it was all hooked up, but I guess they won't talk to each other.
+**Step 1:** The instructions say that we're going to start by disconnecting our old chime and replacing it with the included one. I wish we could just use the chime we had since it was all hooked up, but I guess they won't talk to each other.
 
 Start by turning off all of the power at the breaker box. We went ahead and flipped just about every switch just to be sure because Lord knows which circuit the chime is connected to. Is it the hallway lights or the hallway bathroom? Both, off as well as the actual doorbell's circuit.
+
+Once the power is off, pop off the chime box cover. Our old Nest chime was hooked up, but the new chime has fewer wires.
