@@ -24,3 +24,5 @@ All-in-all it's a straightforward process and we didn't run into any issues wher
 4. Needlenose pliers
 
 ## How-to:
+
+Step 1: The instructions say that we're going to start by disconnecting our old chime and replacing it with the included one. I wish we could just use the chime we had since it was all hooked up, but I guess they won't talk to each other.
