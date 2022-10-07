@@ -1,7 +1,6 @@
 +++
-date = ""
+date = 2022-10-07T05:00:00Z
 description = "We're replacing our old Nest doorbell with Google's new, wired model."
-draft = true
 image = ""
 slug = "install-google-nest-doorbell-wired"
 tags = ["diy"]
