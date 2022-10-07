@@ -4,7 +4,7 @@ description = "We're replacing our old Nest doorbell with Google's new, wired mo
 draft = true
 image = ""
 slug = "install-google-nest-doorbell-wired"
-tags = []
+tags = ["diy"]
 title = "How to Install the new Google Nest Doorbell (Wired)"
 
 +++
