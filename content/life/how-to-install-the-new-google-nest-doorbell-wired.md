@@ -29,4 +29,4 @@ All-in-all it's a straightforward process and we didn't run into any issues wher
 
 Start by turning off all of the power at the breaker box. We went ahead and flipped just about every switch just to be sure because Lord knows which circuit the chime is connected to. Is it the hallway lights or the hallway bathroom? Both, off as well as the actual doorbell's circuit.
 
-Once the power is off, pop off the chime box cover. Our old Nest chime was hooked up, but the new chime has fewer wires.
+Once the power is off, pop off the chime box cover. Our old Nest chime was hooked up, but the new chime has fewer wires so we had to reattach the white and red wires back onto the chime box. For us, the red goes on the TRANS screw and the white goes on the FRONT screw. It doesn't matter where the Nest chime
