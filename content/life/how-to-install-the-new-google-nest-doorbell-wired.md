@@ -30,7 +30,9 @@ Start by turning off all of the power at the breaker box. We went ahead and flip
 
 Once the power is off, pop off the chime box cover. Our old Nest chime was hooked up, but the new chime has fewer wires so we had to reattach the white and red wires back onto the chime box.
 
-![](/uploads/inside-chime.jpg) 
+![](/uploads/inside-chime.jpg)
+
+(Above is a photo of the old Nest chime hookup.) 
 
 For us, the red goes around the TRANS screw and the white goes around the FRONT screw. It doesn't matter which screw the Nest's chime wires attach to so long as one is on TRANS and the other on FRONT.
 
