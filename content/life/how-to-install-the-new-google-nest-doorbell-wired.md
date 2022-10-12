@@ -28,7 +28,11 @@ All-in-all it's a straightforward process and we didn't run into any issues wher
 
 Start by turning off all of the power at the breaker box. We went ahead and flipped just about every switch just to be sure because Lord knows which circuit the chime is connected to. Is it the hallway lights or the hallway bathroom? Both, off as well as the actual doorbell's circuit.
 
-Once the power is off, pop off the chime box cover. Our old Nest chime was hooked up, but the new chime has fewer wires so we had to reattach the white and red wires back onto the chime box. For us, the red goes around the TRANS screw and the white goes around the FRONT screw. It doesn't matter which screw the Nest's chime wires attach to so long as one is on TRANS and the other on FRONT.
+Once the power is off, pop off the chime box cover. Our old Nest chime was hooked up, but the new chime has fewer wires so we had to reattach the white and red wires back onto the chime box.
+
+![](/uploads/inside-chime.jpg) 
+
+For us, the red goes around the TRANS screw and the white goes around the FRONT screw. It doesn't matter which screw the Nest's chime wires attach to so long as one is on TRANS and the other on FRONT.
 
 **Step 2:** Now let's move on to the actual doorbell. To remove an old Nest video doorbell you need to insert a skinny "key" into the bottom and it pops off. If you've lost that key as I have, then a thumbtack works great. Push the pin into the tiny hole on the bottom of the doorbell and it should pop out. Then wiggle it loose and disconnect the wires. Set aside.
 
@@ -47,3 +51,5 @@ The doorbell clips into the mount and then you pull it down to secure it. So it'
 **Step 6:** Tighten the security screw at the top of the mount with the included hex key. This is how you will detach the doorbell when it's time to replace or move. No more thumbtacks!
 
 **Step 7:** Turn all the power back on and your doorbell should have a blue light. You should be able to complete your setup.
+
+![](/uploads/finished-doorbell.jpg)
