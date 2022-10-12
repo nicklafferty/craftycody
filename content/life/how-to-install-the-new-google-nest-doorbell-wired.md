@@ -1,7 +1,7 @@
 +++
 date = 2022-10-07T05:00:00Z
 description = "We're replacing our old Nest doorbell with Google's new, wired model."
-image = ""
+image = "/uploads/install-google-nest-video-doorbell.png"
 slug = "install-google-nest-doorbell-wired"
 tags = ["diy"]
 title = "How to Install the new Google Nest Doorbell (Wired)"
