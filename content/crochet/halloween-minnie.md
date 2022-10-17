@@ -16,7 +16,7 @@ She's a variation of my [Holiday Minnie](https://www.etsy.com/listing/1201547973
 
 ## Design
 
-Minnie is inspired by the 2020 Disney Halloween series.
+Minnie is inspired by the 2020 Disney Halloween series. I am obsessed with the vintage feel from her off-white fur to her pie eyes. It's the same vibe and reason I did the Holiday Minnie last year. Her details are simple to work up, but they add so much and complete her look. My favorite is the Disney villain buttons I found at Walmart!
 
 ## Supplies
 
