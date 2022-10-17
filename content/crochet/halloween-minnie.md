@@ -8,9 +8,15 @@ tags = ["Crochet", "Pattern"]
 title = "Halloween Minnie"
 
 +++
+[The Halloween Minnie crochet pattern is now available in my Etsy shop!](https://www.etsy.com/listing/1325350105/halloween-minnie-mouse-crochet-pattern)
+
 Spooky Minnie is done just in time for Halloween! 2022, at least. She's been in the making for over a year and I just completed her. Really what took me so long was sewing her together- that's my least favorite part of amigurumi and stuffed animals.
 
 She's a variation of my [Holiday Minnie](https://www.etsy.com/listing/1201547973/holiday-minnie-mouse-crochet-pattern) design but comes with several unique wardrobe changes and colorways.
+
+## Design
+
+Minnie is inspired by the 2020 Disney Halloween series.
 
 ## Supplies
 
@@ -24,4 +30,12 @@ You can use any weight 4 yarn you'd like. The basic colors are black, off-white,
 
 ### Hook
 
+* I-9 5.5mm hook
+
 ### Misc.
+
+1. Yarn needle
+2. Black felt
+3. Polyfill stuffing
+4. Stitch markers
+5. Halloween buttons (optional)
