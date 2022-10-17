@@ -16,6 +16,12 @@ She's a variation of my [Holiday Minnie](https://www.etsy.com/listing/1201547973
 
 ### Yarn
 
+1. Red Heat Super Saver in Black, Aran, and Pale Plum
+2. I Love this Yarn! in Desert Glaze
+3. Big Twist in Butter
+
+You can use any weight 4 yarn you'd like. The basic colors are black, off-white, lavender, orange, and yellow. You won't use an entire skein of any of these yarns.
+
 ### Hook
 
 ### Misc.
