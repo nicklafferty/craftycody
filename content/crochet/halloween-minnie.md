@@ -1,8 +1,7 @@
 +++
-date = ""
-description = ""
-draft = true
-image = ""
+date = 2022-10-17T05:00:00Z
+description = "A new, spooky pattern is available in my shop!"
+image = "/uploads/halloween-minnie-crochet-pattern.png"
 slug = "halloween-minnie-crochet-pattern"
 tags = ["Crochet", "Pattern"]
 title = "Halloween Minnie"
