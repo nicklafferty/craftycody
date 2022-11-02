@@ -92,6 +92,8 @@ More tacos! This is where we had lunch while in Cozumel. A tiny, hole-in-the-wal
 
 ### La Cocina (hotel)
 
+We had their breakfast buffet one morning and it was very good albeit pricey- about $35 per person. There are a lot of options and be sure to save room for all the baked goods.
+
 ### Sushi N Raw Bar (hotel)
 
 We ate here several times and mainly stuck to the poke bowls which were very tasty.
