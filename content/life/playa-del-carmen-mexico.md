@@ -82,7 +82,7 @@ This is the place my husband was deadset on trying and what spurred our ATM adve
 
 **Address:** Casita Publica Casita, Rafael E Melgar S/N entre BLVD Aeropuerto y Playa Publica, Zona Hotelera Nte., 77600 San Miguel de Cozumel, Q.R., Mexico - [Google Maps](https://g.page/hemingwayloungecozumel?share)
 
-Another great brunch-type place, but this time in Cozumel. It's about a 10-minute walk from the ferry. They have great ocean views, tasty food, and kind staff. Our waiter was very sweet and called a cab for us since we were a bit off the beaten path and taxis didn't frequent the area.
+Another great brunch-type place, but this time in Cozumel. It's about a 10-minute walk from the ferry. They have great ocean views, tasty food, and kind staff. Our waiter was very sweet and called a cab for us since we were a bit off the beaten path and taxis didn't frequent the area. He also said my _extremely_ limited Spanish was very good, haha.
 
 ### El Mero Mero (Cozumel)
 
