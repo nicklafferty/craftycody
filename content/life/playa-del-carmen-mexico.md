@@ -104,6 +104,8 @@ Nothing better than convenient coffee! Nick would run down here each morning to 
 
 ### Pool Area (hotel)
 
+The best thing about resort-style hotels is you can order food by the pool and then eat by said pool. It's the ultimate luxury. We ordered orange juice, shrimp quesadillas, and the Caprese panini probably every day we were there. The prices are a touch more than what you want to pay, but not bad.
+
 ## Things to do
 
 ### Cozumel day trip
