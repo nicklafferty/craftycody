@@ -54,13 +54,13 @@ I will say, and I'm not trying to be snobby, that the hotel was less than helpfu
 
 ### El Fogón (Playa)
 
-Address: Av. Constituyentes, Quintas del Carmen, Gonzalo Guerrero, 77720 Playa del Carmen, Q.R., Mexico (Right across the street from MEGA Soriana)
+Address: Av. Constituyentes, Quintas del Carmen, Gonzalo Guerrero, 77720 Playa del Carmen, Q.R., Mexico (Right across the street from MEGA Soriana) - [Google Maps](https://goo.gl/maps/LaoyrvUbxaERh6Li6)
 
 ### HEMINGWAY Lounge & Nightclub (Cozumel)
 
 ### El Mero Mero (Cozumel)
 
-Address: 10 avenida entre Adolfo rosado salas y 3 sur, Centro, 77600 San Miguel de Cozumel, Q.R., Mexico
+Address: 10 avenida entre Adolfo rosado salas y 3 sur, Centro, 77600 San Miguel de Cozumel, Q.R., Mexico - [Google Maps](https://goo.gl/maps/ca9hBv58wsCJ6p9J9)
 
 ### La Cocina (hotel)
 
