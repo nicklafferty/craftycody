@@ -46,14 +46,14 @@ I will say, and I'm not trying to be snobby, that the hotel was less than helpfu
 
 ## Things to do
 
-Cozumel day trip
+### Cozumel day trip
 
-Snorkeling
+### Snorkeling
 
-ATM adventure
+### ATM adventure
 
-Shopping
+### Shopping
 
-MEGA Soriana
+### MEGA Soriana
 
-COVID-19 testing
+### COVID-19 testing
