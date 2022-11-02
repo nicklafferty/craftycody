@@ -54,7 +54,7 @@ I think the thing that irritated me the most was the water situation. You have t
 
 Gorgeous, but not very wide or long where we happened to be staying. The hotels pretty much butt right up against the water. The water wasn't as clear as in South Padre, which was surprising, but the beach was well-maintained and it was still super relaxing.
 
-We would go on evening walks on the beach and felt safe. Other hotels put on outdoor events that we stumbled onto so that was fun as well. One was a group of fire dancers!
+We would go on evening walks on the beach. Other hotels put on outdoor events that we stumbled onto so that was fun as well. One was a group of fire dancers!
 
 ## Restaurants
 
