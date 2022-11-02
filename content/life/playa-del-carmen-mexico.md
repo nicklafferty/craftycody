@@ -128,7 +128,7 @@ Alright. We had one not-fun day while in Mexico and it was when we spent a full 
 
 **Address:** 30 Avenida Nte. 101, Gonzalo Guerrero, 77710 Playa del Carmen, Q.R., Mexico - [Google Maps](https://goo.gl/maps/DYq1cYAxVcfvLyEe8)
 
-MEGA is a grocery store blended with Walmart. They're huge and have everything you might have forgotten at home. We picked up some aloe, reef-safe sunscreen (this is important to get), and baked goods for breakfast. TMI, I needed some feminine products and I got brand-name stuff for literally $1. Literally. It's almost worth it to stock up on supplies before going home.
+MEGA is a grocery store blended with Walmart. They're huge and have everything you might have forgotten at home. We picked up some aloe, reef-safe sunscreen (this is important to get), and baked goods for breakfast. TMI, I needed some feminine products and I got brand-name stuff for literally $1. Literally. It's almost worth it to stock up on supplies before going home. It's also a straight shot from the tourist area to get here which is awesome. You'll learn your way around town quickly.
 
 ### COVID-19 testing
 
