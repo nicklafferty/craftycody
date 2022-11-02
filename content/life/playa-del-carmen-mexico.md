@@ -24,9 +24,9 @@ I wanted to write up this blog post to help anyone planning a trip to Playa del 
 
 We decided on Mexico since it had been so long since we traveled internationally (or traveled at all, thank you covid). It's also an easy flight from Austin- about 2 hours and you're in a different country with completely different scenery.
 
-Playa seemed like it had a lot to do and had lovely beaches. Be careful what time of year you go though because I hear there is a stinky seaweed season that's good to avoid.
+Playa seemed like it had a lot to do and had lovely beaches. Be careful what time of year you go though because I hear there is a stinky seaweed season that's smart to avoid.
 
-There are lots of activities, restaurants, and shopping to be had in Playa. It's a high-trafficked tourist destination so you're going to get hassled a lot while out and about. Just say no and keep walking- we didn't run into any real issues.
+There are lots of activities, restaurants, and shopping to be had in Playa. It's a high-trafficked tourist destination so you're going to get hassled a lot while out and about. Just say no and keep walking- we didn't run into any issues.
 
 Another great thing about Playa is that it's a 40-minute ferry ride to Cozumel, which also has lots of activities, restaurants, and shopping.
 
