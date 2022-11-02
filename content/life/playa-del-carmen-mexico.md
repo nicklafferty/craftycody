@@ -88,6 +88,8 @@ Another great brunch-type place, but this time in Cozumel. It's about a 10-minut
 
 **Address:** 10 avenida entre Adolfo rosado salas y 3 sur, Centro, 77600 San Miguel de Cozumel, Q.R., Mexico - [Google Maps](https://goo.gl/maps/ca9hBv58wsCJ6p9J9)
 
+More tacos! This is where we had lunch while in Cozumel. A tiny, hole-in-the-wall type place that serves simple and delicious food. We happened to be there when a group of fishermen were leaving and they offered us one of their (cooked) snappers! A serendipitous and delicious moment.
+
 ### La Cocina (hotel)
 
 ### Sushi N Raw Bar (hotel)
