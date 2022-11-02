@@ -122,7 +122,7 @@ Download [WhatsApp](https://www.whatsapp.com/) before you go. Lots of places use
 
 ### ATM adventure
 
-Alright. We had one not-fun day while in Mexico and it was when we spent a full afternoon hunting for an ATM to get some pesos. Like I said earlier, our hotel was less than helpful and every ATM on the main, tourist street only gave dollars.
+Alright. We had one not-fun day while in Mexico and it was when we spent a full afternoon hunting for an ATM to get some pesos. As I said earlier, our hotel was less than helpful and every ATM on the main, tourist street only gave dollars. There are also currency exchange businesses everywhere, but you have to give them your passport which we were less than thrilled about.
 
 ### MEGA Soriana
 
