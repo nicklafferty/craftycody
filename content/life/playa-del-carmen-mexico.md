@@ -18,6 +18,8 @@ That plus the sun and heat don't make beaches my first choice.
 
 However, Nick is typically very good at planning vacations so I'm happy to go wherever. As long as we're not working and just enjoying our time together, I don't really care where we go.
 
+I wanted to write up this blog post to help anyone planning a trip to Playa del Carmen or Cozumel.
+
 ## Playa del Carmen
 
 We decided on Mexico since it had been so long since we traveled internationally (or traveled at all, thank you covid). It's also an easy flight from Austin- about 2 hours and you're in a different country with completely different scenery.
