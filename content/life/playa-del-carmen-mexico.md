@@ -48,13 +48,21 @@ I will say, and I'm not trying to be snobby, that the hotel was less than helpfu
 
 ## Restaurants
 
-La Cocina (hotel)
+### Bistro Playa (Playa)
 
-Sushi N Raw Bar (hotel)
+### Rockas Jamaican Kitchen (Playa)
 
-Coffee Shop (hotel)
+### HEMINGWAY Lounge & Nightclub (Cozumel)
 
-Pool Area (hotel)
+### El Mero Mero (Cozumel)
+
+### La Cocina (hotel)
+
+### Sushi N Raw Bar (hotel)
+
+### Coffee Shop (hotel)
+
+### Pool Area (hotel)
 
 ## Things to do
 
