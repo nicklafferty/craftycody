@@ -124,6 +124,8 @@ Download [WhatsApp](https://www.whatsapp.com/) before you go. Lots of places use
 
 Alright. We had one not-fun day while in Mexico and it was when we spent a full afternoon, in the heat, hunting for an ATM to get some pesos. As I said earlier, our hotel was less than helpful and every ATM on the main, tourist street only gave dollars. There are also currency exchange businesses everywhere, but you have to give them your passport which we were less than thrilled about. You also might not get a good exchange rate which is why everyone wants you to spend dollars- things are priced higher in dollars so you spend a little more and businesses get a little more profit.
 
+Whatever, I get it, but it's better to pay in pesos. So where do you get them? MEGA's typically have ATMs in them that will give pesos (which we used), but right outside our MEGA was [Santander](https://goo.gl/maps/iW9hseJPpEjeD1aL7), which I guess is a bank. This one is a building in the parking lot of MEGA and just had a row of ATMs. We also used them to get pesos.
+
 ### MEGA Soriana
 
 **Address:** 30 Avenida Nte. 101, Gonzalo Guerrero, 77710 Playa del Carmen, Q.R., Mexico - [Google Maps](https://goo.gl/maps/DYq1cYAxVcfvLyEe8)
