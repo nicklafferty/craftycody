@@ -20,7 +20,7 @@ However, Nick is typically very good at planning vacations so I'm happy to go wh
 
 ## Playa del Carmen
 
-We decided on Mexico since it had been so long since we traveled internationally (thank you covid). It's also an easy flight from Austin- about 2 hours and you're in a completely different country.
+We decided on Mexico since it had been so long since we traveled internationally (or traveled at all, thank you covid). It's also an easy flight from Austin- about 2 hours and you're in a different country with completely different scenery.
 
 ## Beach
 
