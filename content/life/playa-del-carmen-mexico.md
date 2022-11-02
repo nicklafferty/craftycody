@@ -76,7 +76,7 @@ Rockas is right next door to Bistro Playa and it is an absolute gem. Hands down 
 
 **Address:** Av. Constituyentes, Quintas del Carmen, Gonzalo Guerrero, 77720 Playa del Carmen, Q.R., Mexico (Right across the street from MEGA Soriana) - [Google Maps](https://goo.gl/maps/LaoyrvUbxaERh6Li6)
 
-This is the place my husband was deadset on trying and what spurred our ATM adventure that I'll get into later.
+This is the place my husband was deadset on trying and what spurred our ATM adventure that I'll get into later. Super cheap and super good tacos. I loved the chorizo and Nick's favorite was the al pastor tacos.
 
 ### HEMINGWAY Lounge & Nightclub (Cozumel)
 
