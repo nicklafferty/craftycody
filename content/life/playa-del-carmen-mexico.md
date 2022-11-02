@@ -16,6 +16,8 @@ _"I don't like sand. It's coarse and rough and irritating and it gets everywhere
 
 That plus the sun and heat don't make beaches my first choice.
 
+However, Nick is typically very good at planning vacations so I'm happy to go wherever. As long as we're not working and just enjoying our time together, I don't really care where we go.
+
 ## Beach
 
 ## Restaurants
