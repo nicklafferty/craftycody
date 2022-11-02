@@ -51,3 +51,5 @@ Snorkeling
 ATM adventure
 
 Shopping
+
+MEGA Soriana
