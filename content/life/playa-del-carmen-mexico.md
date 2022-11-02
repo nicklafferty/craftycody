@@ -55,3 +55,5 @@ ATM adventure
 Shopping
 
 MEGA Soriana
+
+COVID-19 testing
