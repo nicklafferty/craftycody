@@ -62,6 +62,8 @@ Address: Av. Constituyentes, Quintas del Carmen, Gonzalo Guerrero, 77720 Playa d
 
 ### HEMINGWAY Lounge & Nightclub (Cozumel)
 
+Address: Casita Publica Casita, Rafael E Melgar S/N entre BLVD Aeropuerto y Playa Publica, Zona Hotelera Nte., 77600 San Miguel de Cozumel, Q.R., Mexico - [Google Maps](https://g.page/hemingwayloungecozumel?share)
+
 ### El Mero Mero (Cozumel)
 
 Address: 10 avenida entre Adolfo rosado salas y 3 sur, Centro, 77600 San Miguel de Cozumel, Q.R., Mexico - [Google Maps](https://goo.gl/maps/ca9hBv58wsCJ6p9J9)
