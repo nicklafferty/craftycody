@@ -70,6 +70,8 @@ Bistro Playa was about a two-minute walk once we got outside of our hotel. It wa
 
 **Address:** 1a Avenida, MZA 77, Lote 2 Centro 77710 Playa del Carmen Q.R MX, entre Calle 26 y 28, Mexico - [Google Maps](https://g.page/RockasJAM?share)
 
+Rockas is right next door to Bistro Playa and it is an absolute gem. Hands down some of the best chicken I've had in my life. We also got coconut shrimp, coconut rice, and fried plantains. Get the jerk chicken and whatever sides you'd like- you won't be disappointed.
+
 ### El Fogón (Playa)
 
 **Address:** Av. Constituyentes, Quintas del Carmen, Gonzalo Guerrero, 77720 Playa del Carmen, Q.R., Mexico (Right across the street from MEGA Soriana) - [Google Maps](https://goo.gl/maps/LaoyrvUbxaERh6Li6)
