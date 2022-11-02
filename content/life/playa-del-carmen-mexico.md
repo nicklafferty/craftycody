@@ -50,7 +50,11 @@ I will say, and I'm not trying to be snobby, that the hotel was less than helpfu
 
 ### Bistro Playa (Playa)
 
+Address: 1a Avenida, MZA 77, Local 2, Centro entre Calle 26 y 28, 77710 Playa del Carmen, Q.R., Mexico - [Google Maps](https://g.page/BistroPlaya?share)
+
 ### Rockas Jamaican Kitchen (Playa)
+
+Address: 1a Avenida, MZA 77, Lote 2 Centro 77710 Playa del Carmen Q.R MX, entre Calle 26 y 28, Mexico - [Google Maps](https://g.page/RockasJAM?share)
 
 ### El Fogón (Playa)
 
