@@ -30,6 +30,8 @@ Another great thing about Playa is that it's a 40-minute ferry ride to Cozumel, 
 
 Both places are beautiful and look like postcards so to speak. I would take the time to download Duolingo and brush up on some Spanish. It will help a ton. Also, it's hot and humid all of the time so pack accordingly.
 
+And only drink **bottled water** or soda.
+
 ## Hotel
 
 ## Beach
