@@ -122,6 +122,8 @@ Download [WhatsApp](https://www.whatsapp.com/) before you go. Lots of places use
 
 ### ATM adventure
 
+Alright. We had one not-fun day while in Mexico and it was when we spent a full afternoon hunting for an ATM to get some pesos. Like I said earlier, our hotel was less than helpful and every ATM on the main, tourist street only gave dollars.
+
 ### MEGA Soriana
 
 **Address:** 30 Avenida Nte. 101, Gonzalo Guerrero, 77710 Playa del Carmen, Q.R., Mexico - [Google Maps](https://goo.gl/maps/DYq1cYAxVcfvLyEe8)
