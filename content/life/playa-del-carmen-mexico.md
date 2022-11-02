@@ -98,6 +98,8 @@ We ate here several times and mainly stuck to the poke bowls which were very tas
 
 ### Coffee Shop (hotel)
 
+Nothing better than convenient coffee! Nick would run down here each morning to grab us a couple of drinks. They were always out of vanilla for some reason though.
+
 ### Pool Area (hotel)
 
 ## Things to do
