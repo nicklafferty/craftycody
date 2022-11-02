@@ -115,3 +115,5 @@ More tacos! This is where we had lunch while in Cozumel. A tiny, hole-in-the-wal
 ### COVID-19 testing
 
 ### Taxis
+
+Taxis are everywhere and easy to recognize. This will be the main way you'll travel if you have to drive anywhere. Pay in pesos and ask the driver how much the fare will be before getting in.
