@@ -34,6 +34,8 @@ And only drink **bottled water** or soda.
 
 ## Hotel
 
+We stayed at the [Grand Hyatt Resort](https://www.hyatt.com/en-US/hotel/mexico/grand-hyatt-playa-del-carmen-resort/cunpc) in Playa. Keep in mind we travel almost exclusively with credit card points (hotels and flights). We'd go broke staying at all of the places we do with cash. 😅
+
 ## Beach
 
 ## Restaurants
