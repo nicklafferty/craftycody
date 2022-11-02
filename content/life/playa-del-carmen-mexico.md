@@ -50,6 +50,8 @@ I will say, and I'm not trying to be snobby, that the hotel was less than helpfu
 
 ## Restaurants
 
+There is a _ton_ of good food in Mexico and it isn't hard to find authentic places for super cheap prices. Be sure to get pesos and then head out.
+
 ### Bistro Playa (Playa)
 
 **Address:** 1a Avenida, MZA 77, Local 2, Centro entre Calle 26 y 28, 77710 Playa del Carmen, Q.R., Mexico - [Google Maps](https://g.page/BistroPlaya?share)
