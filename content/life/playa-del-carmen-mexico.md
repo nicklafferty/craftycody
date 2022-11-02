@@ -52,6 +52,8 @@ I will say, and I'm not trying to be snobby, that the hotel was less than helpfu
 
 ### Rockas Jamaican Kitchen (Playa)
 
+### El Fogón (Playa)
+
 ### HEMINGWAY Lounge & Nightclub (Cozumel)
 
 ### El Mero Mero (Cozumel)
