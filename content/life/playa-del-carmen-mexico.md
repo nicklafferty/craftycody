@@ -50,7 +50,7 @@ I will say, and I'm not trying to be snobby, that the hotel was less than helpfu
 
 ## Restaurants
 
-There is a _ton_ of good food in Mexico and it isn't hard to find authentic places for super cheap prices. Be sure to get pesos and then head out.
+There is a _ton_ of good food in Mexico and it isn't hard to find authentic places for super cheap prices. Be sure to get pesos (lots of places take dollars too and most, not all, take cards) and then head out.
 
 ### Bistro Playa (Playa)
 
