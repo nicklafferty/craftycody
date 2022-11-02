@@ -108,6 +108,10 @@ More tacos! This is where we had lunch while in Cozumel. A tiny, hole-in-the-wal
 
 ## Tips
 
+### WhatsApp
+
+Download [WhatsApp](https://www.whatsapp.com/) before you go. Lots of places use it for communication and you won't be charged by your provider for messaging outside of your network.
+
 ### ATM adventure
 
 ### MEGA Soriana
