@@ -50,23 +50,23 @@ I will say, and I'm not trying to be snobby, that the hotel was less than helpfu
 
 ### Bistro Playa (Playa)
 
-Address: 1a Avenida, MZA 77, Local 2, Centro entre Calle 26 y 28, 77710 Playa del Carmen, Q.R., Mexico - [Google Maps](https://g.page/BistroPlaya?share)
+**Address:** 1a Avenida, MZA 77, Local 2, Centro entre Calle 26 y 28, 77710 Playa del Carmen, Q.R., Mexico - [Google Maps](https://g.page/BistroPlaya?share)
 
 ### Rockas Jamaican Kitchen (Playa)
 
-Address: 1a Avenida, MZA 77, Lote 2 Centro 77710 Playa del Carmen Q.R MX, entre Calle 26 y 28, Mexico - [Google Maps](https://g.page/RockasJAM?share)
+**Address:** 1a Avenida, MZA 77, Lote 2 Centro 77710 Playa del Carmen Q.R MX, entre Calle 26 y 28, Mexico - [Google Maps](https://g.page/RockasJAM?share)
 
 ### El Fogón (Playa)
 
-Address: Av. Constituyentes, Quintas del Carmen, Gonzalo Guerrero, 77720 Playa del Carmen, Q.R., Mexico (Right across the street from MEGA Soriana) - [Google Maps](https://goo.gl/maps/LaoyrvUbxaERh6Li6)
+**Address:** Av. Constituyentes, Quintas del Carmen, Gonzalo Guerrero, 77720 Playa del Carmen, Q.R., Mexico (Right across the street from MEGA Soriana) - [Google Maps](https://goo.gl/maps/LaoyrvUbxaERh6Li6)
 
 ### HEMINGWAY Lounge & Nightclub (Cozumel)
 
-Address: Casita Publica Casita, Rafael E Melgar S/N entre BLVD Aeropuerto y Playa Publica, Zona Hotelera Nte., 77600 San Miguel de Cozumel, Q.R., Mexico - [Google Maps](https://g.page/hemingwayloungecozumel?share)
+**Address:** Casita Publica Casita, Rafael E Melgar S/N entre BLVD Aeropuerto y Playa Publica, Zona Hotelera Nte., 77600 San Miguel de Cozumel, Q.R., Mexico - [Google Maps](https://g.page/hemingwayloungecozumel?share)
 
 ### El Mero Mero (Cozumel)
 
-Address: 10 avenida entre Adolfo rosado salas y 3 sur, Centro, 77600 San Miguel de Cozumel, Q.R., Mexico - [Google Maps](https://goo.gl/maps/ca9hBv58wsCJ6p9J9)
+**Address:** 10 avenida entre Adolfo rosado salas y 3 sur, Centro, 77600 San Miguel de Cozumel, Q.R., Mexico - [Google Maps](https://goo.gl/maps/ca9hBv58wsCJ6p9J9)
 
 ### La Cocina (hotel)
 
@@ -82,9 +82,9 @@ Address: 10 avenida entre Adolfo rosado salas y 3 sur, Centro, 77600 San Miguel 
 
 ### Snorkeling
 
-### ATM adventure
-
 ### Shopping
+
+### ATM adventure
 
 ### MEGA Soriana
 
