@@ -18,6 +18,10 @@ That plus the sun and heat don't make beaches my first choice.
 
 However, Nick is typically very good at planning vacations so I'm happy to go wherever. As long as we're not working and just enjoying our time together, I don't really care where we go.
 
+## Playa del Carmen
+
+We decided on Mexico since it had been so long since we traveled internationally (thank you covid).
+
 ## Beach
 
 ## Restaurants
