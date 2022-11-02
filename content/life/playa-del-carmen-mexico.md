@@ -94,6 +94,8 @@ More tacos! This is where we had lunch while in Cozumel. A tiny, hole-in-the-wal
 
 ### Sushi N Raw Bar (hotel)
 
+We ate here several times and mainly stuck to the poke bowls which were very tasty.
+
 ### Coffee Shop (hotel)
 
 ### Pool Area (hotel)
