@@ -82,6 +82,8 @@ This is the place my husband was deadset on trying and what spurred our ATM adve
 
 **Address:** Casita Publica Casita, Rafael E Melgar S/N entre BLVD Aeropuerto y Playa Publica, Zona Hotelera Nte., 77600 San Miguel de Cozumel, Q.R., Mexico - [Google Maps](https://g.page/hemingwayloungecozumel?share)
 
+Another great brunch-type place, but this time in Cozumel. It's about a 10-minute walk from the ferry. They have great ocean views, tasty food, and kind staff. Our waiter was very sweet and called a cab for us since we were a bit off the beaten path and taxis didn't frequent the area.
+
 ### El Mero Mero (Cozumel)
 
 **Address:** 10 avenida entre Adolfo rosado salas y 3 sur, Centro, 77600 San Miguel de Cozumel, Q.R., Mexico - [Google Maps](https://goo.gl/maps/ca9hBv58wsCJ6p9J9)
@@ -102,8 +104,12 @@ This is the place my husband was deadset on trying and what spurred our ATM adve
 
 ### Shopping
 
+## Tips
+
 ### ATM adventure
 
 ### MEGA Soriana
 
 ### COVID-19 testing
+
+### Taxis
