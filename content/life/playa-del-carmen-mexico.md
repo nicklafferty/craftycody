@@ -64,7 +64,7 @@ There is a _ton_ of good food in Mexico and it isn't hard to find authentic plac
 
 **Address:** 1a Avenida, MZA 77, Local 2, Centro entre Calle 26 y 28, 77710 Playa del Carmen, Q.R., Mexico - [Google Maps](https://g.page/BistroPlaya?share)
 
-Bistro Playa was about a two-minute walk once we got outside of our hotel. It was awesome since it's so hot all of the time.
+Bistro Playa was about a two-minute walk once we got outside of our hotel. It was awesome since it's so hot all of the time and I just melt. It's a cute, small place that serves mostly breakfast and brunch-type foods. Great prices and large portions.
 
 ### Rockas Jamaican Kitchen (Playa)
 
