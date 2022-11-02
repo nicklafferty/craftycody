@@ -18,7 +18,7 @@ That plus the sun and heat don't make beaches my first choice.
 
 However, Nick is typically very good at planning vacations so I'm happy to go wherever. As long as we're not working and just enjoying our time together, I don't really care where we go.
 
-I wanted to write up this blog post to help anyone planning a trip to Playa del Carmen or Cozumel.
+I wanted to write up this blog post to help anyone planning a trip to Playa del Carmen or Cozumel. I'll outline activities, restaurants and shopping, and where to go if you forgot to pack something as well as where the heck you get pesos.
 
 ## Playa del Carmen
 
