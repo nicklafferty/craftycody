@@ -46,7 +46,7 @@ It's a stunning property and the pool is fantastic. The beach is only a few step
 
 I will say, and I'm not trying to be snobby, that the hotel was less than helpful with a couple of things. They do not have an ATM that gives pesos (I think you'll find it hard to find one that does. They really want you to spend dollars so they can set their own exchange rates.) and they also do not set up covid testing for international travelers. Their suggestion was, "There are a few places on 5th street that do testing!" after we had just checked two of those places and one was "out of tests" and the other was closed despite being labeled as open. While I don't need someone to hold my hand, this is kind of what hotel concierges are for especially for those who are unfamiliar with an area. I found a great testing location that actually came to our hotel and the hotel said they have a room set aside for just that thing. Well, guess what room was suddenly unavailable when it came time even though we reserved it? Just little annoyances like that put me off because their rooms are between $300-$1000 per night. Again, we use points and don't have status, so maybe that has something to do with it.
 
-I think the thing that irritated me the most was the water situation. You have to drink bottled water in Mexico so everywhere charges for it, even the hotel. We refilled our bottles in the on-site gym's water cooler.
+I think the thing that irritated me the most was the water situation. You have to drink bottled water in Mexico so everywhere charges for it, even the hotel. We refilled our bottles in the on-site gym's water cooler. There were also a couple of power outages during our stay, but they weren't long just weird.
 
 ## Beach
 
