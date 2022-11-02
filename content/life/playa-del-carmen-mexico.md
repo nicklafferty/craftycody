@@ -30,7 +30,7 @@ There are lots of activities, restaurants, and shopping to be had in Playa. It's
 
 Another great thing about Playa is that it's a 40-minute ferry ride to Cozumel, which also has lots of activities, restaurants, and shopping.
 
-Both places are beautiful and look like postcards so to speak. I would take the time to download Duolingo and brush up on some Spanish. It will help a ton. Also, it's hot and humid all of the time so pack accordingly.
+Both places are beautiful and look like postcards so to speak. I would take the time to download Duolingo and brush up on some Spanish. It will help a ton. Also, it's hot and very humid and most places do not have AC so pack accordingly.
 
 And only drink **bottled water** or soda.
 
@@ -63,6 +63,8 @@ There is a _ton_ of good food in Mexico and it isn't hard to find authentic plac
 ### Bistro Playa (Playa)
 
 **Address:** 1a Avenida, MZA 77, Local 2, Centro entre Calle 26 y 28, 77710 Playa del Carmen, Q.R., Mexico - [Google Maps](https://g.page/BistroPlaya?share)
+
+Bistro Playa was about a two-minute walk once we got outside of our hotel. It was awesome since it's so hot all of the time.
 
 ### Rockas Jamaican Kitchen (Playa)
 
