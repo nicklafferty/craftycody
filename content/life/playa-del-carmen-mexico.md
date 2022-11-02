@@ -114,6 +114,8 @@ More tacos! This is where we had lunch while in Cozumel. A tiny, hole-in-the-wal
 
 ### COVID-19 testing
 
+If you need to have a covid test for any reason, go to this place: the [International COVID Test](https://goo.gl/maps/34R8SjPhGjc6VFNr7) which is right by the ferry to Cozumel. Check [their website](https://www.covidtestplayadelcarmen.com/) for the WhatsApp number. You can go to them or they will come to your hotel for the same price. They're super nice and you get your results quickly.
+
 ### Taxis
 
 Taxis are everywhere and easy to recognize. This will be the main way you'll travel if you have to drive anywhere. Pay in pesos and ask the driver how much the fare will be before getting in.
