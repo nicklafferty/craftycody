@@ -124,6 +124,10 @@ Download [WhatsApp](https://www.whatsapp.com/) before you go. Lots of places use
 
 ### MEGA Soriana
 
+**Address:** 30 Avenida Nte. 101, Gonzalo Guerrero, 77710 Playa del Carmen, Q.R., Mexico - [Google Maps](https://goo.gl/maps/DYq1cYAxVcfvLyEe8)
+
+MEGA is a grocery store blended with Walmart. They're huge and have everything you might have forgotten at home. We picked up some aloe, reef-safe sunscreen (this is important to get), and baked goods for breakfast. TMI, I needed some feminine products and I got brand-name stuff for literally $1. Literally. It's almost worth it to stock up on supplies before going home.
+
 ### COVID-19 testing
 
 If you need to have a covid test for any reason, go to this place: the [International COVID Test](https://goo.gl/maps/34R8SjPhGjc6VFNr7) which is right by the ferry to Cozumel. Check [their website](https://www.covidtestplayadelcarmen.com/) for the WhatsApp number. You can go to them or they will come to your hotel for the same price. They're super nice and you get your results quickly.
