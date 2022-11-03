@@ -38,6 +38,8 @@ And only drink **bottled water** or soda.
 
 We stayed at the [Grand Hyatt Resort](https://www.hyatt.com/en-US/hotel/mexico/grand-hyatt-playa-del-carmen-resort/cunpc) in Playa. Keep in mind we travel almost exclusively with credit card points (hotels and flights). It's how we can go to so many places. We'd go broke staying at all of the places we do with cash. 😅
 
+![](/uploads/hotel.jpg)
+
 ### The good
 
 It's a stunning property and the pool is fantastic. The beach is only a few steps away, but you will have people walk up to you to get you to buy something. The restaurants there are tasty and the food is actually fairly priced. It was cheaper than the hotel we stayed at in Miami and I think you'll find that's the case in Mexico, even in the touristy spots. It's pretty inexpensive. The staff is all very friendly and we were even able to get late check-out on our last day.
