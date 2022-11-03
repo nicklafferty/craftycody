@@ -44,7 +44,7 @@ We stayed at the [Grand Hyatt Resort](https://www.hyatt.com/en-US/hotel/mexico/g
 
 It's a stunning property and the pool is fantastic. The beach is only a few steps away, but you will have people walk up to you to get you to buy something. The restaurants there are tasty and the food is actually fairly priced. It was cheaper than the hotel we stayed at in Miami and I think you'll find that's the case in Mexico, even in the touristy spots. It's pretty inexpensive. The staff is all very friendly and we were even able to get late check-out on our last day.
 
-![](/uploads/hotel-pool-and-beach.jpg)
+![](/uploads/hotel-pool-me.jpg)
 
 ### The not-so-good
 
@@ -57,6 +57,8 @@ I think the thing that irritated me the most was the water situation. You have t
 ## Beach
 
 Gorgeous, but not very wide or long where we happened to be staying. The hotels pretty much butt right up against the water. The water wasn't as clear as in South Padre, which was surprising, but the beach was well-maintained and it was still super relaxing.
+
+![](/uploads/hotel-pool-and-beach.jpg)
 
 We would go on evening walks on the beach. Other hotels put on outdoor events that we stumbled onto so that was fun as well. One was a group of fire dancers!
 
