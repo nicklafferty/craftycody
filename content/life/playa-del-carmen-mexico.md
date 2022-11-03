@@ -130,6 +130,8 @@ There's an absolute _ton_ of it. Between Playa and Cozumel, you won't be bored i
 
 The most unique shop I found was this place called [Miniso](https://minisousaonline.com/). Apparently, we do have them in the States, but I had never heard of it. There were several of these Japanese-esque stores in Playa and I was pretty surprised, but I loved it. I'm a sucker for cute things.
 
+Anyway, all the shops I looked at are decently priced even in the tourist areas and you can haggle at most places. Remember to have pesos though.
+
 ## Tips
 
 ### WhatsApp
