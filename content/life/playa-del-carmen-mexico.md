@@ -90,17 +90,25 @@ Rockas is right next door to Bistro Playa and it is an absolute gem. Hands down 
 
 This is the place my husband was deadset on trying and what spurred our ATM adventure that I'll get into later. Super cheap and super good tacos. I loved the chorizo and Nick's favorite was the al pastor tacos.
 
+![](/uploads/playa-el-fogon.jpg)
+
 ### HEMINGWAY Lounge & Nightclub (Cozumel)
 
 **Address:** Casita Publica Casita, Rafael E Melgar S/N entre BLVD Aeropuerto y Playa Publica, Zona Hotelera Nte., 77600 San Miguel de Cozumel, Q.R., Mexico - [Google Maps](https://g.page/hemingwayloungecozumel?share)
 
 Another great brunch-type place, but this time in Cozumel. It's about a 10-minute walk from the ferry. They have great ocean views, tasty food, and kind staff. Our waiter was very sweet and called a cab for us since we were a bit off the beaten path and taxis didn't frequent the area. He also said my _extremely_ limited Spanish was very good, haha.
 
+![](/uploads/cozumel-hemingway-lounge.jpg)
+
 ### El Mero Mero (Cozumel)
 
 **Address:** 10 avenida entre Adolfo rosado salas y 3 sur, Centro, 77600 San Miguel de Cozumel, Q.R., Mexico - [Google Maps](https://goo.gl/maps/ca9hBv58wsCJ6p9J9)
 
 More tacos! This is where we had lunch while in Cozumel. A tiny, hole-in-the-wall type place that serves simple and delicious food. We happened to be there when a group of fishermen were leaving and they offered us one of their (cooked) snappers! A serendipitous and delicious moment.
+
+![](/uploads/cozumel-el-mero-mero.jpg)
+
+![](/uploads/cozumel-el-mero-mero-2.jpg)
 
 ### La Cocina (hotel)
 
