@@ -108,6 +108,8 @@ The best thing about resort-style hotels is you can order food by the pool and t
 
 ## Things to do
 
+We ended up not doing too many activities. When we go to a beach, that's what we're there for so most of the time was spent by the pool, lounging, and swimming. However, we did venture out of our hotel a couple of times.
+
 ### Cozumel day trip
 
 ### Snorkeling
