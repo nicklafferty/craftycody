@@ -1,6 +1,6 @@
 +++
 date = 2022-11-03T05:00:00Z
-description = "Another beach vacation but make it international"
+description = "Another beach vacation but make it international."
 image = "/uploads/playa-del-carmen-vacation-header.png"
 slug = "playa-del-carmen-mexico-travel"
 tags = ["vacation"]
@@ -113,7 +113,7 @@ More tacos! This is where we had lunch while in Cozumel. A tiny, hole-in-the-wal
 
 ### La Cocina (hotel)
 
-We had their breakfast buffet one morning and it was very good albeit pricey- about $35 per person. There are a lot of options and be sure to save room for all the baked goods.
+We had their breakfast buffet one morning and it was very good albeit pricey- about $35 per person. Easily our most expensive meal. There are a lot of options and be sure to save room for all the baked goods.
 
 ### Sushi N Raw Bar (hotel)
 
