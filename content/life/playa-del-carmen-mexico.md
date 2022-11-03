@@ -118,6 +118,8 @@ We had their breakfast buffet one morning and it was very good albeit pricey- ab
 
 We ate here several times and mainly stuck to the poke bowls which were very tasty.
 
+![](/uploads/hotel-sushi-n-raw.jpg)
+
 ### Coffee Shop (hotel)
 
 Nothing better than convenient coffee! Nick would run down here each morning to grab us a couple of drinks. They were always out of vanilla for some reason though.
