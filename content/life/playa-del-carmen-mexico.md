@@ -116,6 +116,8 @@ Cozumel is an island off the coast of Playa Del Carmen and is an easy, 40-minute
 
 Cozumel is a big island with lots to do. If you want to explore, you'll need to catch a cab or rent a car. There are lots of activities advertised right after you disembark the ferry and it's an easy way to plan the day.
 
+The ferry spits you out into a big tourist area which is nice because there are immediate things to do. Lots of restaurants and shops to explore.
+
 ### Snorkeling
 
 ### Shopping
