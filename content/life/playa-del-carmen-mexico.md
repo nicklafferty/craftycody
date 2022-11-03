@@ -184,6 +184,8 @@ Whatever, I get it, but it's better to pay in pesos. So where do you get them? M
 
 MEGA is a grocery store blended with Walmart. They're huge and have everything you might have forgotten at home. We picked up some aloe, reef-safe sunscreen (this is important to get), and baked goods for breakfast. TMI, I needed some feminine products and I got brand-name stuff for literally $1. Literally. It's almost worth it to stock up on supplies before going home. It's also a straight shot from the tourist area to get here which is awesome. You'll learn your way around town quickly.
 
+![](/uploads/mega-soriana.jpg)
+
 ### COVID-19 testing
 
 If you need to have a covid test for any reason, go to this place: the [International COVID Test](https://goo.gl/maps/34R8SjPhGjc6VFNr7) which is right by the ferry to Cozumel. Check [their website](https://www.covidtestplayadelcarmen.com/) for the WhatsApp number. You can go to them or they will come to your hotel for the same price. They're super nice and you get your results quickly.
