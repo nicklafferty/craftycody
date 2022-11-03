@@ -136,6 +136,8 @@ We ended up not doing too many activities. When we go to a beach, that's what we
 
 Cozumel is an island off the coast of Playa Del Carmen and is an easy, 40-minute ferry ride away. The ferry dock was about a 20-minute walk from our hotel. I believe there are two ferry companies that go back and forth and we used Winjet. Be sure to buy your tickets from the actual ferry station and not people offering tickets or packages before you get there. You'll overpay that way.
 
+![](/uploads/playa-ferry.jpg)
+
 Cozumel is a big island with lots to do. If you want to explore, you'll need to catch a cab or rent a car. There are lots of activities advertised right after you disembark the ferry and it's an easy way to plan the day.
 
 The ferry spits you out into a big tourist area which is nice because there are immediate things to do. Lots of restaurants and shops to explore.
