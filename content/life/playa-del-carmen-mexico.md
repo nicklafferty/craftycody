@@ -72,11 +72,17 @@ There is a _ton_ of good food in Mexico and it isn't hard to find authentic plac
 
 Bistro Playa was about a two-minute walk once we got outside of our hotel. It was awesome since it's so hot all of the time and I just melt. It's a cute, small place that serves mostly breakfast and brunch-type foods. Great prices and large portions.
 
+![](/uploads/playa-bistro-playa.jpg)
+
+![](/uploads/playa-bistro-playa-2.jpg)
+
 ### Rockas Jamaican Kitchen (Playa)
 
 **Address:** 1a Avenida, MZA 77, Lote 2 Centro 77710 Playa del Carmen Q.R MX, entre Calle 26 y 28, Mexico - [Google Maps](https://g.page/RockasJAM?share)
 
 Rockas is right next door to Bistro Playa and it is an absolute gem. Hands down some of the best chicken I've had in my life. We also got coconut shrimp, coconut rice, and fried plantains. Get the jerk chicken and whatever sides you'd like- you won't be disappointed.
+
+![](/uploads/playa-rockas.jpg)
 
 ### El Fogón (Playa)
 
