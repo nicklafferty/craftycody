@@ -120,6 +120,10 @@ The ferry spits you out into a big tourist area which is nice because there are 
 
 ### Snorkeling
 
+This was our big activity for the week. Nick found a snorkeling place in Cozumel where you could swim and learn about stingrays. Very neat!
+
+The place is called Stingray Beach and you can find it here on [Google Maps](https://goo.gl/maps/xcYNgRGT8kWpo7Be7). We were able to get a spot without a reservation, but feel free to make one. I would have if I had known they take reservations. It was $50 per person and they provide all the equipment. You snorkel with stingrays (and sharks!) for a bit, then you go to another area and feed, learn, and take pictures with the rays. It's a lot of fun and I highly recommend it.
+
 ### Shopping
 
 ## Tips
