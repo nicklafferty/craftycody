@@ -179,6 +179,10 @@ Alright. We had one not-fun day while in Mexico and it was when we spent a full 
 
 Whatever, I get it, but it's better to pay in pesos. So where do you get them? MEGA's typically have ATMs in them that will give pesos (which we used), but right outside our MEGA was [Santander](https://goo.gl/maps/iW9hseJPpEjeD1aL7), which I guess is a bank. This one is a building in the parking lot of MEGA and just had a row of ATMs. We also used them to get pesos.
 
+Also, when the ATM asks you if you accept the conversion rate say **"No"** (not all ATMs ask). This will save you money as your bank will handle the conversion rate versus it being passed on to you.
+
+The best way to get pesos is to grab them from an ATM at the airport after you land.
+
 ### MEGA Soriana
 
 **Address:** 30 Avenida Nte. 101, Gonzalo Guerrero, 77710 Playa del Carmen, Q.R., Mexico - [Google Maps](https://goo.gl/maps/DYq1cYAxVcfvLyEe8)
