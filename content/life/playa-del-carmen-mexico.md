@@ -4,7 +4,7 @@ description = "Another beach vacation but make it international"
 draft = true
 image = ""
 slug = "playa-del-carmen-mexico-travel"
-tags = []
+tags = ["vacation"]
 title = "Playa del Carmen, Mexico"
 
 +++
