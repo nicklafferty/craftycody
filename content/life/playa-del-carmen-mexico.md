@@ -30,6 +30,8 @@ There are lots of activities, restaurants, and shopping to be had in Playa. It's
 
 Another great thing about Playa is that it's a 40-minute ferry ride to Cozumel, which also has lots of activities, restaurants, and shopping.
 
+![](/uploads/cozumel-us-2.jpg)
+
 Both places are beautiful and look like postcards so to speak. I would take the time to download Duolingo and brush up on some Spanish. It will help a ton. Also, it's hot and very humid and most places do not have AC so pack accordingly.
 
 And only drink **bottled water** or soda.
@@ -132,6 +134,12 @@ The best thing about resort-style hotels is you can order food by the pool and t
 
 We ended up not doing too many activities. When we go to a beach, that's what we're there for so most of the time was spent by the pool, lounging, and swimming. However, we did venture out of our hotel a couple of times.
 
+### Paraque los Fundadores
+
+There is a cool outdoor theater where shows are put on that you can watch. During the day there is tons of shopping and restaurants. This place is right by the ferry dock.
+
+![](/uploads/playa-parque-los-fundadores.jpg)
+
 ### Cozumel day trip
 
 Cozumel is an island off the coast of Playa Del Carmen and is an easy, 40-minute ferry ride away. The ferry dock was about a 20-minute walk from our hotel. I believe there are two ferry companies that go back and forth and we used Winjet. Be sure to buy your tickets from the actual ferry station and not people offering tickets or packages before you get there. You'll overpay that way.
@@ -145,6 +153,8 @@ The ferry spits you out into a big tourist area which is nice because there are 
 ### Snorkeling
 
 This was our big activity for the week. Nick found a snorkeling place in Cozumel where you could swim and learn about stingrays. Very neat!
+
+![](/uploads/cozumel-us.jpg)
 
 The place is called Stingray Beach and you can find it here on [Google Maps](https://goo.gl/maps/xcYNgRGT8kWpo7Be7). We were able to get a spot without a reservation, but feel free to make one. I would have if I had known they take reservations. It was $50 per person and they provide all the equipment. You snorkel with stingrays (and sharks!) for a bit, then you go to another area and feed, learn, and take pictures with the rays. It's a lot of fun and I highly recommend it.
 
