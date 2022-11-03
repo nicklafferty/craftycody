@@ -126,6 +126,10 @@ The place is called Stingray Beach and you can find it here on [Google Maps](htt
 
 ### Shopping
 
+There's an absolute _ton_ of it. Between Playa and Cozumel, you won't be bored if you love shopping.
+
+The most unique shop I found was this place called [Miniso](https://minisousaonline.com/). Apparently, we do have them in the States, but I had never heard of it. There were several of these Japanese-esque stores in Playa and I was pretty surprised, but I loved it. I'm a sucker for cute things.
+
 ## Tips
 
 ### WhatsApp
