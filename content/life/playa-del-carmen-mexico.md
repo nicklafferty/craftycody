@@ -199,6 +199,10 @@ If you need to have a covid test for any reason, go to this place: the [Internat
 
 Taxis are everywhere and easy to recognize. This will be the main way you'll travel if you have to drive anywhere. Pay in pesos and ask the driver how much the fare will be before getting in.
 
+### Travel to and from the airport
+
+I highly recommend pre-booking a company to take you to your hotel from the airport after you land. That way you get a fair rate versus finding a cab at the airport when they know you just landed and need a ride. When heading home, have your hotel call a cab for you whenever you're ready to leave. This way it's on your schedule and you should still get a fair rate. The cost of our cab back to the airport was $50 and was an hour ride.
+
 ## Heading back home
 
 We spent almost an entire week in Mexico and had a great time. I would have loved to explore more and maybe see some ruins or do more water sports. This time was about learning the area and relaxing.
