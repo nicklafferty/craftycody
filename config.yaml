@@ -103,7 +103,7 @@ menu:
 
         - identifier: shop
           name: Shop
-          url: https://codyscraftcorner.square.site/
+          url: https://www.etsy.com/shop/CodysCraftyCo
           weight: -95
           pre: shop
           hreftargetblank: true
