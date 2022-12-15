@@ -24,15 +24,17 @@ Let's get started!
 
 ## Supplies:
 
- 1. Scrap wood (I had 1x3s, 1x5, and 2" balusters laying around. Do **NOT** use pressure-treated wood if this is going to be used around/with food.)
+ 1. Scrap wood (I used 1x3s, a 1x5, and 2" balusters. Do **NOT** use pressure-treated wood if this is going to be used around/with food.)
  2. Miter saw
  3. Jig saw
  4. Sander
  5. Planer
- 6. Liquid Nails
- 7. Stain/Mineral oil (If you're planning on using this with food in any capacity, be sure to get food-safe varnishes/stains/oils.)
- 8. Ruler
- 9. Speed square
-10. Safety gear
+ 6. Drill
+ 7. Spade bits
+ 8. Liquid Nails
+ 9. Stain/Mineral oil (If you're planning on using this with food in any capacity, be sure to get food-safe varnishes/stains/oils.)
+10. Ruler
+11. Speed square
+12. Safety gear
 
 ## How-to:
