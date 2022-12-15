@@ -14,8 +14,24 @@ I got busy with my day job and other pet projects i.e. designing templates for m
 
 But now that the weather has finally cooled down, it's time to get back out in the shop and build stuff.
 
-We recently went on an excursion to IKEA and found [this serving board](https://www.ikea.com/us/en/p/artistisk-cutting-board-oak-80511083/) that we absolutely loved. It's heavy-duty and has a lovely rustic vibe. However, it's currently $40.
+We recently went on an excursion to IKEA and found [this serving board](https://www.ikea.com/us/en/p/artistisk-cutting-board-oak-80511083/) that we absolutely loved. It's heavy-duty and has a lovely rustic vibe. However, it's currently $40 which is a little steep considering we were going to use it as decor.
+
+Well, luckily, I'm fairly crafty and have a big box of scrap wood. I started digging around after we got home and found several pieces that would work to duplicate this thing.
+
+I don't plan to buy anything new for this project, but I will update if I needed to.
+
+Let's get started!
 
 ## Supplies:
+
+1. Scrap wood (I had 1x3s, 1x5, and 2" balusters laying around)
+2. Miter saw
+3. Jig saw
+4. Sander
+5. Planer
+6. Liquid Nails
+7. Ruler
+8. Speed square
+9. Safety gear
 
 ## How-to:
