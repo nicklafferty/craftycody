@@ -38,3 +38,19 @@ Let's get started!
 12. Safety gear
 
 ## How-to:
+
+Step one:
+
+The first thing we're going to do is pick out wood that will work. I mentioned it above, but do not use pressure-treated lumber if you're planning on using this as a cutting board or putting food on it in any way. That stuff will make you really sick.
+
+I'm planning on using mine as decor and to put plants on top of so I used a piece of pressure-treated wood I had lying around. The rest of the pieces were scrap 1x3s and balusters.
+
+Step two:
+
+Now, we're going to measure all of our pieces. You can make your serving board as large or as small as you'd like. I'm going for similar dimensions as the IKEA version, so mine is roughly 25 inches long and 10 inches wide at the widest part. I will bite into these measurements when I shape the board later so these numbers account for excess.
+
+Step three:
+
+Step four:
+
+Step five:
