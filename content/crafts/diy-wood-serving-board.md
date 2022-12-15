@@ -16,7 +16,7 @@ But now that the weather has finally cooled down, it's time to get back out in t
 
 We recently went on an excursion to IKEA and found [this serving board](https://www.ikea.com/us/en/p/artistisk-cutting-board-oak-80511083/) that we absolutely loved. It's heavy-duty and has a lovely rustic vibe. However, it's currently $40 which is a little steep considering we were going to use it as decor.
 
-Well, luckily, I'm fairly crafty and have a big box of scrap wood. I started digging around after we got home and found several pieces that would work to duplicate this thing.
+Luckily, I'm fairly crafty and have a big box of scrap wood. I started digging around after we got home and found several pieces that would work to duplicate this thing.
 
 I don't plan to buy anything new for this project, but I will update if I needed to.
 
@@ -47,7 +47,7 @@ I'm planning on using mine as decor and to put plants on top of so I used a piec
 
 ### Step two:
 
-Now, we're going to measure all of our pieces. You can make your serving board as large or as small as you'd like. I'm going for similar dimensions as the IKEA version, so mine is roughly 25 inches long and 10 inches wide at the widest part. I will bite into these measurements when I shape the board later so these numbers account for excess.
+Now, we're going to measure and cut all of our pieces. You can make your serving board as large or as small as you'd like. I'm going for similar dimensions as the IKEA version, so mine is roughly 25 inches long and 10 inches wide at the widest part. I will bite into these measurements when I shape the board later so these numbers account for excess.
 
 ### Step three:
 
