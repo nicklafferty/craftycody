@@ -68,7 +68,11 @@ Pick the sides you'd like as the tops, then run a thin bead of Liquid nails down
 
 I'm going to use a hand planer to level the wood. Make sure everything is dry or the planer will pop all of your pieces apart. Sand everything smooth when finished.
 
+If you haven't already, glue the handle to the platter. You'll probably have to do more planing/sanding once it's dry to make sure the serving board is level.
+
 ### Step five:
+
+Drill hole for hooks.
 
 Shaping.
 
