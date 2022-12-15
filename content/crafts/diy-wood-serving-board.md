@@ -34,10 +34,11 @@ Let's get started!
  6. [Drill](https://amzn.to/3HFH6eo)
  7. [Spade bits](https://amzn.to/3FtBfWR)
  8. [Liquid Nails](https://amzn.to/3HC3MvR)
- 9. Stain/Mineral oil (If you're planning on using this with food in any capacity, be sure to get food-safe varnishes/stains/oils.)
-10. Ruler
-11. Speed square
-12. Safety gear
+ 9. [Clamps](https://amzn.to/3WDEkL1)
+10. Stain/Mineral oil (If you're planning on using this with food in any capacity, be sure to get food-safe varnishes/stains/oils.)
+11. Ruler
+12. Speed square
+13. Safety gear
 
 ## How-to:
 
@@ -58,6 +59,10 @@ I'm going for similar dimensions as the IKEA version, so mine is roughly 25 inch
 When all of your pieces are cut, give them a light sanding.
 
 ### Step three:
+
+Time to glue them together. I glued the pieces that will make the platter separate from the balusters that will make the handle since they're different thicknesses. We'll put them together later.
+
+Pick the sides you'd like as the tops, then run a thin bead of Liquid nails down one side of the board and attach the next board to it. Continue until they're all glued together. Use clamps to secure and let dry.
 
 ### Step four:
 
