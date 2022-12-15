@@ -10,7 +10,7 @@ title = "DIY: Wood Serving Board"
 +++
 Whew, it has been a minute!
 
-I got busy with my day job and other pet projects i.e. designing templates for my husband and I'd [Notion business](https://nicklafferty.gumroad.com/).
+I got busy with my day job and other pet projects i.e. designing templates for my husband and I's [Notion business](https://nicklafferty.gumroad.com/).
 
 But now that the weather has finally cooled down, it's time to get back out in the shop and build stuff.
 
