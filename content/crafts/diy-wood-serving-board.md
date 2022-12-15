@@ -33,7 +33,7 @@ Let's get started!
  5. [Planer](https://amzn.to/3BE3Kjo)
  6. [Drill](https://amzn.to/3HFH6eo)
  7. [Spade bits](https://amzn.to/3FtBfWR)
- 8. Liquid Nails
+ 8. [Liquid Nails](https://amzn.to/3HC3MvR)
  9. Stain/Mineral oil (If you're planning on using this with food in any capacity, be sure to get food-safe varnishes/stains/oils.)
 10. Ruler
 11. Speed square
