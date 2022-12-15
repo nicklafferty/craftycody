@@ -53,6 +53,8 @@ Now, we're going to measure and cut all of our pieces. You can make your serving
 
 I'm going for similar dimensions as the IKEA version, so mine is roughly 25 inches long and 10 inches wide at the widest part. I will bite into these measurements when I shape the board later so these numbers account for excess.
 
+When all of your pieces are cut, give them a light sanding.
+
 ### Step three:
 
 ### Step four:
