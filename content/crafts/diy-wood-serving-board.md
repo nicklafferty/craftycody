@@ -70,4 +70,8 @@ I'm going to use a hand planer to level the wood. Make sure everything is dry or
 
 ### Step five:
 
+Shaping.
+
 ### Step six:
+
+Staining/oiling/polishing.
