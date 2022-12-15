@@ -69,3 +69,5 @@ Pick the sides you'd like as the tops, then run a thin bead of Liquid nails down
 I'm going to use a hand planer to level the wood. Make sure everything is dry or the planer will pop all of your pieces apart. Sand everything smooth when finished.
 
 ### Step five:
+
+### Step six:
