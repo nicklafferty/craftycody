@@ -8,6 +8,8 @@ tags = ["diy"]
 title = "DIY: Wood Serving Board"
 
 +++
+_This post may contain affiliate links. I earn a small commission on your purchase, but there are no added costs to you._
+
 Whew, it has been a minute!
 
 I got busy with my day job and other pet projects i.e. designing templates for my husband and I's [Notion business](https://nicklafferty.gumroad.com/).
