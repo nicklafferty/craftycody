@@ -49,7 +49,9 @@ I'm planning on using mine as decor and to put plants on top of so I used a piec
 
 ### Step two:
 
-Now, we're going to measure and cut all of our pieces. You can make your serving board as large or as small as you'd like. I'm going for similar dimensions as the IKEA version, so mine is roughly 25 inches long and 10 inches wide at the widest part. I will bite into these measurements when I shape the board later so these numbers account for excess.
+Now, we're going to measure and cut all of our pieces. You can make your serving board as large or as small as you'd like. 
+
+I'm going for similar dimensions as the IKEA version, so mine is roughly 25 inches long and 10 inches wide at the widest part. I will bite into these measurements when I shape the board later so these numbers account for excess.
 
 ### Step three:
 
