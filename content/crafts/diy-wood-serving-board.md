@@ -70,6 +70,8 @@ To be honest, I let the glue dry for a couple of weeks! Not entirely on purpose,
 
 I'm going to use a hand planer to level the wood. Make sure everything is dry or the planer will pop all of your pieces apart. Sand everything smooth when finished.
 
+I was able to clamp my board to the side of my workbench and plane the sides of the board flat.
+
 If you haven't already, glue the handle to the platter. I may drill two small holes on either end and use a dowel to secure them together. You'll probably have to do more planing/sanding once it's dry to make sure the serving board is level.
 
 ### Step five:
