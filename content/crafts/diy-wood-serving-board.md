@@ -76,7 +76,7 @@ If you haven't already, glue the handle to the platter. I may drill two small ho
 
 Drill hole for hanging on hooks.
 
-Shaping.
+Shaping with a jig saw and sanding smooth.
 
 ### Step six:
 
