@@ -72,6 +72,8 @@ I'm going to use a hand planer to level the wood. Make sure everything is dry or
 
 I was able to clamp my board to the side of my workbench and plane the sides of the board flat.
 
+The balusters I used are thicker than the boards so I ended up needing to plane the handle part quite a bit to make it as flat as the board part. Something to keep in mind when you're choosing wood.
+
 If you haven't already, glue the handle to the platter. I may drill two small holes on either end and use a dowel to secure them together. You'll probably have to do more planing/sanding once it's dry to make sure the serving board is level.
 
 ### Step five:
