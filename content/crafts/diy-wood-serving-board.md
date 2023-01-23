@@ -64,6 +64,8 @@ Time to glue them together. I glued the pieces that will make up the platter sep
 
 Pick the sides you'd like as the tops, then run a thin bead of Liquid nails down one side of the board and attach the next board to it. Continue until they're all glued together. Use clamps to secure and let dry for about 24 hours.
 
+To be honest, I let the glue dry for a couple of weeks! Not entirely on purpose, but it worked out we went on vacation in the middle of this project. When we got back, all the wood was super secure.
+
 ### Step four:
 
 I'm going to use a hand planer to level the wood. Make sure everything is dry or the planer will pop all of your pieces apart. Sand everything smooth when finished.
