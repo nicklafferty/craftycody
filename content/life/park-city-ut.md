@@ -104,6 +104,22 @@ The whole place is beautiful, enchanting, and romantic.
 
 ## Restaurants
 
+Kuchu Shabu
+
+Drafts Burger Bar
+
+Murdock's Café
+
+Escala Provisions Co. (hotel)
+
+Umbrella Bar
+
+This is a cute outdoor bar in the middle of Canyons Village. We got a beverage after our last run and just sat and enjoyed the area.
+
+Red Pine Lodge (mountain)
+
+Wasatch Brew Pub (Park City)
+
 ## Things to do
 
 Skiing/Snowboarding
