@@ -204,4 +204,8 @@ Buses are also free so it's really easy to get around.
 
 There are all kinds of things you can do on the mountain besides skiing. They have dog-sledding, snowmobiling, tours, hiking, and sleigh rides.
 
+## Thoughts
+
+This was one of our best vacations- definitely top 4. I had so much fun and I want to take snowboarding up as a hobby. Everything was just so easy and effortless. We didn't run into any hiccups and it was so peaceful being up in the mountains. There is just a different air up there. I can't wait to go back.
+
 ![](/uploads/airport-pano.jpg)
