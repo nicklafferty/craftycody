@@ -120,6 +120,12 @@ We didn't get the shabu, but did get a couple of bowls of ramen. Pricey, but one
 
 ### Drafts Burger Bar
 
+We went here for dinner and breakfast. Very tasty, but the wait staff seems a little disorganized and slow. Friendly, though.
+
+For dinner we ordered burgers and they were huge and juicy. They also have a ton of sides you can get instead of regular french fries.
+
+Their breakfast was just as good. I got french toast sliders with runny eggs. I'm getting hungry just thinking about it.
+
 ### Murdock's Café
 
 ### Disco Pizza
