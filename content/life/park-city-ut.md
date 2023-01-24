@@ -34,6 +34,8 @@ I decided to bite the bullet and bought the [Adept W](https://www.dopesnow.com/a
 
 ### Snowboard/ski pants
 
+I found a pair of [North Face ski pants](https://www.rei.com/product/194944/the-north-face-freedom-insulated-snow-pants-womens-short-sizes) on sale at REI so check those sale racks! I think they're cute and they complement my jacket.
+
 ### Base layers
 
 ### Gloves
