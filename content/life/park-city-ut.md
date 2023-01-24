@@ -14,7 +14,7 @@ This leads me to before Christmas. Nick was lamenting we didn't have any upcomin
 
 So we decided to change that.
 
-We don't do a lot of "last minute" trips, but both of us had been talking about trying snowboarding for a while. We've both been skiing separately, but have never taken a mountain vacation together.
+We don't do a lot of "last minute" trips, but both of us had been talking about trying snowboarding for a while. We've both been skiing separately, but have never taken a mountain vacation together. And what better time to go to the mountains than in the winter?
 
 ## Gear
 
