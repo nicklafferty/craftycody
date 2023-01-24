@@ -16,6 +16,8 @@ So we decided to change that.
 
 We don't do a lot of "last minute" trips, but both of us had been talking about trying snowboarding for a while. We've both been skiing separately, but have never taken a mountain vacation together. And what better time to go to the mountains than in the winter?
 
+![](/uploads/nickcody2.jpg)
+
 ## Gear
 
 I'll get into the actual trip in a moment but wanted to start off with all the gear we had to get to make this trip possible. There is a _lot_ of stuff we had to buy that can make a trip like this prohibitive and I'm glad we waited so long to try it.
@@ -55,6 +57,8 @@ Again, preference. I found this [cute pink pair on Amazon](https://www.amazon.co
 ### Balaclava/gaiter
 
 You gotta keep the wind off of your face. I bought [this two-pack of face gaiters](https://www.amazon.com/dp/B08M99BJV1?ref=ppx_yo2ov_dt_b_product_details&th=1) from Amazon and wore the pink one. They were a little thick but did keep my face warm.
+
+![](/uploads/nickcody1.jpg)
 
 ### Padded underwear
 
@@ -99,6 +103,8 @@ We stayed in this hotel because we have Hyatt points and it was great. I do thin
 ## Mountain
 
 Listen, we don't get snow in Texas unless it's the apocalypse so to be in a literal winter wonderland was magical. They had Christmas decorations up still so all the trees were lit up and it reminded me of Disney. It was so fun just walking around that I would have had a great vacation if that's all we did.
+
+![](/uploads/slopes.jpg)
 
 It's incredible how much snow is there. It snowed 18 inches the night we arrived. 18 inches! That's a lot of snow!
 
