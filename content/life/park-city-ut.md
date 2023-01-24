@@ -110,11 +110,15 @@ We had an _awesome_ instructor named Blake. He was a really cool guy and a great
 
 ## Restaurants
 
+There are tons of places to eat in Canyons Village alone
+
 ### Kuchu Shabu
 
 ### Drafts Burger Bar
 
 ### Murdock's Café
+
+### Disco Pizza
 
 ### Umbrella Bar
 
