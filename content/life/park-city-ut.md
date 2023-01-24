@@ -172,6 +172,8 @@ I also got coffee a couple of times and it wasn't great, but it was warm so.
 
 We took a day trip to Park City and found this cute brewery. They had a hard seltzer there that was very good. I'm going to have to look up the brand because I can't remember. We also ordered fried cheese curds and their housemade marinara was awesome. Friendly staff and great atmosphere.
 
+![](/uploads/wasatch-brewery.jpg)
+
 ### Atticus Coffee (Park City) ★★★★★
 
 Another cute find. They have little knick knacks and books you can peruse while you wait for your drinks. Tasty coffee and is priced normally.
@@ -182,6 +184,8 @@ Another cute find. They have little knick knacks and books you can peruse while 
 
 We took a day trip to Park City in the middle of our vacation to relax/heal from snowboarding. I recommend having rest days if you're new to this.
 
+![](/uploads/park-city-houses.jpg)
+
 Park City is a cute mountain town that caters to its tourists. Main street looks like something out of a Hallmark movie and is filled with shops and places to eat. It's fun to go and walk around.
 
 Buses are also free so it's really easy to get around.
@@ -189,3 +193,5 @@ Buses are also free so it's really easy to get around.
 ### Other winter sports
 
 There are all kinds of things you can do on the mountain besides skiing. They have dog-sledding, snowmobiling, tours, hiking, and sleigh rides.
+
+![](/uploads/airport-pano.jpg)
