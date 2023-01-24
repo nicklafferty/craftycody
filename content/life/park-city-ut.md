@@ -38,7 +38,15 @@ I found a pair of [North Face ski pants](https://www.rei.com/product/194944/the-
 
 ### Base layers
 
+I wore a top and bottom base layer. The first day I wore two top layers and got way too hot. It was miserable. The highs hit the 40s if you can believe it and two layers were just too much.
+
+Both my top and bottoms were [Patagonia](https://www.patagonia.com/shop/womens-baselayers).
+
 ### Gloves
+
+So gloves are all about preference. We bought these [mittens from REI](https://www.rei.com/product/177846/rei-co-op-guide-insulated-mittens), but I think I'd like something else for next time. I felt like I couldn't grab anything in mittens.
+
+I'm going to look for actual gloves instead of mittens and something that feels more water-resistant.
 
 ### Goggles
 
