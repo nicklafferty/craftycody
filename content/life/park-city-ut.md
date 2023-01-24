@@ -16,6 +16,8 @@ We don't do a lot of "last minute" trips, but both of us had been talking about 
 
 Nick's favorite vacations are at the beach, but I love the forest and mountains. I could spend all my time up there in a coat and with a cup of coffee. It's my kind of nature.
 
+Gear
+
 Park City
 
 Hotel
