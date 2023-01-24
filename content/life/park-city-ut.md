@@ -10,7 +10,7 @@ title = "Park City, UT"
 +++
 Nick's favorite vacations are at the beach, but I love the forest and mountains. I could spend all my time up there in a coat and with a cup of coffee. It's my kind of nature.
 
-Before Christmas, Nick was lamenting we didn't have any upcoming trips planned while we had a week off in early January.
+This leads me to before Christmas. Nick was lamenting we didn't have any upcoming trips planned while we had a week off in early January.
 
 So we decided to change that.
 
