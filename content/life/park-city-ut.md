@@ -160,7 +160,7 @@ I also got coffee a couple of times and it wasn't great, but it was warm so.
 
 ### Wasatch Brew Pub (Park City) ★★★★★
 
-We took a day trip to Park City and found this cute brewery. 
+We took a day trip to Park City and found this cute brewery. They had a hard seltzer there that was very good. I'm going to have to look up the brand because I can't remember. We also ordered fried cheese curds and their housemade marinara was awesome. Friendly staff and great atmosphere.
 
 ### Atticus Coffee (Park City) ★★★★★
 
