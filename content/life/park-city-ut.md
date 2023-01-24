@@ -2,7 +2,7 @@
 date = ""
 description = "A magical snowboarding adventure"
 draft = true
-image = ""
+image = "/uploads/park-city-ut-vacation-header.png"
 slug = ""
 tags = []
 title = "Park City, UT"
