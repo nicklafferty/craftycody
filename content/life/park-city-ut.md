@@ -50,6 +50,8 @@ I'm going to look for actual gloves instead of mittens and something that feels 
 
 ### Goggles
 
+Again, preference. I found this [cute pink pair on Amazon](https://www.amazon.com/dp/B0B8G8SM3R?ref=ppx_yo2ov_dt_b_product_details&th=1). Pay attention to what kind of lighting each lens is suited for. When we went, it was sunny and these really helped mitigate the reflection off of the snow.
+
 ### Balaclava
 
 ### Padded underwear
