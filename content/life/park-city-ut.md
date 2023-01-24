@@ -16,6 +16,8 @@ So we decided to change that.
 
 We don't do a lot of "last minute" trips, but both of us had been talking about trying snowboarding for a while. We've both been skiing separately, but have never taken a mountain vacation together.
 
+We landed on Park City, UT because, well, it's a really popular ski destination and popular places usually have all of their tourist activities down to a science. We wanted a vacation that would be easy to plan since it's something we hadn't done before.
+
 Gear
 
 Park City
