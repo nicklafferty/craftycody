@@ -35,3 +35,9 @@ We landed on Park City because, well, it's a really popular ski destination and 
 ## Restaurants
 
 ## Things to do
+
+Skiing/Snowboarding
+
+Day trip to Park City
+
+Other winter sports
