@@ -130,11 +130,11 @@ For dinner we ordered burgers and they were huge and juicy. They also have a ton
 
 Their breakfast was just as good. I got french toast sliders with runny eggs. I'm getting hungry just thinking about it.
 
-### Murdock's Café ★★★☆☆
+### Murdock's Café ★★☆☆☆
 
 Eh. It's quick and convenient. Overpriced sandwiches and they gave me a different sandwich than I ordered, but it tasted fine. We went here in between our morning and afternoon lessons because we had less than an hour to eat and meet back up.
 
-### Disco Pizza ★★★☆☆
+### Disco Pizza ★★☆☆☆
 
 Disco Pizza is one of those places that looks like it does stuff well, but it's actually just okay. Overpriced like everything and takes forever to get your order. Honestly, I would stick with the plainer pizzas. You'll save some money and will taste better for it. They're also "personal" size so don't let the price fool you into thinking they'll feed several people. _Maybe_ two tops.
 
