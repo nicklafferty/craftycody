@@ -58,6 +58,10 @@ You gotta keep the wind off of your face. I bought [this two-pack of face gaiter
 
 ### Padded underwear
 
+Buy this. Trust me. This will be the [most expensive underwear](https://www.amazon.com/dp/B0059CWT3U?ref=ppx_yo2ov_dt_b_product_details&th=1&psc=1) you ever buy, but your butt will thank you. My tailbone didn't so much as bruise during our trip because of these.
+
+Be sure to size up your ski pants to make sure these fit underneath. They are super padded.
+
 ### Wrist guards
 
 ## Rental equipment
