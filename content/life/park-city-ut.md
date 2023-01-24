@@ -82,6 +82,8 @@ We stayed in Canyons Village which is right by Park City. It's at the base of th
 
 ## Hotel
 
+We stayed at the [Hyatt Centric Park City](https://www.hyatt.com/en-US/hotel/utah/hyatt-centric-park-city/slcpc?src=corp_lclb_gmb_seo_slcpc).
+
 ## Mountain
 
 ## Snowboard lessons
