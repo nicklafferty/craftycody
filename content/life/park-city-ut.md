@@ -164,6 +164,8 @@ We took a day trip to Park City and found this cute brewery. They had a hard sel
 
 ### Atticus Coffee (Park City) ★★★★★
 
+Another cute find. They have little knick knacks and books you can peruse while you wait for your drinks. Tasty coffee and is priced normally.
+
 ## Things to do
 
 ### Skiing/Snowboarding
