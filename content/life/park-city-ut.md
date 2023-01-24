@@ -102,6 +102,10 @@ The whole place is beautiful, enchanting, and romantic.
 
 ## Snowboard lessons
 
+If you've never snowboarded or skied, I highly recommend taking lessons. There are tons of instructors of all skill levels ready to help you and your family/friends/group get safely down the slopes and enjoy your time. Classes are about 3 hours long.
+
+We did a morning and afternoon snowboarding class. There were high winds in the morning so the gondola up the mountain was closed and we learned on a smaller hill by the hotels. 
+
 ## Restaurants
 
 ### Kuchu Shabu
