@@ -150,6 +150,14 @@ As I said earlier, we ate here once for breakfast and it was pretty good. Hotels
 
 ### Red Pine Lodge (mountain) ★★★☆☆
 
+This is a place that knows they are your only option. Very expensive for what it is and busy as hell all the time. They're at the top of the main gondola where a bunch of the runs converge.
+
+To be fair, there's a ton of seating and you can go in to just relax if you want. It's overpriced, sure, but it's convenient and decent for what it is. Our snowboard instructor swears by their chili pork sandwich.
+
+We had brisket grilled cheese and tomato soup ($45!!!!). Don't get me wrong, they tasted great, but holy cow the price. And it's not like it's fine dining in there. It's cafeteria-style ordering where you wait in a crowded line, order, take your food to a register, pay, and then try to find somewhere to sit and eat. It can be a madhouse in there.
+
+I also got coffee a couple of times and it wasn't great, but it was warm so.
+
 ### Wasatch Brew Pub (Park City) ★★★★★
 
 ### Atticus Coffee (Park City) ★★★★★
