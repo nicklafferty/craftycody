@@ -168,8 +168,10 @@ Another cute find. They have little knick knacks and books you can peruse while 
 
 ## Things to do
 
-### Skiing/Snowboarding
-
 ### Day trip to Park City
+
+We took a day trip to Park City in the middle of our vacation to relax/heal from snowboarding. I recommend having rest days if you're new to this.
+
+Park City is a cute mountain town that caters to its tourists. Main street looks like something out of a Hallmark movie and is filled with shops and places to eat. It's fun to go and walk around.
 
 ### Other winter sports
