@@ -22,7 +22,15 @@ I'll get into the actual trip in a moment but wanted to start off with all the g
 
 The point of most of this gear is to keep you **warm and dry**. You do not want to wear jeans otherwise you'll be wet and cold all day. I fell a _lot_, but I stayed dry the whole time.
 
+I'm going to be upfront, this stuff is expensive. It's because it's specialty equipment and works hard to keep you safe, dry, and warm. Even the cheap stuff is pricey.
+
 ### Snowboarding coat
+
+This was my favorite purchase. I don't have any kind of ski jacket because I live in Texas, so being able to find something cute was a lot of fun. I'm definitely a form-over-function person but, again, I needed to find something that would keep me warm and dry.
+
+I did a little light Googling and found [Dope Snow](https://www.dopesnow.com/) which looks like a lifestyle brand run by a bunch of influencers. That being said, most of those brands have the cutest stuff. I checked around on some snowboarding forums and Reddit to see if people actually like their stuff and the consensus was positive.
+
+I decided to bite the bullet and bought the [Adept W](https://www.dopesnow.com/adept-w-snowboard-jacket-women-soft-green).
 
 ### Snowboard/ski pants
 
