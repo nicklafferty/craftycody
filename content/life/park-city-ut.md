@@ -30,7 +30,7 @@ This was my favorite purchase. I don't have any kind of ski jacket because I liv
 
 I did a little light Googling and found [Dope Snow](https://www.dopesnow.com/) which looks like a lifestyle brand run by a bunch of influencers. That being said, most of those brands have the cutest stuff. I checked around on some snowboarding forums and Reddit to see if people actually like their stuff and the consensus was positive.
 
-I decided to bite the bullet and bought the [Adept W](https://www.dopesnow.com/adept-w-snowboard-jacket-women-soft-green).
+I decided to bite the bullet and bought the [Adept W](https://www.dopesnow.com/adept-w-snowboard-jacket-women-soft-green) in soft green. And, y'all, it's so cute. I saw a lot of Dope Snow on the mountain so I felt good about buying it.
 
 ### Snowboard/ski pants
 
