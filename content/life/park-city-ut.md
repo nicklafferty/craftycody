@@ -92,6 +92,10 @@ We stayed in Canyons Village which is right by Park City. It's at the base of th
 
 We stayed at the [Hyatt Centric Park City](https://www.hyatt.com/en-US/hotel/utah/hyatt-centric-park-city/slcpc?src=corp_lclb_gmb_seo_slcpc) and it was pretty nice. The whole area is very cozy and the hotel makes it feel like you're staying in a mountain lodge. The staff was friendly and everything was clean.
 
+![](/uploads/hotel-view.jpg)
+
+The view from our room was also super cozy. I will say it was weird seeing people ski by though, but no one looked in.
+
 They have a great heated pool and jacuzzi area that is perfect after a long day on the slopes. We went every evening. Pro tip: wear your robe from your room so you can wrap up as soon as you dry off. This way you don't get your clothes wet from your swimsuit.
 
 We ate at the hotel's restaurant once for breakfast and it was tasty albeit overpriced. They also have baked goods you can grab, but we didn't get any which is kind of unlike us, haha. There is no continental breakfast.
