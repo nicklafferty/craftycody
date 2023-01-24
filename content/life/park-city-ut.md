@@ -177,3 +177,5 @@ Park City is a cute mountain town that caters to its tourists. Main street looks
 Buses are also free so it's really easy to get around.
 
 ### Other winter sports
+
+There are all kinds of things you can do on the mountain besides skiing. They have dog-sledding, snowmobiling, tours, hiking, and sleigh rides.
