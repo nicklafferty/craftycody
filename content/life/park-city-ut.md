@@ -174,4 +174,6 @@ We took a day trip to Park City in the middle of our vacation to relax/heal from
 
 Park City is a cute mountain town that caters to its tourists. Main street looks like something out of a Hallmark movie and is filled with shops and places to eat. It's fun to go and walk around.
 
+Buses are also free so it's really easy to get around.
+
 ### Other winter sports
