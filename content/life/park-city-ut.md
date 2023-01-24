@@ -3,8 +3,8 @@ date = ""
 description = "A magical snowboarding adventure"
 draft = true
 image = "/uploads/park-city-ut-vacation-header.png"
-slug = ""
-tags = []
+slug = "park-city-snowboard"
+tags = ["vacation"]
 title = "Park City, UT"
 
 +++
@@ -119,6 +119,8 @@ There are tons of places to eat in Canyons Village alone and that's mainly where
 ### Kuchu Shabu ★★★★☆
 
 I was immediately drawn to this place because I love [Japanese food](https://v7u.339.myftpupload.com/) and it looked super cute. It was also cold as heck when we got there and a hot dinner sounded great.
+
+![](/uploads/ramen.jpg)
 
 We didn't get the shabu but did get a couple of bowls of ramen. Pricey, but one of the best meals during our stay.
 
