@@ -94,6 +94,12 @@ We stayed in this hotel because we have Hyatt points and it was great. I do thin
 
 ## Mountain
 
+Listen, we don't get snow in Texas unless it's the apocalypse so to be in a literal winter wonderland was magical. They had Christmas decorations up still so all the trees were lit up and it reminded me of Disney. It was so fun just walking around that I would have had a great vacation if that's all we did.
+
+It's incredible how much snow is there. It snowed 18 inches the night we arrived. 18 inches! That's a lot of snow!
+
+The whole place is beautiful, enchanting, and romantic.
+
 ## Snowboard lessons
 
 ## Restaurants
