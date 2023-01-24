@@ -110,7 +110,7 @@ We had an _awesome_ instructor named Blake. He was a really cool guy and a great
 
 ## Restaurants
 
-There are tons of places to eat in Canyons Village alone
+There are tons of places to eat in Canyons Village alone and that's mainly where we stayed. Keep in mind, because it's a tourist area, everything is going to be pretty pricey and some stuff is going to taste average.
 
 ### Kuchu Shabu
 
