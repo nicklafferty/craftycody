@@ -64,6 +64,8 @@ Be sure to size up your ski pants to make sure these fit underneath. They are su
 
 ### Wrist guards
 
+I recommend these because I didn't wear mine and jammed/sprained my arm. So, lesson learned.
+
 ## Rental equipment
 
 We rented the rest of our gear: snowboards, boots, and helmets. I cannot stress enough how important the helmet is. As I said, I fell a bunch, but I only landed on my head once and my helmet saved me from having a really bad day.
