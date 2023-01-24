@@ -112,13 +112,13 @@ We had an _awesome_ instructor named Blake. He was a really cool guy and a great
 
 There are tons of places to eat in Canyons Village alone and that's mainly where we stayed. Keep in mind, because it's a tourist area, everything is going to be pretty pricey and some stuff is going to taste average.
 
-### Kuchu Shabu
+### Kuchu Shabu ★★★★☆
 
 I was immediately drawn to this place because I love [Japanese food](https://v7u.339.myftpupload.com/) and it looked super cute. It was also cold as heck when we got there and a hot dinner sounded great.
 
 We didn't get the shabu, but did get a couple of bowls of ramen. Pricey, but one of the best meals during our stay.
 
-### Drafts Burger Bar
+### Drafts Burger Bar ★★★★☆
 
 We went here for dinner and breakfast. Very tasty, but the wait staff seems a little disorganized and slow. Friendly, though.
 
@@ -126,23 +126,23 @@ For dinner we ordered burgers and they were huge and juicy. They also have a ton
 
 Their breakfast was just as good. I got french toast sliders with runny eggs. I'm getting hungry just thinking about it.
 
-### Murdock's Café
+### Murdock's Café ★★★☆☆
 
 Eh. It's quick and convenient. Overpriced sandwiches and they gave me a different sandwich than I ordered, but it tasted fine. We went here in between our morning and afternoon lessons because we had less than an hour to eat and meet back up.
 
-### Disco Pizza
+### Disco Pizza ★★★☆☆ 
 
-### Umbrella Bar
+### Umbrella Bar ★★★★★
 
 This is a cute outdoor bar in the middle of Canyons Village. We got a beverage after our last run and just sat and enjoyed the area.
 
-### Escala Provisions Co. (hotel)
+### Escala Provisions Co. (hotel) ★★★☆☆
 
-### Red Pine Lodge (mountain)
+### Red Pine Lodge (mountain) ★★★☆☆
 
-### Wasatch Brew Pub (Park City)
+### Wasatch Brew Pub (Park City) ★★★★★
 
-### Atticus Coffee (Park City)
+### Atticus Coffee (Park City) ★★★★★
 
 ## Things to do
 
