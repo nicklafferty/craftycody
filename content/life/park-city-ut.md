@@ -38,13 +38,17 @@ The point of most of this gear is to keep you **warm and dry**. You do not want 
 
 ### Wrist guards
 
+## Rental equipment
+
+We rented the rest of our gear: snowboards, boots, and helmets. I cannot stress enough how important the helmet is. As I said, I fell a bunch, but I only landed on my head once and my helmet saved me from having a really bad day.
+
+We were able to rent our gear inside our hotel so it made pickup and dropoff very easy. There are rental places all over Canyons Village and Park City.
+
 ## Park City, UT
 
 We landed on Park City because, well, it's a really popular ski destination and popular places usually have all of their tourist activities down to a science. We wanted a vacation that would be easy to plan since it's something we hadn't done before.
 
 ## Hotel
-
-## Rental equipment
 
 ## Mountain
 
