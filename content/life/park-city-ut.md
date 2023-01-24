@@ -20,7 +20,7 @@ We don't do a lot of "last minute" trips, but both of us had been talking about 
 
 I'll get into the actual trip in a moment but wanted to start off with all the gear we had to get to make this trip possible. There is a _lot_ of stuff we had to buy that can make a trip like this prohibitive and I'm glad we waited so long to try it.
 
-The point of most of this gear is to keep you warm and dry. You do not want to wear jeans otherwise you'll be wet and cold all day. I fell a _lot_, but I stayed dry the whole time.
+The point of most of this gear is to keep you **warm and dry**. You do not want to wear jeans otherwise you'll be wet and cold all day. I fell a _lot_, but I stayed dry the whole time.
 
 ### Snowboarding coat
 
