@@ -66,6 +66,10 @@ Be sure to size up your ski pants to make sure these fit underneath. They are su
 
 I recommend these because I didn't wear mine and jammed/sprained my arm. So, lesson learned.
 
+### Snow boots
+
+You need a pair of cold-weather boots for walking around. I didn't have any and didn't know what to expect so I wore normal boots. I will be buying boots for next time. I've been eyeballing the [UGG Adirondack](https://www.ugg.com/women-cold-weather-boots/adirondack-iii-boot/1095141.html).
+
 ### Rental equipment
 
 We rented the rest of our gear: snowboards, boots, and helmets. I cannot stress enough how important the helmet is. As I said, I fell a bunch, but I only landed on my head once and my helmet saved me from having a really bad day.
