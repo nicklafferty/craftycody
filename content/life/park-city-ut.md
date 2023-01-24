@@ -146,6 +146,8 @@ This is a cute outdoor bar in the middle of Canyons Village. We got a beverage a
 
 ### Escala Provisions Co. (hotel) ★★★☆☆
 
+As I said earlier, we ate here once for breakfast and it was pretty good. Hotels will always hit you with upcharges for convenience though. The food was good, but not really worth the price and there was a lackluster buffet available as well.
+
 ### Red Pine Lodge (mountain) ★★★☆☆
 
 ### Wasatch Brew Pub (Park City) ★★★★★
