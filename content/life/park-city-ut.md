@@ -128,6 +128,8 @@ Their breakfast was just as good. I got french toast sliders with runny eggs. I'
 
 ### Murdock's Café
 
+Eh. It's quick and convenient. Overpriced sandwiches and they gave me a different sandwich than I ordered, but it tasted fine. We went here in between our morning and afternoon lessons because we had less than an hour to eat and meet back up.
+
 ### Disco Pizza
 
 ### Umbrella Bar
