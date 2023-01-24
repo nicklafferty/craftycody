@@ -130,7 +130,11 @@ We went here for [dinner and breakfast](https://www.westgateresorts.com/hotels/u
 
 For dinner we ordered burgers and they were huge and juicy. They also have a ton of sides you can get instead of regular french fries. Delicious.
 
+![](/uploads/dbb-dinner.jpg)
+
 Their breakfast was just as good. I got french toast sliders with runny eggs. I'm getting hungry just thinking about it.
+
+![](/uploads/dbb-breakfast.jpg)
 
 ### Murdock's Café ★★☆☆☆
 
@@ -149,6 +153,10 @@ This is a cute outdoor bar in the middle of Canyons Village. We got a beverage a
 ### Escala Provisions Co. (hotel) ★★★☆☆
 
 As I said earlier, we ate here once for breakfast and it was pretty good. Hotels will always hit you with upcharges for convenience though. The food was good, but not really worth the price and there was a lackluster buffet available as well.
+
+![](/uploads/hotel-breakfast.jpg)
+
+![](/uploads/hotel-breakfast2.jpg)
 
 ### Red Pine Lodge (mountain) ★★★☆☆
 
