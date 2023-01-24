@@ -160,6 +160,8 @@ I also got coffee a couple of times and it wasn't great, but it was warm so.
 
 ### Wasatch Brew Pub (Park City) ★★★★★
 
+We took a day trip to Park City and found this cute brewery. 
+
 ### Atticus Coffee (Park City) ★★★★★
 
 ## Things to do
