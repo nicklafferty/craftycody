@@ -104,7 +104,7 @@ The whole place is beautiful, enchanting, and romantic.
 
 If you've never snowboarded or skied, I highly recommend taking lessons. There are tons of instructors of all skill levels ready to help you and your family/friends/group get safely down the slopes and enjoy your time. Classes are about 3 hours long.
 
-We did a morning and afternoon snowboarding class. There were high winds in the morning so the gondola up the mountain was closed and we learned on a smaller hill by the hotels. 
+We did a morning and afternoon snowboarding class. There were high winds in the morning so the gondola up the mountain was closed and we learned on a smaller hill by the hotels. Afterward, we signed up for an afternoon lesson and, thankfully, the gondolas had opened back up so we could go up the mountain and learn on actual slopes. There is no way I would have attempted even green slopes without taking lessons.
 
 ## Restaurants
 
