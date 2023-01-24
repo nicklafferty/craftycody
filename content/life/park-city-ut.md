@@ -106,6 +106,8 @@ If you've never snowboarded or skied, I highly recommend taking lessons. There a
 
 We did a morning and afternoon snowboarding class. There were high winds in the morning so the gondola up the mountain was closed and we learned on a smaller hill by the hotels. Afterward, we signed up for an afternoon lesson and, thankfully, the gondolas had opened back up so we could go up the mountain and learn on actual slopes. There is no way I would have attempted even green slopes without taking lessons.
 
+We had an _awesome_ instructor named Blake. He was a really cool guy and a great teacher. Quite literally would hold our hands to help us get the right movements and was very patient.
+
 ## Restaurants
 
 ### Kuchu Shabu
