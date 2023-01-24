@@ -78,6 +78,8 @@ Okay, on to the actual vacation!
 
 We landed on Park City because, well, it's a really popular ski destination and popular places usually have all of their tourist activities down to a science. We wanted a vacation that would be easy to plan since it's something we hadn't done before.
 
+We stayed in Canyons Village which is right by Park City. It's at the base of the mountain so you basically walk out of your hotel and hop on a gondola to go skiing. We didn't want to rent a car for this trip so this was a great option. There are several hotels in Canyons Village as well as shops and restaurants. It's a really cute area.
+
 ## Hotel
 
 ## Mountain
