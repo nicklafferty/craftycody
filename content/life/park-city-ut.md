@@ -52,7 +52,9 @@ I'm going to look for actual gloves instead of mittens and something that feels 
 
 Again, preference. I found this [cute pink pair on Amazon](https://www.amazon.com/dp/B0B8G8SM3R?ref=ppx_yo2ov_dt_b_product_details&th=1). Pay attention to what kind of lighting each lens is suited for. When we went, it was sunny and these really helped mitigate the reflection off of the snow.
 
-### Balaclava
+### Balaclava/gaiter
+
+You gotta keep the wind off of your face. I bought [this two-pack of face gaiters](https://www.amazon.com/dp/B08M99BJV1?ref=ppx_yo2ov_dt_b_product_details&th=1) from Amazon and wore the pink one. They were a little thick but did keep my face warm.
 
 ### Padded underwear
 
