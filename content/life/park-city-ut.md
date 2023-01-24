@@ -134,7 +134,11 @@ Their breakfast was just as good. I got french toast sliders with runny eggs. I'
 
 Eh. It's quick and convenient. Overpriced sandwiches and they gave me a different sandwich than I ordered, but it tasted fine. We went here in between our morning and afternoon lessons because we had less than an hour to eat and meet back up.
 
-### Disco Pizza ★★★☆☆ 
+### Disco Pizza ★★★☆☆
+
+Disco Pizza is one of those places that looks like it does stuff well, but it's actually just okay. Overpriced like everything and takes forever to get your order. Honestly, I would stick with the plainer pizzas. You'll save some money and will taste better for it. They're also "personal" size so don't let the price fool you into thinking they'll feed several people. _Maybe_ two tops.
+
+I got their mushroom one because I love burrata cheese, but it was absolutely covered in mushrooms. I mean covered. Way, way too much.
 
 ### Umbrella Bar ★★★★★
 
@@ -150,8 +154,8 @@ This is a cute outdoor bar in the middle of Canyons Village. We got a beverage a
 
 ## Things to do
 
-Skiing/Snowboarding
+### Skiing/Snowboarding
 
-Day trip to Park City
+### Day trip to Park City
 
-Other winter sports
+### Other winter sports
