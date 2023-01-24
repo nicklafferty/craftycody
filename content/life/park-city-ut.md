@@ -124,9 +124,9 @@ We didn't get the shabu but did get a couple of bowls of ramen. Pricey, but one 
 
 ### Drafts Burger Bar ★★★★☆
 
-We went here for dinner and breakfast. Very tasty, but the wait staff seems a little disorganized and slow. Friendly, though.
+We went here for [dinner and breakfast](https://www.westgateresorts.com/hotels/utah/park-city/westgate-park-city-resort/dining/drafts-sports-bar-grill/?utm_source=google-gmb&utm_medium=organic&utm_campaign=draftsparkcity_wgpcrs&y_source=1_OTc1MjIyMC03MTUtbG9jYXRpb24ud2Vic2l0ZQ%3D%3D). Very tasty, but the wait staff seems a little disorganized and slow. Friendly, though.
 
-For dinner we ordered burgers and they were huge and juicy. They also have a ton of sides you can get instead of regular french fries.
+For dinner we ordered burgers and they were huge and juicy. They also have a ton of sides you can get instead of regular french fries. Delicious.
 
 Their breakfast was just as good. I got french toast sliders with runny eggs. I'm getting hungry just thinking about it.
 
