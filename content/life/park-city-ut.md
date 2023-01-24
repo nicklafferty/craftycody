@@ -86,7 +86,9 @@ We stayed at the [Hyatt Centric Park City](https://www.hyatt.com/en-US/hotel/uta
 
 They have a great heated pool and jacuzzi area that is perfect after a long day on the slopes. We went every evening. Pro tip: wear your robe from your room so you can wrap up as soon as you dry off. This way you don't get your clothing wet from your swimsuit.
 
-We ate at the hotel's restaurant once for breakfast and it was tasty albeit overpriced. They also have baked goods you can grab, but we didn't get any which is kind of unlike us, haha.
+We ate at the hotel's restaurant once for breakfast and it was tasty albeit overpriced. They also have baked goods you can grab, but we didn't get any which is kind of unlike us, haha. There is no contenental breakfast.
+
+The only thing about this hotel is that it's a little hard to get to on foot. Not impossible by any means, but it's the furthest one from the main area. We walked up many a snowy slope to and from our hotel.
 
 ## Mountain
 
