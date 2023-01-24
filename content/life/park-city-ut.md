@@ -1,5 +1,5 @@
 +++
-date = ""
+date = 2023-01-24T06:00:00Z
 description = "A magical snowboarding adventure"
 draft = true
 image = "/uploads/park-city-ut-vacation-header.png"
