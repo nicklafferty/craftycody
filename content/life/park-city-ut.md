@@ -12,6 +12,8 @@ Park City
 
 Hotel
 
+Rental equipment
+
 Mountain
 
 Snowboard lessons
