@@ -2,7 +2,7 @@
 date = ""
 description = "A quick, cute, and FREE crochet pattern!"
 draft = true
-image = ""
+image = "/uploads/bear-phone-case-pattern-header.png"
 slug = "free-crochet-bear-case"
 tags = ["crochet", "pattern"]
 title = "Free Pattern: Kawaii Bear Phone Case"
