@@ -8,7 +8,7 @@ tags = ["crochet", "pattern"]
 title = "Free Pattern: Kawaii Bear Phone Case"
 
 +++
-I felt creative but didn't want to start a big, new project. Something small was in order. So, I decided to scroll through Pinterest and try to find some inspiration for a new phone case. There were a lot of cute ideas, but they were not _exactly_ what I was wanting.
+I felt creative but didn't want to start a big, new project. Something small was in order. So, I decided to scroll through Pinterest and try to find some inspiration for a new phone case. There were a lot of cute ideas, but they were not _exactly_ what I wanted.
 
 As always, I decided to make my own and you can too.
 
@@ -67,3 +67,13 @@ In white
 **RND 2:** (SC, Inc) around (18 sts)
 
 Finish off and leave long tail for sewing.
+
+### Assembly
+
+\-Use **black yarn** to sew nose and mouth onto white snout before attaching to case. Then, position it where you'd like and sew it into place.
+
+\-Sew ears onto the top of your case.
+
+\-Use **black yarn** to create "V" shape eyes.
+
+\-Use **pink yarn** for blush.
