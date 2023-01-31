@@ -12,6 +12,8 @@ I felt creative but didn't want to start a big, new project. Something small was
 
 As always, I decided to make my own and you can too.
 
+![](/uploads/1.png)
+
 ## Materials
 
 1. G-hook
