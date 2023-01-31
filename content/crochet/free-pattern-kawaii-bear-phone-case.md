@@ -14,6 +14,10 @@ As always, I decided to make my own and you can too.
 
 ## Materials
 
+1. G-hook
+2. Light brown, pink, black, and white yarn (all weight 4)
+3. Yarn needle
+
 ## Pattern
 
-As a note, I have a Pixel 7 so that's what this case fits. It's easily customizable, however. Just make a starting chain as wide as your phone then crochet as many rounds up as you need to get the right height.
+As a note, I have a **Pixel 7** so that's what this case fits. It's easily customizable, however. Make a starting chain as wide as your phone then crochet as many rounds up as you need to get the right height.
