@@ -32,3 +32,38 @@ ROW - row
 ## Pattern
 
 As a note, I have a **Pixel 7** so that's what this case fits. It's easily customizable, however. Make a starting chain as wide as your phone then crochet as many rounds up as you need to get the right height.
+
+### Case
+
+In light brown.
+
+**Ch. 14**
+
+**RND 1:** 3 SC inc in 2nd chain from hook  
+\-SC across until last ch.  
+\-3 SC inc in last ch. and turn  
+\-Then SC along opposite side of starting chain until you reach first SC inc.
+
+**RND 2-??:** SC around until you reach desired height. Mine is about 27 rounds.
+
+### Ears (make 2)
+
+In light brown
+
+**6 SC in MR**
+
+**ROW 1:** Ch. 1 and turn. Inc around (12 sts)
+
+Finish off and leave long tail for sewing.
+
+### Snout
+
+In white
+
+**6 SC in MR**
+
+**RND 1:** Inc around (12 sts)
+
+**RND 2:** (SC, Inc) around (18 sts)
+
+Finish off and leave long tail for sewing.
