@@ -1,7 +1,6 @@
 +++
 date = 2023-01-31T06:00:00Z
 description = "A quick, cute, and FREE crochet pattern!"
-draft = true
 image = "/uploads/bear-phone-case-pattern-header.png"
 slug = "free-crochet-bear-case"
 tags = ["crochet", "pattern"]
