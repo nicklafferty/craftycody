@@ -7,7 +7,6 @@ tags = ["diy", "video"]
 title = "Our Front Yard Xeriscape Overhaul"
 
 +++
-
 {{< youtube RRCYThPchi8 >}}
 
 The previous owners of our house took meticulous care of the lawn.
@@ -46,7 +45,7 @@ Plants I've found that deer actually won't eat: lavender, cacti, century plants,
 
 Dethatching is an important first step when you have a ton of dead grass as we did. It was super, super thick and would have made anything on top of it lay crooked.
 
-The process is simple but laborious. We took a [normal, metal rake](lowes.com/pd/CRAFTSMAN-58-in-L-Wood-Handle-Welded-steel-Garden-Rake/1000604757) and ripped up as much of the dead grass as we could throughout the yard. You're just looking to get it a little flatter and maybe expose dirt underneath.
+The process is simple but laborious. We took a normal, metal rake and ripped up as much of the dead grass as we could throughout the yard. You're just looking to get it a little flatter and maybe expose dirt underneath.
 
 There are also dethatching tools that can make this job easier. Our front yard isn't that large so we used the rake we already had.
 
