@@ -82,6 +82,8 @@ Drill hole for hanging on hooks. I used a 1-inch spade bit. I also used a clamp 
 
 I took a pencil and lightly drew around the handle to create a rough outline. Then, I used my jigsaw to shape the handle. It isn't going to be precise, but we can fix some imperfections with sanding.
 
+This is where I used my Dremel (more precise) and sanded around the hole I drilled into the handle for hooks. I wanted to round off the edges to create a polished look. I also used my actual sander for the edges around the board.
+
 Shaping with a jig saw and sanding smooth.
 
 ### Step six:
