@@ -30,10 +30,10 @@ Let's get started!
 ## Supplies:
 
  1. Scrap wood (I used 1x3s, a 1x5, and 2" balusters. Do **NOT** use pressure-treated wood if this is going to be used around/with food.)
- 2. [Miter saw](https://amzn.to/3PuX7Wd)
+ 2. [Miter saw](https://amzn.to/3X3vHsV)
  3. [Jig saw](https://amzn.to/3W2R39Q)
- 4. [Sander](https://amzn.to/3j5T2fg) and Dremel
- 5. [Planer](https://amzn.to/3BE3Kjo)
+ 4. [Sander](https://amzn.to/3wWcX3X) and [Dremel](https://amzn.to/3jy3aOr)
+ 5. [Planer](https://amzn.to/3x25TTc)
  6. [Drill](https://amzn.to/3HFH6eo)
  7. [Spade bits](https://amzn.to/3FtBfWR)
  8. [Liquid Nails](https://amzn.to/3HC3MvR)
