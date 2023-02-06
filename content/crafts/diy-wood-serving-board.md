@@ -45,7 +45,7 @@ Let's get started!
 
 ### Step one:
 
-The first thing we're going to do is pick out wood that will work. I mentioned it above, but do not use pressure-treated lumber if you're planning on using this as a cutting board or putting food on it in any way. That stuff will make you really sick.
+The first thing we're going to do is pick out wood that will work. I mentioned it above, but do not use pressure-treated lumber if you're planning on using this as a cutting board or putting food on it in any way. The chemicals used to coat it will seep into your food and can make you really sick.
 
 I'm planning on using mine as decor and to put plants on top of so I used a piece of pressure-treated wood I had lying around. The rest of the pieces were scrap 1x3s and balusters.
 
