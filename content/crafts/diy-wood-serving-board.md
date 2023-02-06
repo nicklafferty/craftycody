@@ -34,11 +34,12 @@ Let's get started!
  6. [Drill](https://amzn.to/3HFH6eo)
  7. [Spade bits](https://amzn.to/3FtBfWR)
  8. [Liquid Nails](https://amzn.to/3HC3MvR)
- 9. [Clamps](https://amzn.to/3WDEkL1)
-10. Stain/Mineral oil (If you're planning on using this with food in any capacity, be sure to get food-safe varnishes/stains/oils.)
-11. Ruler
-12. Speed square
-13. Safety gear
+ 9. Wood filler (if needed)
+10. [Clamps](https://amzn.to/3WDEkL1)
+11. Stain/Mineral oil (If you're planning on using this with food in any capacity, be sure to get food-safe varnishes/stains/oils.)
+12. Ruler
+13. Speed square
+14. Safety gear
 
 ## How-to:
 
@@ -84,7 +85,9 @@ I took a pencil and lightly drew around the handle to create a rough outline. Th
 
 This is where I used my Dremel (more precise) and sanded around the hole I drilled into the handle for hooks. I wanted to round off the edges to create a polished look. I also used my actual sander for the edges around the board.
 
-Shaping with a jig saw and sanding smooth.
+I sanded over the whole thing, front and back, several times. I want this to be as smooth as possible.
+
+When I finished, I used stainable wood filler to fill in the gaps between pieces of wood. This stuff is great because you can sand it after it dries and, as the name suggests, can stain it as well.
 
 ### Step six:
 
