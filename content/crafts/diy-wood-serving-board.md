@@ -39,7 +39,7 @@ Let's get started!
  8. [Liquid Nails](https://amzn.to/3I1Xs0z)
  9. Wood glue
 10. Wood filler (if needed)
-11. [Clamps](https://amzn.to/3WDEkL1)
+11. [Clamps](https://amzn.to/3ld3IcZ)
 12. Stain/Mineral oil (If you're planning on using this with food in any capacity, be sure to get food-safe varnishes/stains/oils.)
 13. Ruler
 14. Speed square
