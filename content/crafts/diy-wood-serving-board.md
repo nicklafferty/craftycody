@@ -87,7 +87,9 @@ Drill a hole for hanging your serving board on a hook. I used a 1-inch spade bit
 
 I took a pencil and lightly drew around the handle to create a rough outline. Then, I used my jigsaw to shape the handle. It isn't going to be precise, but we can fix some imperfections with sanding.
 
-This is where I used my Dremel (more precise) and sanded around the hole I drilled into the handle for hooks. I wanted to round off the edges to create a polished look. I also used my actual sander for the edges around the board.
+This is where I used my Dremel (more precise) and sanded around the hole I drilled into the handle for hooks. I wanted to round off the edges to create a polished look. I used my actual sander for the edges around the board.
+
+You could also use a Dremel to engrave and personalize this serving board.
 
 I sanded over the whole thing, front and back, several times. I want this to be as smooth as possible.
 
