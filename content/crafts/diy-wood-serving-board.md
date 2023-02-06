@@ -78,7 +78,9 @@ If you haven't already, glue the handle to the platter. I may drill two small ho
 
 ### Step five:
 
-Drill hole for hanging on hooks.
+Drill hole for hanging on hooks. I used a 1-inch spade bit. I also used a clamp to hold the whole piece together as drilling with spade bits can be jarring for whatever you're working on.
+
+I took a pencil and lightly drew around the handle to create a rough outline. Then, I used my jigsaw to shape the handle. It isn't going to be precise, but we can fix some imperfections with sanding.
 
 Shaping with a jig saw and sanding smooth.
 
