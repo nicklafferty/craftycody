@@ -29,7 +29,7 @@ Let's get started!
  1. Scrap wood (I used 1x3s, a 1x5, and 2" balusters. Do **NOT** use pressure-treated wood if this is going to be used around/with food.)
  2. [Miter saw](https://amzn.to/3PuX7Wd)
  3. [Jig saw](https://amzn.to/3W2R39Q)
- 4. [Sander](https://amzn.to/3j5T2fg)
+ 4. [Sander](https://amzn.to/3j5T2fg) and Dremel
  5. [Planer](https://amzn.to/3BE3Kjo)
  6. [Drill](https://amzn.to/3HFH6eo)
  7. [Spade bits](https://amzn.to/3FtBfWR)
