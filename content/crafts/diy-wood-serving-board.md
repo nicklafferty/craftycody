@@ -34,7 +34,7 @@ Let's get started!
  3. [Jig saw](https://amzn.to/3W2R39Q)
  4. [Sander](https://amzn.to/3wWcX3X) and [Dremel](https://amzn.to/3jy3aOr)
  5. [Planer](https://amzn.to/3x25TTc)
- 6. [Drill](https://amzn.to/3HFH6eo)
+ 6. [Drill](https://amzn.to/3JKVR0f)
  7. [Spade bits](https://amzn.to/3FtBfWR)
  8. [Liquid Nails](https://amzn.to/3HC3MvR)
  9. Wood filler (if needed)
