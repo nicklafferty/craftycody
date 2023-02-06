@@ -36,13 +36,14 @@ Let's get started!
  5. [Planer](https://amzn.to/3x25TTc)
  6. [Drill](https://amzn.to/3JKVR0f)
  7. [Spade bits](https://amzn.to/3FtBfWR)
- 8. [Liquid Nails](https://amzn.to/3HC3MvR)
- 9. Wood filler (if needed)
-10. [Clamps](https://amzn.to/3WDEkL1)
-11. Stain/Mineral oil (If you're planning on using this with food in any capacity, be sure to get food-safe varnishes/stains/oils.)
-12. Ruler
-13. Speed square
-14. Safety gear
+ 8. [Liquid Nails](https://amzn.to/3I1Xs0z)
+ 9. Wood glue
+10. Wood filler (if needed)
+11. [Clamps](https://amzn.to/3WDEkL1)
+12. Stain/Mineral oil (If you're planning on using this with food in any capacity, be sure to get food-safe varnishes/stains/oils.)
+13. Ruler
+14. Speed square
+15. Safety gear
 
 ## How-to:
 
