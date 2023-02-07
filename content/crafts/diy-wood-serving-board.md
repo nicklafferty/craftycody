@@ -8,7 +8,6 @@ tags = ["diy"]
 title = "DIY: Wood Serving Board"
 
 +++
-
 {{< youtube id_here_please >}}
 
 _This post may contain affiliate links. I earn a small commission on your purchase, but there are no added costs to you._
@@ -97,4 +96,8 @@ When I finished, I used stainable wood filler to fill in the gaps between pieces
 
 ### Step six:
 
-Staining/oiling/polishing.
+For stain, I chose Minwax in Early American. I didn't want it to be the same color as my table and this stain is very warm and lovely without being too red or too dark. I did one coat and I used a thin rag to apply the stain.
+
+Once dry, you can apply polyurethane to seal it all up. Do a couple of coats and sand with fine-grit sandpaper before your final coat to get an ultra-smooth finish.
+
+If you're planning on using this serving board for food, be sure to look into food-safe oils that will protect the wood but won't seep into your food. Again, I'm not using mine for food so I used regular stain and poly.
