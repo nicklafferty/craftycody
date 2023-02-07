@@ -67,7 +67,7 @@ When all of your pieces are cut, give them a light sanding.
 
 Time to glue them together. I glued the pieces that will make up the platter separate from the balusters that will make the handle since they're different thicknesses. We'll put them together later.
 
-Pick the sides you'd like as the tops, then run a thin bead of Liquid nails down one side of the board and attach the next board to it. Continue until they're all glued together. Use clamps to secure and let dry for about 24 hours.
+Pick the sides you'd like as the tops, then run a thin bead of Liquid nails down one side of the board and attach the next board to it. I ended up also using wood glue. Continue until they're all glued together. Use clamps to secure and let dry for about 24 hours.
 
 To be honest, I let the glue dry for a couple of weeks! Not entirely on purpose, but it worked out [we went on vacation](https://craftycody.com/life/park-city-snowboard/) in the middle of this project. When we got back, all the wood was super secure.
 
