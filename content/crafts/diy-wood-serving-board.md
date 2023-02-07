@@ -102,3 +102,7 @@ For stain, I went with Minwax in Early American. I didn't want it to be the same
 Once dry, you can apply polyurethane to seal it all up. Do a couple of coats and sand with fine-grit sandpaper before your final coat to get an ultra-smooth finish.
 
 If you're planning on using this serving board for food, be sure to look into food-safe oils that will protect the wood but won't seep into your food. Again, I'm not using mine for food so I used regular stain and poly.
+
+## Finished project
+
+Another IKEA dupe for the books! I couldn't justify the price tag of the IKEA serving board and having so much scrap wood comes in handy. Play around with attaching your boards together as well- sometimes glue isn't enough! This would be a great project to practice dowel joints or similar to secure the wood boards together. All you need are dowel pins and a drill bit of the same size.
