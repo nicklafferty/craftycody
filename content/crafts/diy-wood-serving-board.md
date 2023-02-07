@@ -92,11 +92,11 @@ You could also use a Dremel to engrave and personalize this serving board.
 
 I sanded over the whole thing, front and back, several times. I want this to be as smooth as possible.
 
-When I finished, I used stainable wood filler to fill in the gaps between pieces of wood. This stuff is great because you can sand it after it dries and, as the name suggests, can stain it as well.
+When I finished, I used stainable wood filler to fill in the gaps between pieces of wood. This stuff is great because you can sand it after it dries and, as the name suggests, can stain it to match.
 
 ### Step six:
 
-For stain, I chose Minwax in Early American. I didn't want it to be the same color as my table and this stain is very warm and lovely without being too red or too dark. I did one coat and I used a thin rag to apply the stain.
+For stain, I went with Minwax in Early American. I didn't want it to be the same color as my table and this stain is very warm and lovely without being too red or too dark. I did one coat and I used a thin rag to apply the stain.
 
 Once dry, you can apply polyurethane to seal it all up. Do a couple of coats and sand with fine-grit sandpaper before your final coat to get an ultra-smooth finish.
 
