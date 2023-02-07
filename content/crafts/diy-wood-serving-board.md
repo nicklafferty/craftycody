@@ -40,9 +40,10 @@ Let's get started!
 10. Wood filler (if needed)
 11. [Clamps](https://amzn.to/3ld3IcZ)
 12. Stain/Mineral oil (If you're planning on using this with food in any capacity, be sure to get food-safe varnishes/stains/oils.)
-13. Ruler
-14. Speed square
-15. Safety gear
+13. Polyurethane
+14. Ruler
+15. Speed square
+16. Safety gear
 
 ## How-to:
 
@@ -68,11 +69,11 @@ Time to glue them together. I glued the pieces that will make up the platter sep
 
 Pick the sides you'd like as the tops, then run a thin bead of Liquid nails down one side of the board and attach the next board to it. Continue until they're all glued together. Use clamps to secure and let dry for about 24 hours.
 
-To be honest, I let the glue dry for a couple of weeks! Not entirely on purpose, but it worked out we went on vacation in the middle of this project. When we got back, all the wood was super secure.
+To be honest, I let the glue dry for a couple of weeks! Not entirely on purpose, but it worked out [we went on vacation](https://craftycody.com/life/park-city-snowboard/) in the middle of this project. When we got back, all the wood was super secure.
 
 ### Step four:
 
-I'm going to use a hand planer to level the wood. Make sure everything is dry or the planer will pop all of your pieces apart. Sand everything smooth when finished.
+I'm going to use an electric hand planer to level the wood. Make sure everything is dry or the planer will pop all of your pieces apart. Sand everything smooth when finished.
 
 I was able to clamp my board to the side of my workbench and plane the sides of the board flat.
 
