@@ -7,7 +7,7 @@ tags = ["diy"]
 title = "DIY: Wood Serving Board"
 
 +++
-{{< youtube id_here_please >}}
+{{< youtube U-hKRvv7Qps >}}
 
 _This post may contain affiliate links. I earn a small commission on your purchase, but there are no added costs to you._
 
