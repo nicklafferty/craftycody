@@ -97,7 +97,7 @@ When I finished, I used stainable wood filler to fill in the gaps between pieces
 
 ### Step six:
 
-For stain, I went with Minwax in Early American. I didn't want it to be the same color as my table and this stain is very warm and lovely without being too red or too dark. I did one coat and I used a thin rag to apply the stain.
+For stain, I went with [Minwax in Early American](https://www.lowes.com/pd/Minwax-Wood-Finish-Early-American-Oil-Based-Interior-Stain-Actual-Net-Contents-32-fl-oz/999914229). I didn't want it to be the same color as my table and this stain is very warm and lovely without being too red or too dark. I did one coat and I used a thin rag to apply the stain.
 
 Once dry, you can apply polyurethane to seal it all up. Do a couple of coats and sand with fine-grit sandpaper before your final coat to get an ultra-smooth finish.
 
