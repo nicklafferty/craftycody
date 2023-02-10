@@ -65,7 +65,7 @@ When all of your pieces are cut, give them a light sanding.
 
 ### Step three:
 
-Time to glue them together. I glued the pieces that will make up the platter separate from the balusters that will make the handle since they're different thicknesses. We'll put them together later.
+Time to glue them together. I glued all of the platter pieces and all of the handle pieces together separately because they're different thicknesses. We'll put them together later.
 
 Pick the sides you'd like as the tops, then run a thin bead of Liquid nails down one side of the board and attach the next board to it. I ended up also using wood glue. Continue until they're all glued together. Use clamps to secure and let dry for about 24 hours.
 
