@@ -1,7 +1,6 @@
 +++
 date = 2023-02-10T06:00:00Z
 description = "Making a hefty, IKEA dupe serving platter"
-draft = true
 image = "/uploads/serving-board-diy-header.png"
 slug = "diy-serving-board"
 tags = ["diy"]
