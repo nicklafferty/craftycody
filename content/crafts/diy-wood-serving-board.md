@@ -106,3 +106,5 @@ If you're planning on using this serving board for food, be sure to look into fo
 ## Finished project
 
 Another IKEA dupe for the books! I couldn't justify the price tag of the IKEA serving board and having so much scrap wood comes in handy. Play around with attaching your boards together as well- sometimes glue isn't enough! This would be a great project to practice dowel or butterfly joints to secure the wood boards together. All you need are dowel pins and a drill bit of the same size.
+
+![](/uploads/finished-serving-board-diy.jpg)
