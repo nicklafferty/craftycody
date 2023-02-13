@@ -38,6 +38,8 @@ Let's get started!
 
 ### Step 1:
 
+This is going to be another project that you can completely customize. I'll be using my dimensions, but you can make this any size you need.
+
 ### Step 2:
 
 ### Step 3:
