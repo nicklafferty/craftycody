@@ -14,7 +14,7 @@ I needed something better.
 
 So after some Googling, I found a few ideas for jewelry storage I really liked. I don't have room for a traditional jewelry box of any size so I need to utilize wall space which I have plenty of.
 
-I found one that I instantly loved and knew I could build myself. We don't need many materials for this project at all making it beginner (and budget!) friendly.
+Eventually, I spotted one that I instantly loved and knew I could build myself. We don't need many materials for this project at all making it beginner (and budget!) friendly.
 
 Let's get started!
 
