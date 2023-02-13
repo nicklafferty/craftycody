@@ -1,6 +1,6 @@
 +++
 date = ""
-description = ""
+description = "Building a boho chic storage solution for all of your jewelry."
 draft = true
 image = ""
 slug = ""
