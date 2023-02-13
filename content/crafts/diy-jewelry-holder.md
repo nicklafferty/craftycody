@@ -20,7 +20,7 @@ Let's get started!
 
 ## Supplies:
 
- 1. 2x4x4 wood
+ 1. 2x4x4 pine
  2. Oak dowel
  3. Cup hooks (for necklaces)
  4. Keyhole fasteners (x2)
