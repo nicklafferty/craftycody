@@ -28,9 +28,11 @@ Let's get started!
  6. Drill
  7. Screws
  8. Sander
- 9. Stain (if needed)
-10. Poly
-11. Safety gear
+ 9. Wood glue
+10. Ruler and speed square
+11. Stain (if needed)
+12. Poly
+13. Safety gear
 
 ## How-to:
 
