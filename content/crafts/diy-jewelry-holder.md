@@ -22,11 +22,11 @@ Let's get started!
 
  1. 2x4x4 wood
  2. Oak dowel
- 3. Cup hooks
- 4. Keyhole fasteners
+ 3. Cup hooks (for necklaces)
+ 4. Keyhole fasteners (x2)
  5. Miter saw
  6. Drill
- 7. Screws
+ 7. Screws (x2)
  8. Sander
  9. Wood glue
 10. Ruler and speed square
