@@ -3,8 +3,8 @@ date = ""
 description = "Building a boho chic storage solution for all of your jewelry."
 draft = true
 image = ""
-slug = ""
-tags = []
+slug = "diy-jewelry-holder"
+tags = ["diy"]
 title = "DIY: Jewelry Holder"
 
 +++
