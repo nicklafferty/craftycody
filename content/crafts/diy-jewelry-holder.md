@@ -14,7 +14,7 @@ I needed something better.
 
 So after some Googling, I found a few ideas for jewelry storage I really liked. I don't have room for a traditional jewelry box of any size so I need to utilize wall space which I have plenty of.
 
-Eventually, I came across one that I instantly loved and knew I could build myself. We don't need many materials for this project at all making it beginner (and budget!) friendly.
+Eventually, I came across one that I instantly loved and knew I could build myself. We don't need many materials for this project at all making it beginner (and budget!) friendly. All of the materials cost about $20 and it was because I got a big pack of cup hooks which was $7 on its own.
 
 Let's get started!
 
