@@ -20,7 +20,7 @@ Let's get started!
 
 ## Supplies:
 
- 1. 2x4x4 pine
+ 1. 2x4x2 pine (x2)
  2. Oak dowel
  3. Cup hooks (for necklaces)
  4. Keyhole fasteners (x2)
@@ -39,6 +39,8 @@ Let's get started!
 ### Step 1:
 
 This is going to be another project that you can completely customize. I'll be using my dimensions, but you can make this any size you need.
+
+I started off with two 2x4x2 from Lowe's. You can grab a 4ft board, but mine was out of stock so I bought two 2ft boards.
 
 ### Step 2:
 
