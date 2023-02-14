@@ -21,7 +21,7 @@ Let's get started!
 ## Supplies:
 
  1. 2x4x2 pine (x2)
- 2. Oak dowel
+ 2. 3/8-in oak dowels (x2 @ 36-inches long)
  3. Cup hooks (for necklaces)
  4. Keyhole fasteners (x2)
  5. Miter saw
