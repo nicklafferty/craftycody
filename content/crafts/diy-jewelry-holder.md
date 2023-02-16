@@ -57,6 +57,8 @@ I predrilled some screw holes with a 1/8-inch bit to create guides for my screws
 
 I sanded everything off again to get rid of any splinters from drilling and to remove dried glue that smooshed out.
 
+If you'd like to paint or stain your jewelry holder, now is the time.
+
 ### Step 4:
 
 Time to size and cut the dowels. I wanted them to mimic the shape of the triangle and gradually get longer as they went down. Make them as long as you need to fit your jewelry. I eyeballed everything.
