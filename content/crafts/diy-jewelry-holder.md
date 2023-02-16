@@ -49,6 +49,16 @@ I decided not to cut them down any further since I liked the 2ft length. I used 
 
 Next, we're going to sand again. Get all the splinters off of your boards and smooth out any plane lines.
 
-Using some wood glue, I glued my jewelry holder together to form the triangle. Make sure the end grain from the top piece is facing down because we don't want it to look weird on the side.
+Using some wood glue, I glued my jewelry holder together to form the triangle. Make sure the end grain from the top piece is facing down because we don't want it to look weird on the side. I let this dry overnight.
 
 ### Step 3:
+
+I predrilled some screw holes with a 1/8-inch bit to create guides for my screws. I used 3-inch long wood screws to secure my two boards together. 
+
+I sanded everything off again to get rid of any splinters from drilling and to remove dried glue that smooshed out.
+
+### Step 4:
+
+### Step 5:
+
+### Step 6:
