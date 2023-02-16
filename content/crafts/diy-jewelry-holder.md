@@ -40,7 +40,7 @@ Let's get started!
 
 This is going to be another project that you can completely customize. I'll be using my dimensions, but you can make this any size you need.
 
-I started off with two 2x4x2 from Lowe's. You can grab a 4ft board, but mine was out of stock so I bought two 2ft boards.
+I started off with two 2x4x2 from Lowe's. You can grab a 4ft board, but they were out of stock so I bought two 2ft boards.
 
 ### Step 2:
 
