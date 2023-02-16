@@ -81,4 +81,4 @@ Now it's time to add the keyhole fasteners. I placed one near the top of the tri
 
 ### Step 7:
 
-The last building step is adding the cup hooks along the bottom.
+The last building step is adding the cup hooks along the bottom. Predrill small holes to make screwing these in by hand a ton easier. I drew a straight line down the middle of the base so I could evenly space them.
