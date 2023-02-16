@@ -65,4 +65,10 @@ After they were cut, I gave them a light sanding on their ends then stained them
 
 ### Step 5:
 
+Drilling the holes for the dowels was easily the most time-consuming part. I suggest getting a drill guide to help your drill go in straight otherwise you'll have to shape your holes repeatedly to make sure the dowels are parallel with the base.
+
+A trick that might help is using one of the scrap off-cuts from step one. They'll be 30 degrees as well and you can use a drill guide in conjunction with one to make sure the angle of the drill is correct.
+
+Anyway, after drilling I made sure all of the dowels went in and were sitting how I wanted them to. Then, I took some (a lot of) wood glue and filled the holes then slid the dowels into each. I used a mallet and my drill to hold them in place while the glue dried.
+
 ### Step 6:
