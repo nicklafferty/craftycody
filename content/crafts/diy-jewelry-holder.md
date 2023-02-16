@@ -59,6 +59,8 @@ I sanded everything off again to get rid of any splinters from drilling and to r
 
 ### Step 4:
 
+Time to size and cut the dowels.
+
 ### Step 5:
 
 ### Step 6:
