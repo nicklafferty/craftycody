@@ -22,11 +22,11 @@ Let's get started!
 
  1. 2x4x2 pine (x2)
  2. 3/8-in oak dowels (x2 @ 36-inches long)
- 3. 7/8-in cup hooks (for necklaces)
- 4. Keyhole fasteners (x2)
+ 3. [7/8-in cup hooks](https://amzn.to/3Iu8Gv1) (for necklaces)
+ 4. [Keyhole fasteners](https://amzn.to/3k0qSDd) (x2)
  5. Miter saw
- 6. Drill
- 7. Screws (x2)
+ 6. Drill/Impact Driver
+ 7. 3-inch wood screws (x2)
  8. Sander
  9. Planer
 10. Wood glue
