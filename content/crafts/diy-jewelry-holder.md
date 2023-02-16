@@ -53,13 +53,15 @@ Using some wood glue, I glued my jewelry holder together to form the triangle. M
 
 ### Step 3:
 
-I predrilled some screw holes with a 1/8-inch bit to create guides for my screws. I used 3-inch long wood screws to secure my two boards together. 
+I predrilled some screw holes with a 1/8-inch bit to create guides for my screws. I used 3-inch long wood screws to secure my two boards together.
 
 I sanded everything off again to get rid of any splinters from drilling and to remove dried glue that smooshed out.
 
 ### Step 4:
 
-Time to size and cut the dowels.
+Time to size and cut the dowels. I wanted them to mimic the shape of the triangle and gradually get longer as they went down. Make them as long as you need to fit your jewelry. I eyeballed everything.
+
+After they were cut, I gave them a light sanding on their ends then stained them in red mahogany.
 
 ### Step 5:
 
