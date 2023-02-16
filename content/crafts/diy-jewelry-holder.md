@@ -80,3 +80,5 @@ Wait 24 hours to really let that glue cure.
 Now it's time to add the keyhole fasteners. I placed one near the top of the triangle and the second one directly under it on the base.
 
 ### Step 7:
+
+The last building step is adding the cup hooks along the bottom.
