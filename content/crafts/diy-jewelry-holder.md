@@ -72,3 +72,5 @@ A trick that might help is using one of the scrap off-cuts from step one. They'l
 Anyway, after drilling I made sure all of the dowels went in and were sitting how I wanted them to. Then, I took some (a lot of) wood glue and filled the holes then slid the dowels into each. I used a mallet and my drill to hold them in place while the glue dried.
 
 ### Step 6:
+
+### Step 7:
