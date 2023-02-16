@@ -71,6 +71,10 @@ A trick that might help is using one of the scrap off-cuts from step one. They'l
 
 Anyway, after drilling I made sure all of the dowels went in and were sitting how I wanted them to. Then, I took some (a lot of) wood glue and filled the holes then slid the dowels into each. I used a mallet and my drill to hold them in place while the glue dried.
 
+Wait 24 hours to really let that glue cure.
+
 ### Step 6:
+
+Now it's time to add the keyhole fasteners.
 
 ### Step 7:
