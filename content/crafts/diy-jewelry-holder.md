@@ -1,5 +1,5 @@
 +++
-date = ""
+date = 2023-02-17T06:00:00Z
 description = "Building a boho chic storage solution for all of your jewelry."
 draft = true
 image = ""
@@ -77,7 +77,7 @@ Wait 24 hours to really let that glue cure. You can use wood filler for any gaps
 
 ### Step 6:
 
-Now it's time to add the keyhole fasteners. I placed one near the top of the triangle and the second one directly under it on the base.
+Now it's time to add the keyhole fasteners to the back of the piece. I placed one near the top of the triangle and the second one directly under it on the base.
 
 ### Step 7:
 
