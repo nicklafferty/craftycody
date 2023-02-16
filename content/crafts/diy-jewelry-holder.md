@@ -28,11 +28,12 @@ Let's get started!
  6. Drill
  7. Screws (x2)
  8. Sander
- 9. Wood glue
-10. Ruler and speed square
-11. Stain (if needed)
-12. Poly
-13. Safety gear
+ 9. Planer
+10. Wood glue
+11. Ruler and speed square
+12. Stain (if needed)
+13. Poly
+14. Safety gear
 
 ## How-to:
 
@@ -40,10 +41,12 @@ Let's get started!
 
 This is going to be another project that you can completely customize. I'll be using my dimensions, but you can make this any size you need.
 
-I started off with two 2x4x2 from Lowe's. You can grab a 4ft board, but they were out of stock so I bought two 2ft boards.
+I started off with two 2x4x2 from Lowe's. You can grab a 4ft board, but they were out of stock so I bought two 2ft boards. I went ahead and did some sanding and planed before getting started.
 
 I decided not to cut them down any further since I liked the 2ft length. I used my miter saw to cut 30-degree angles on each of the ends. You'll need to chop a little off from the board you use as the bottom piece so the triangle will look "even". Cut one angle about 1.5 inches in to achieve this.
 
 ### Step 2:
+
+Next, we're going to sand again. Get all the splinters off of your boards and smooth out any plane lines.
 
 ### Step 3:
