@@ -65,6 +65,8 @@ Time to size and cut the dowels. I wanted them to mimic the shape of the triangl
 
 After they were cut, I gave them a light sanding on their ends then stained them in 'Red Mahogany'.
 
+When the stain is dry, coat your piece in poly and follow the instructions on the label.
+
 ### Step 5:
 
 Drilling the holes for the dowels was easily the most time-consuming part. I suggest getting a drill guide to help your drill go in straight otherwise you'll have to shape your holes repeatedly to make sure the dowels are parallel with the base. Also, be sure to use a drill bit that is the same width as the dowels you use. I'm using 3/8" dowels, so I used a 3/8" bit to drill the holes.
@@ -90,3 +92,5 @@ I spaced them as evenly as I could and was able to fit seven hooks. Add or subtr
 ### Step 8:
 
 Once everything is dry and all together, it's time to hang! I used two nails with wider heads to fit into the keyhole fasteners.
+
+### Finished project
