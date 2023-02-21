@@ -89,4 +89,4 @@ I spaced them as evenly as I could and was able to fit seven hooks. Add or subtr
 
 ### Step 8:
 
-Once everything is dry and all together, it's time to hang! I used two nails, both with wider heads to fit into the keyhole fasteners.
+Once everything is dry and all together, it's time to hang! I used two nails with wider heads to fit into the keyhole fasteners.
