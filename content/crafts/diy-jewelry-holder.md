@@ -79,7 +79,7 @@ Wait 24 hours to really let that glue cure. You can use wood filler for any gaps
 
 Now it's time to add the keyhole fasteners to the back of the piece. I placed one near the top of the triangle and the second one directly under it on the base. I predrilled holes for the screws to avoid splitting the wood.
 
-You might find that your keyhole fastener is too big to fit on one of your boards. Feel free to drill an inch or so into the board with a large-ish bit so that a nail or screw can fit inside.
+You might find that your keyhole fastener is too big to fit on one of your boards. Feel free to drill an inch or so into the board with a large-ish bit so that a nail or screw can fit inside. I had to do this on the bottom board- the fastener was just too tall. I used a 5/8-inch bit.
 
 ### Step 7:
 
