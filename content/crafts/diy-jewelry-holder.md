@@ -82,3 +82,5 @@ Now it's time to add the keyhole fasteners to the back of the piece. I placed on
 ### Step 7:
 
 The last building step is adding the cup hooks along the bottom. Predrill small holes to make screwing these in by hand a ton easier. I drew a straight line down the middle of the base so I could evenly space them. A 2x4 is actually 1.5x3.5 so the center would be 1.75 inches in.
+
+I used a 1/8-inch bit to predrill small holes for the cup hooks. They're kind of a pain to screw in without pre-drilling. I spaced them as evenly as I could and was able to fit seven hooks. Add or subtract as many as you need.
