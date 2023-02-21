@@ -3,9 +3,9 @@ date = 2023-02-17T06:00:00Z
 description = "Building a boho chic storage solution for all of your jewelry."
 draft = true
 image = ""
-slug = "diy-jewelry-holder"
+slug = "diy-jewelry-organizer"
 tags = ["diy"]
-title = "DIY: Jewelry Holder"
+title = "DIY: Jewelry Organizer"
 
 +++
 I'll be honest, my jewelry storage was pretty pathetic. I put together what I thought was a cute idea years ago and have been dealing with it ever since. It's heavy and, admittedly, ugly. I can't really hang it anywhere anymore because I always knock into it and it's hard to get the piece of jewelry I want off of it. It's too bulky and can't hold all of the jewelry I've accumulated over the years. What isn't hanging off of my wooden monstrosity is just hidden away in drawers.
@@ -50,7 +50,7 @@ I decided not to cut them down any further since I liked the 2ft length. I used 
 
 Next, we're going to sand again. Get all the splinters off of your boards and smooth out any plane lines.
 
-Using some wood glue, I glued my jewelry holder together to form the triangle. Make sure the end grain from the top piece is facing down because we don't want it to look weird on the side. I let this dry overnight.
+Using some wood glue, I glued my jewelry organizer together to form the triangle. Make sure the end grain from the top piece is facing down because we don't want it to look weird on the side. I let this dry overnight.
 
 ### Step 3:
 
@@ -58,7 +58,7 @@ I predrilled some screw holes with a 1/8-inch bit to create guides for my screws
 
 I sanded everything off again to get rid of any splinters from drilling and to remove dried glue that smooshed out.
 
-If you'd like to paint or stain your jewelry holder, now is the time. I was going to leave mine natural, but it was looking unfinished so I went ahead and stained mine in 'Early American' by Minwax.
+If you'd like to paint or stain your jewelry organizer, now is the time. I was going to leave mine natural, but it was looking unfinished so I went ahead and stained mine in 'Early American' by Minwax.
 
 ### Step 4:
 
@@ -94,10 +94,12 @@ I spaced them as evenly as I could and was able to fit seven hooks. Add or subtr
 
 Once everything is dry and all together, it's time to hang! I used two nails with wider heads to fit into the keyhole fasteners.
 
+Place nails into the mounts (keyhole fasteners and/or holes) on your jewelry holder and hold them in place and press them against the wall. You can use this as a placement guide.
+
 If you're going to be putting heavy objects on this, I would suggest mounting it into studs or, at the very least, using anchors and screws to hold it up.
 
 ### Finished project
 
-Another inexpensive piece is finished! As I said above, this whole project cost me about $20 and these jewelry holders can cost over $100 online. This is a versatile project because you can make it any size you need and stain/paint it whatever you'd like.
+Another inexpensive piece is finished! As I said above, this whole project cost me about $20 and these jewelry organizers can cost over $100 online. This is a versatile project because you can make it any size you need and stain/paint it whatever you'd like.
 
 Now all that's left is to fill it with treasures!
