@@ -67,7 +67,7 @@ After they were cut, I gave them a light sanding on their ends then stained them
 
 ### Step 5:
 
-Drilling the holes for the dowels was easily the most time-consuming part. I suggest getting a drill guide to help your drill go in straight otherwise you'll have to shape your holes repeatedly to make sure the dowels are parallel with the base.
+Drilling the holes for the dowels was easily the most time-consuming part. I suggest getting a drill guide to help your drill go in straight otherwise you'll have to shape your holes repeatedly to make sure the dowels are parallel with the base. Also, be sure to use a drill bit that is the same width as the dowels you use. I'm using 3/8" dowels, so I used a 3/8" bit to drill the holes.
 
 A trick that might help is using one of the scrap off-cuts from step one. They'll be 30 degrees as well and you can use a drill guide in conjunction with one to make sure the angle of the drill is correct.
 
