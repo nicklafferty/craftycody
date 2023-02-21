@@ -57,13 +57,13 @@ I predrilled some screw holes with a 1/8-inch bit to create guides for my screws
 
 I sanded everything off again to get rid of any splinters from drilling and to remove dried glue that smooshed out.
 
-If you'd like to paint or stain your jewelry holder, now is the time.
+If you'd like to paint or stain your jewelry holder, now is the time. I was going to leave mine natural, but it was looking unfinished so I went ahead and stained mine in 'Early American' by Minwax.
 
 ### Step 4:
 
 Time to size and cut the dowels. I wanted them to mimic the shape of the triangle and gradually get longer as they went down. Make them as long as you need to fit your jewelry. I eyeballed everything.
 
-After they were cut, I gave them a light sanding on their ends then stained them in red mahogany.
+After they were cut, I gave them a light sanding on their ends then stained them in 'Red Mahogany'.
 
 ### Step 5:
 
