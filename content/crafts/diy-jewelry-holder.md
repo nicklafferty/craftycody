@@ -14,7 +14,7 @@ I needed something better.
 
 So after some Googling, I found a few ideas for jewelry storage I really liked. I don't have room for a traditional jewelry box of any size so I need to utilize wall space which I have plenty of.
 
-Eventually, I came across one that I instantly loved and knew I could build myself. We don't need many materials for this project at all making it beginner (and budget!) friendly. All of the materials cost about $20 and it was because I got a big pack of cup hooks which was $7 on its own.
+Eventually, I came across one that I instantly loved and knew I could build myself. We don't need many materials for this project at all making it beginner (and budget!) friendly. All of the materials cost about $20 and it was because I got a big pack of cup hooks which was $7 on its own. These jewelry organizers can easily cost over $100 online. This is a versatile project because you can make it any size you need and stain/paint it whatever you'd like.
 
 Let's get started!
 
@@ -22,7 +22,7 @@ Let's get started!
 
  1. 2x4x2 pine (x2)
  2. 3/8-in oak dowels (x2 @ 36-inches long)
- 3. [7/8-in cup hooks](https://amzn.to/3Iu8Gv1) (for necklaces)
+ 3. [7/8-in cup hooks](https://amzn.to/3Iu8Gv1) (for necklaces, I used seven total)
  4. [Keyhole fasteners](https://amzn.to/3k0qSDd) (x2)
  5. Miter saw
  6. Drill/Impact Driver
@@ -103,7 +103,5 @@ If you're going to be putting heavy objects on this, I would suggest mounting it
 ### Finished project
 
 Creating a DIY jewelry organizer is not only a fun and creative project, but also a practical solution for keeping your jewelry organized and easily accessible. By following the simple steps outlined in this guide, you can create a unique and personalized jewelry storage solution that fits your specific needs and style preferences. Not only will this save you time and frustration in the morning rush, but it will also help to prolong the life of your jewelry by keeping it organized and protected. So why wait? Get started on your DIY jewelry organizer today and enjoy the benefits of a clutter-free and stylish space!
-
-As I said above, this whole project cost me about $20 and these jewelry organizers can cost over $100 online. This is a versatile project because you can make it any size you need and stain/paint it whatever you'd like.
 
 Now all that's left is to fill it with treasures!
