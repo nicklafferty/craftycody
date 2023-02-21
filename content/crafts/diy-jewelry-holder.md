@@ -94,3 +94,7 @@ I spaced them as evenly as I could and was able to fit seven hooks. Add or subtr
 Once everything is dry and all together, it's time to hang! I used two nails with wider heads to fit into the keyhole fasteners.
 
 ### Finished project
+
+Another inexpensive piece is finished! As I said above, this whole project cost me about $20 and these jewelry holders can cost over $100 online. This is a versatile project because you can make it any size you need and stain/paint it whatever you'd like.
+
+Now all that's left is to fill it with treasures!
