@@ -84,6 +84,8 @@ Now it's time to add the keyhole fasteners to the back of the piece. I placed on
 
 You might find that your keyhole fastener is too big to fit on one of your boards. Feel free to drill an inch or so into the board with a large-ish bit so that a nail or screw can fit inside. I had to do this on the bottom board- the fastener was just too tall. I used a 5/8-inch bit.
 
+You can skip keyhole fasteners altogether and drill holes on the top and bottom instead if you prefer.
+
 ### Step 7:
 
 The last building step is adding the cup hooks along the bottom. Predrill small holes to make screwing these in by hand a ton easier. I used a 1/16-inch bit to predrill small holes for the cup hooks. I drew a straight line down the middle of the base so I could evenly space them. A 2x4 is actually 1.5x3.5 so the center would be 1.75 inches in.
