@@ -33,7 +33,8 @@ Let's get started!
 11. Ruler and speed square
 12. Stain (if needed)
 13. Poly
-14. Safety gear
+14. Nails or screws for mounting
+15. Safety gear
 
 ## How-to:
 
@@ -92,6 +93,8 @@ I spaced them as evenly as I could and was able to fit seven hooks. Add or subtr
 ### Step 8:
 
 Once everything is dry and all together, it's time to hang! I used two nails with wider heads to fit into the keyhole fasteners.
+
+If you're going to be putting heavy objects on this, I would suggest mounting it into studs or, at the very least, using anchors and screws to hold it up.
 
 ### Finished project
 
