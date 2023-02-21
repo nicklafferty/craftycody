@@ -88,3 +88,5 @@ The last building step is adding the cup hooks along the bottom. Predrill small 
 I spaced them as evenly as I could and was able to fit seven hooks. Add or subtract as many as you need.
 
 ### Step 8:
+
+Once everything is dry and all together, it's time to hang! I used two nails, both with wider heads to fit into the keyhole fasteners.
