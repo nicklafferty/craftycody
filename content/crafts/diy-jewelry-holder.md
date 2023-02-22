@@ -2,7 +2,7 @@
 date = 2023-02-24T06:00:00Z
 description = "Building a boho chic storage solution for all of your jewelry."
 draft = true
-image = ""
+image = "/uploads/jewelry-organizer.png"
 slug = "diy-jewelry-organizer"
 tags = ["diy"]
 title = "DIY: Jewelry Organizer"
@@ -15,6 +15,8 @@ I needed something better.
 So after some Googling, I found a few ideas for jewelry storage I really liked. I don't have room for a traditional jewelry box of any size so I need to utilize wall space which I have plenty of.
 
 Eventually, I came across one that I instantly loved and knew I could build myself. We don't need many materials for this project at all making it beginner (and budget!) friendly. All of the materials cost about $20 and it was because I got a big pack of cup hooks which was $7 on its own. These jewelry organizers can easily cost over $100 online. This is a versatile project because you can make it any size you need and stain/paint it whatever you'd like.
+
+![](/uploads/jewelry-organizer-diy.jpg)
 
 Let's get started!
 
@@ -82,6 +84,8 @@ Wait 24 hours to really let that glue cure. You can use wood filler for any gaps
 
 Now it's time to add the keyhole fasteners to the back of the piece. I placed one near the top of the triangle and the second one directly under it on the base. I predrilled holes for the screws to avoid splitting the wood.
 
+![](/uploads/fasteners-hooks-jewelry-organizer-diy.jpg)
+
 You might find that your keyhole fastener is too big to fit on one of your boards. Feel free to drill an inch or so into the board with a large-ish bit so that a nail or screw can fit inside. I had to do this on the bottom board- the fastener was just too tall. I used a 5/8-inch bit.
 
 You can skip keyhole fasteners altogether and drill holes on the top and bottom instead if you prefer.
@@ -105,3 +109,5 @@ If you're going to be putting heavy objects on this, I would suggest mounting it
 Creating a DIY jewelry organizer is not only a fun and creative project, but also a practical solution for keeping your jewelry organized and easily accessible. By following the simple steps outlined in this guide, you can create a unique and personalized jewelry storage solution that fits your specific needs and style preferences. Not only will this save you time and frustration in the morning rush, but it will also help to prolong the life of your jewelry by keeping it organized and protected. So why wait? Get started on your DIY jewelry organizer today and enjoy the benefits of a clutter-free and stylish space!
 
 Now all that's left is to fill it with treasures!
+
+![](/uploads/jewelry-organizer-close-up.jpg)
