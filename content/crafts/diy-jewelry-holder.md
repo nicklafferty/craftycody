@@ -57,7 +57,7 @@ Using some wood glue, I glued my jewelry organizer together to form the triangle
 
 ### Step 3:
 
-I predrilled some screw holes with a 1/8-inch bit to create guides for my screws. I used 3-inch long wood screws to secure my two boards together.
+I predrilled some screw holes with a 1/8-inch bit to create pilot holes for my screws. I used 3-inch long wood screws to secure my two boards together.
 
 I sanded everything off again to get rid of any splinters from drilling and to remove dried glue that smooshed out.
 
