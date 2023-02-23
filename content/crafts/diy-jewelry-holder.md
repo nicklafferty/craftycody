@@ -31,12 +31,13 @@ Let's get started!
  7. 3-inch wood screws (x2)
  8. Sander
  9. Planer
-10. Wood glue
-11. Ruler and speed square
-12. Stain (if needed)
-13. Poly
-14. Nails or screws for mounting
-15. Safety gear
+10. Flush cut saw
+11. Wood glue
+12. Ruler and speed square
+13. Stain (if needed)
+14. Poly
+15. Nails or screws for mounting
+16. Safety gear
 
 ## How-to:
 
