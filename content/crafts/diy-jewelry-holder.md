@@ -65,7 +65,7 @@ If you'd like to paint or stain your jewelry organizer, now is the time. I was g
 
 ### Step 4:
 
-Time to size and cut the dowels. I wanted them to mimic the shape of the triangle and gradually get longer as they went down. Make them as long as you need to fit your jewelry. I eyeballed everything.
+Time to size and cut the dowels. I wanted them to mimic the shape of the triangle and gradually get longer as they went down. Make them as long as you need to fit your jewelry. I eyeballed everything. I used a flush cut saw to cut them.
 
 After they were cut, I gave them a light sanding on their ends then stained them in 'Red Mahogany'.
 
