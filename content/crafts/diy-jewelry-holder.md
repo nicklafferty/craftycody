@@ -7,6 +7,9 @@ tags = ["diy"]
 title = "DIY: Jewelry Organizer"
 
 +++
+
+{{< youtube d7FSZ31rBok >}}
+
 I'll be honest, my jewelry storage was pretty pathetic. I put together what I thought was a cute idea years ago and have been dealing with it ever since. It's heavy and, admittedly, ugly. I can't really hang it anywhere anymore because I always knock into it and it's hard to get the piece of jewelry I want off of it. It's too bulky and can't hold all of the jewelry I've accumulated over the years. What isn't hanging off of my wooden monstrosity is just hidden away in drawers.
 
 I needed something better.
