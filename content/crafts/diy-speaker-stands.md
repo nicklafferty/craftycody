@@ -1,6 +1,6 @@
 +++
 date = ""
-description = ""
+description = "Giving speakers a stylish home with extra storage"
 draft = true
 image = ""
 slug = ""
