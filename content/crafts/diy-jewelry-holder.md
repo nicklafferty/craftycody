@@ -7,8 +7,9 @@ tags = ["diy"]
 title = "DIY: Jewelry Organizer"
 
 +++
-
 {{< youtube d7FSZ31rBok >}}
+
+Update: I've just listed a [downloadable PDF version of my jewelry organizer](https://www.etsy.com/listing/1415396736/jewelry-organizer-woodworking-plans-boho?click_key=ab293c2a4770112e1a4db9741eb7155d935a7764%3A1415396736&click_sum=1e55f759&ref=shop_home_feat_4) on my Etsy storefront!
 
 I'll be honest, my jewelry storage was pretty pathetic. I put together what I thought was a cute idea years ago and have been dealing with it ever since. It's heavy and, admittedly, ugly. I can't really hang it anywhere anymore because I always knock into it and it's hard to get the piece of jewelry I want off of it. It's too bulky and can't hold all of the jewelry I've accumulated over the years. What isn't hanging off of my wooden monstrosity is just hidden away in drawers.
 
@@ -16,7 +17,7 @@ I needed something better.
 
 So after some Googling, I found a few ideas for jewelry storage I really liked. I don't have room for a traditional jewelry box of any size so I need to utilize wall space which I have plenty of.
 
-Eventually, I came across one that I instantly loved and knew I could build myself. We don't need many materials for this project at all making it beginner (and budget!) friendly. All of the materials cost about $20 and it was because I got a big pack of cup hooks which was $7 on its own. These jewelry organizers can easily cost over $100 online. This is a versatile project because you can make it any size you need and stain/paint it whatever you'd like.
+Eventually, I came across one I instantly loved and knew I could build myself. We don't need many materials for this project at all making it beginner (and budget!) friendly. All of the materials cost about $20 and it was because I got a big pack of cup hooks which was $7 on its own. These jewelry organizers can easily cost over $100 online. This is a versatile project because you can make it any size you need and stain/paint it whatever you'd like.
 
 ![](/uploads/jewelry-organizer-diy.jpg)
 
