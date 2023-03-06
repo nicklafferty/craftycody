@@ -57,13 +57,11 @@ Take your time to make sure all of your pieces are nice and smooth.
 
 Time to glue and clamp (most) everything together. Let's grab two side pieces as well as a top and a bottom piece. Add some glue to the 45-degree cuts and clamp them together. We're going to make three of these frames.
 
-Go ahead and glue the shelving boards together along their edges and clamp them. Let everything dry for 24 hours.
+Go ahead and glue the shelving boards together along their edges and clamp them.
 
 When the large frame pieces have dried we're going to drill pilot holes for our dowels to fit into. Use a drill guide so you're able to drill straight into the wood. We'll put two dowels into each corner join. Glue the end of the dowel and hammer in with a rubber mallet. You can use a flush-cut saw to trim off the excess dowel after they have dried.
 
-glue and stack them on top of each other to make the bulk of the speaker stand.
-
-Let everything dry for 24 hours.
+Next, glue and stack the three completed frame pieces on top of each other to make the bulk of the speaker stand.
 
 ### Step 4:
 
