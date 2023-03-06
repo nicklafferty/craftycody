@@ -46,6 +46,10 @@ I cut all of my pieces to length, then pivoted my miter saw to 45 degrees and ma
 
 ### Step 2:
 
+This will be a time-consuming step. We're going to plane and then sand _all_ of our pieces. This wood is kind of cheap so it's gnarly and damaged. The planer will help with broad-strokes smoothing and then sanding afterward will get rid of tiny splinters and debris. I typically keep my hand planer on the first tick after zero so it's only taking a thin layer of wood off after each pass.
+
+Take your time to make sure all of your pieces are nice and smooth.
+
 ### Step 3:
 
 ### Step 4:
