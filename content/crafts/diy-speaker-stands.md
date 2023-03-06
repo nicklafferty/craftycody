@@ -32,6 +32,8 @@ Let's get started!
 
 ## How-to:
 
+The first thing to note is the odd-sized wood I bought. I found the cheapest 2x4s that Lowe's had and they happen to be 92 5/8-in long instead of the standard 8 feet. I thought this was weird, but it ended up working out fine in terms of the sizes of pieces I'd need to complete this project. It also kept my costs down to about $13 total for the wood.
+
 ### Step 1:
 
 ### Step 2:
