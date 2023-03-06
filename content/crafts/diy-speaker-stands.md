@@ -27,8 +27,11 @@ Let's get started!
  7. Clamps
  8. Sander
  9. Electric planer
-10. Stain/paint
-11. Safety gear
+10. Flush cut saw
+11. Rubber mallet
+12. Ruler/speed square
+13. Stain/paint
+14. Safety gear
 
 ## How-to:
 
@@ -56,7 +59,9 @@ Time to glue and clamp (most) everything together. Let's grab two side pieces as
 
 Go ahead and glue the shelving boards together along their edges and clamp them. Let everything dry for 24 hours.
 
-When the large frame pieces have dried we're going to glue and stack them on top of each other to make the bulk of the speaker stand.
+When the large frame pieces have dried we're going to drill pilot holes for our dowels to fit into. Use a drill guide so you're able to drill straight into the wood. We'll put two dowels into each corner join. Glue the end of the dowel and hammer in with a rubber mallet. You can use a flush-cut saw to trim off the excess dowel after they have dried.
+
+glue and stack them on top of each other to make the bulk of the speaker stand.
 
 Let everything dry for 24 hours.
 
