@@ -18,14 +18,16 @@ Let's get started!
 
 ## Supplies:
 
-1. Wood (x4 2x4x8)
-2. Miter saw
-3. Dowels
-4. Drill
-5. Drill guide
-6. Wood glue
-7. Clamps
-8. Stain/paint
-9. Safety gear
+ 1. Wood (x4 2x4x8)
+ 2. Miter saw
+ 3. Dowels
+ 4. Drill
+ 5. Drill guide
+ 6. Wood glue
+ 7. Clamps
+ 8. Sander
+ 9. Electric planer
+10. Stain/paint
+11. Safety gear
 
 ## How-to:
