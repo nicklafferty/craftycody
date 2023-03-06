@@ -54,6 +54,12 @@ Take your time to make sure all of your pieces are nice and smooth.
 
 Time to glue and clamp (most) everything together. Let's grab two side pieces as well as a top and a bottom piece. Add some glue to the 45-degree cuts and clamp them together. We're going to make three of these frames.
 
+Go ahead and glue the shelving boards together along their edges and clamp them. Let everything dry for 24 hours.
+
+When the large frame pieces have dried we're going to glue and stack them on top of each other to make the bulk of the speaker stand.
+
+Let everything dry for 24 hours.
+
 ### Step 4:
 
 ### Step 5:
