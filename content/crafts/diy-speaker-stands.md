@@ -52,6 +52,8 @@ Take your time to make sure all of your pieces are nice and smooth.
 
 ### Step 3:
 
+Time to glue and clamp (most) everything together. Let's grab two side pieces as well as a top and a bottom piece. Add some glue to the 45-degree cuts and clamp them together. We're going to make three of these frames.
+
 ### Step 4:
 
 ### Step 5:
