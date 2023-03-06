@@ -36,6 +36,12 @@ The first thing to note is the odd-sized wood I bought. I found the cheapest 2x4
 
 ### Step 1:
 
+We're going to be cutting a _lot_ of wood today. We'll need six pieces at 24-in long and six pieces at 11 1/4-in long. These will make up the sides, top, and bottom of your speaker stand.
+
+The shelf pieces will be
+
+The "spine" on the back of the speaker stand will be
+
 ### Step 2:
 
 ### Step 3:
