@@ -18,7 +18,7 @@ Let's get started!
 
 ## Supplies:
 
- 1. Wood (x4 2x4x8)
+ 1. Wood (x4 2x4x92 5/8)
  2. Miter saw
  3. Dowels
  4. Drill
@@ -31,3 +31,17 @@ Let's get started!
 11. Safety gear
 
 ## How-to:
+
+### Step 1:
+
+### Step 2:
+
+### Step 3:
+
+### Step 4:
+
+### Step 5:
+
+### Step 6:
+
+### 
