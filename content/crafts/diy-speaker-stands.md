@@ -24,7 +24,7 @@ Let's get started!
  4. Drill
  5. Drill guide
  6. Wood glue
- 7. Clamps
+ 7. Clamps/corner clamps
  8. Sander
  9. Electric planer
 10. Flush cut saw
@@ -55,7 +55,7 @@ Take your time to make sure all of your pieces are nice and smooth.
 
 ### Step 3:
 
-Time to glue and clamp (most) everything together. Let's grab two side pieces as well as a top and a bottom piece. Add some glue to the 45-degree cuts and clamp them together. We're going to make three of these frames.
+Time to glue and clamp (most) everything together. Let's grab two side pieces as well as a top and a bottom piece. Add some glue to the 45-degree cuts and clamp them together. We're going to make three of these frames. I realized I need a lot more corner clamps during this project. They really help with lining up the 90-degree angles.
 
 Go ahead and glue the shelving boards together along their edges and clamp them.
 
