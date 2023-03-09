@@ -4,7 +4,7 @@ description = "Giving speakers a stylish home with extra storage"
 draft = true
 image = ""
 slug = ""
-tags = []
+tags = ["diy"]
 title = "DIY: Speaker Stands"
 
 +++
