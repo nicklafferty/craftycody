@@ -5,6 +5,6 @@ draft = true
 image = ""
 slug = ""
 tags = []
-title = "DIY Wall Clock"
+title = "DIY: Wall Clock"
 
 +++
