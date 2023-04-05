@@ -1,3 +1,7 @@
+---
+_template: blog_post
+---
+
 +++
 date = 2021-03-13T21:30:00Z
 description = "A simple built-in desk for a weird nook in our guest room."

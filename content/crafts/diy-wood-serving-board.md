@@ -1,3 +1,7 @@
+---
+_template: blog_post
+---
+
 +++
 date = 2023-02-10T06:00:00Z
 description = "Making a hefty, IKEA dupe serving platter"

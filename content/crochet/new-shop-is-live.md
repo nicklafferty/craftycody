@@ -1,3 +1,7 @@
+---
+_template: blog_post
+---
+
 +++
 description = "Started a new shop all about crochet."
 image = ""

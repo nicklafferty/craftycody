@@ -1,3 +1,7 @@
+---
+_template: blog_post
+---
+
 +++
 date = 2021-05-06T05:00:00Z
 description = "Adding and carving a wood handle to make a personalized gift."

@@ -1,3 +1,7 @@
+---
+_template: blog_post
+---
+
 +++
 date = 2022-07-14T05:00:00Z
 description = "My 5 favorite plants that do very well in Texas"

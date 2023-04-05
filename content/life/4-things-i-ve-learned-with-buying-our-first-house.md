@@ -1,3 +1,7 @@
+---
+_template: blog_post
+---
+
 +++
 date = 2020-06-05T05:00:00Z
 description = "Here's what I've learned about buying your first home."

@@ -1,3 +1,7 @@
+---
+_template: blog_post
+---
+
 +++
 date = 2020-04-07T05:00:00Z
 description = "Found an old dresser and took it home to upcycle it into a TV stand."

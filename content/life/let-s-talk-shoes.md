@@ -1,3 +1,7 @@
+---
+_template: blog_post
+---
+
 +++
 date = ""
 description = "To say I like shoes would be an understatement."

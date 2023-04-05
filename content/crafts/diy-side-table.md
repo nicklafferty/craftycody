@@ -1,3 +1,7 @@
+---
+_template: blog_post
+---
+
 +++
 date = ""
 description = "Slides under your couch for convenient snacking."

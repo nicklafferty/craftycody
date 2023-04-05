@@ -1,3 +1,7 @@
+---
+_template: blog_post
+---
+
 +++
 date = 2022-03-24T05:00:00Z
 description = "A (very) beginner guide into jewelry making."

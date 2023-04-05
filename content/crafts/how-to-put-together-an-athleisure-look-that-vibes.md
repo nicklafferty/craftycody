@@ -1,3 +1,7 @@
+---
+_template: blog_post
+---
+
 +++
 date = 2022-01-30T06:00:00Z
 description = "I love athletic wear and I love the 80s, so let's combine them."

@@ -1,3 +1,7 @@
+---
+_template: blog_post
+---
+
 +++
 date = ""
 description = "What tools and skills I needed to get started in my new hobby."
