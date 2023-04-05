@@ -1,7 +1,3 @@
----
-_template: blog_post
----
-
 +++
 date = 2022-03-18T05:00:00Z
 description = "Making a weird gap in our deck into useable space."

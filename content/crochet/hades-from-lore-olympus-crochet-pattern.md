@@ -1,7 +1,3 @@
----
-_template: blog_post
----
-
 +++
 date = 2022-08-20T05:00:00Z
 description = "Aidoneus is ready to head out with Kore!"

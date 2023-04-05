@@ -1,7 +1,3 @@
----
-_template: blog_post
----
-
 +++
 date = 2021-04-21T05:00:00Z
 description = "A practical knife block for your kitchen."

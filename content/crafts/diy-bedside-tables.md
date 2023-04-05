@@ -1,7 +1,3 @@
----
-_template: blog_post
----
-
 +++
 date = 2021-05-20T05:00:00Z
 description = "A modest nightstand that won't cost a fortune."

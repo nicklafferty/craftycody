@@ -1,7 +1,3 @@
----
-_template: blog_post
----
-
 +++
 date = 2022-07-22T05:00:00Z
 description = "Plaster, paint, and a pallet knife"

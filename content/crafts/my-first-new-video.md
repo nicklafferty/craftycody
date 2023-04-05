@@ -1,7 +1,3 @@
----
-_template: blog_post
----
-
 +++
 date = 2020-01-20T06:00:00Z
 description = "Changing my channel from gaming to crafting!"

@@ -1,7 +1,3 @@
----
-_template: blog_post
----
-
 +++
 date = 2021-03-30T05:00:00Z
 description = "Taking a look at a cute sweater pattern, the yarn I used, and any mods I made."

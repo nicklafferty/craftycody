@@ -1,7 +1,3 @@
----
-_template: blog_post
----
-
 +++
 description = "I have always loved Christmas and it's finally here."
 image = "/uploads/luminations.jpg"

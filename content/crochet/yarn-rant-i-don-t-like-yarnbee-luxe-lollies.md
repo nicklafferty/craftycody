@@ -1,7 +1,3 @@
----
-_template: blog_post
----
-
 +++
 date = 2020-04-27T05:00:00Z
 description = "I don’t like Yarnbee Luxe Lollies."

@@ -1,7 +1,3 @@
----
-_template: blog_post
----
-
 +++
 date = 2022-08-03T05:00:00Z
 description = "A stylish and functional way of mounting your bike to a wall for some instant art."

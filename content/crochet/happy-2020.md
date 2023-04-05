@@ -1,7 +1,3 @@
----
-_template: blog_post
----
-
 +++
 description = "Finally finished a couple of projects and started using a planner."
 image = "/uploads/fox-lovey-full-blankey.jpg"

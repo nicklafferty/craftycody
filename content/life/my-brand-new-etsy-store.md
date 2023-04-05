@@ -1,7 +1,3 @@
----
-_template: blog_post
----
-
 +++
 date = 2022-04-01T05:00:00Z
 description = "I finally bit the bullet and set one up."

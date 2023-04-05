@@ -1,7 +1,3 @@
----
-_template: blog_post
----
-
 +++
 date = 2020-01-01T06:00:00Z
 description = "Reminiscing about a year gone by."

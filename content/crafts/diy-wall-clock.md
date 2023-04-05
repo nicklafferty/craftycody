@@ -1,7 +1,3 @@
----
-_template: blog_post
----
-
 +++
 date = ""
 description = ""

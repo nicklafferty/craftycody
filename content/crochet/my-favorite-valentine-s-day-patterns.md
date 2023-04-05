@@ -1,7 +1,3 @@
----
-_template: blog_post
----
-
 +++
 date = 2022-02-01T06:00:00Z
 description = "Holidays always seems to sneak up on us, don't they?"

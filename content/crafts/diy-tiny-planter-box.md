@@ -1,7 +1,3 @@
----
-_template: blog_post
----
-
 +++
 date = 2022-01-03T06:00:00Z
 description = "A cute little wood planter box that costs pennies to make"

@@ -1,7 +1,3 @@
----
-_template: blog_post
----
-
 +++
 date = 2022-11-03T05:00:00Z
 description = "Another beach vacation but make it international."

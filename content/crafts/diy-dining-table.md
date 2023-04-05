@@ -1,7 +1,3 @@
----
-_template: blog_post
----
-
 +++
 date = 2022-04-18T05:00:00Z
 description = "Fed up with overpriced retail? Make your own."

@@ -1,7 +1,3 @@
----
-_template: blog_post
----
-
 +++
 date = 2022-03-09T06:00:00Z
 description = "Chipping away at the daunting task of designing our backyard from scratch."

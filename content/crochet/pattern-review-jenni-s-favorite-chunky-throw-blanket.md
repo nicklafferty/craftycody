@@ -1,7 +1,3 @@
----
-_template: blog_post
----
-
 +++
 date = 2021-10-05T05:00:00Z
 description = "A quick blanket pattern that won't break the bank and is super cozy."

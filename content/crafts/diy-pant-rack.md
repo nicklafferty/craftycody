@@ -1,7 +1,3 @@
----
-_template: blog_post
----
-
 +++
 date = 2022-05-20T05:00:00Z
 description = "Or pegs to hang your pants."

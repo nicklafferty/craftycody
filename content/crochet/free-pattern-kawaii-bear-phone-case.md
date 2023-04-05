@@ -1,7 +1,3 @@
----
-_template: blog_post
----
-
 +++
 date = 2023-01-31T06:00:00Z
 description = "A quick, cute, and FREE crochet pattern!"

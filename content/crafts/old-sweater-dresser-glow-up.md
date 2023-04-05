@@ -1,7 +1,3 @@
----
-_template: blog_post
----
-
 +++
 date = 2020-04-22T05:00:00Z
 description = "Giving some TLC to an old dresser."

@@ -1,7 +1,3 @@
----
-_template: blog_post
----
-
 +++
 date = 2022-06-24T05:00:00Z
 description = "What this means for Texans like you and me."

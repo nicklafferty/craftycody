@@ -1,7 +1,3 @@
----
-_template: blog_post
----
-
 +++
 date = ""
 description = "Giving speakers a stylish home with extra storage"

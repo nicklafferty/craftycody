@@ -1,3 +1,4 @@
+<<<<<<< HEAD
 ---
 title: DIY Serving Board
 description: 'Making a hefty, IKEA dupe serving platter'
@@ -7,6 +8,8 @@ tags:
   - diy
 ---
 
+=======
+>>>>>>> parent of 50b733af (upgraded to Tina)
 +++
 date = 2023-02-10T06:00:00Z
 description = "Making a hefty, IKEA dupe serving platter"

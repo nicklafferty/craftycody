@@ -1,7 +1,3 @@
----
-_template: blog_post
----
-
 +++
 date = 2022-03-08T06:00:00Z
 description = "Easier than wallpaper? Debatable."
