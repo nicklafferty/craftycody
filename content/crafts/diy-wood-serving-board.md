@@ -1,12 +1,13 @@
 ---
 title: DIY Serving Board
-description: 'Making a hefty, IKEA dupe serving platter'
-date: '2023-02-10T06:00:00.000Z'
+description: Making a hefty, IKEA dupe serving platter
+date: 2023-02-10T06:00:00.000Z
 slug: diy-serving-board
 tags:
-  - diy
----
+- diy
+image: "/uploads/serving-board-diy-header.png"
 
+---
 +++
 date = 2023-02-10T06:00:00Z
 description = "Making a hefty, IKEA dupe serving platter"
