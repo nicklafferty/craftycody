@@ -1,3 +1,7 @@
+---
+_template: blog_post
+---
+
 +++
 date = 2022-05-09T05:00:00Z
 description = "Adding a matching (and affordable) bench to your dining table."

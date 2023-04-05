@@ -1,3 +1,7 @@
+---
+_template: blog_post
+---
+
 +++
 date = 2022-06-03T05:00:00Z
 description = "New pattern alert!"

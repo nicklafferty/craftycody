@@ -1,0 +1,16 @@
+{
+  "name": "craftycody",
+  "version": "1.0.0",
+  "description": "Crafting blog for Cody",
+  "main": "index.js",
+  "scripts": {
+    "test": "echo \"Error: no test specified\" && exit 1"
+  },
+  "keywords": [],
+  "author": "",
+  "license": "ISC",
+  "dependencies": {
+    "@tinacms/cli": "^1.5.4",
+    "tinacms": "^1.4.4"
+  }
+}

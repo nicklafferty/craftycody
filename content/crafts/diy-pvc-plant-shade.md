@@ -1,3 +1,7 @@
+---
+_template: blog_post
+---
+
 +++
 date = 2022-06-10T05:00:00Z
 description = "Protecting your tomatoes from the Texas sun"

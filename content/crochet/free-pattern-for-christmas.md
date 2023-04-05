@@ -1,3 +1,7 @@
+---
+_template: blog_post
+---
+
 +++
 date = 2019-12-29T06:00:00Z
 description = "Cute pup you can crochet and take around with you!"

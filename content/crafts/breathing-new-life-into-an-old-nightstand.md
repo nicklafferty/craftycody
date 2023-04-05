@@ -1,3 +1,7 @@
+---
+_template: blog_post
+---
+
 +++
 date = 2020-04-04T05:00:00Z
 description = "Giving my childhood nightstand a facelift."

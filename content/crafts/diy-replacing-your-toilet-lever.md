@@ -1,3 +1,7 @@
+---
+_template: blog_post
+---
+
 +++
 date = 2022-06-18T05:00:00Z
 description = "Another dive into extremely surface-level plumbing."

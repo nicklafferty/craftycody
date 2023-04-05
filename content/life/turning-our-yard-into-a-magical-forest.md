@@ -1,3 +1,7 @@
+---
+_template: blog_post
+---
+
 +++
 date = ""
 description = "Landscaping looks difficult, but there are lots of tips to get the look you're after with a low budget. Trust me."

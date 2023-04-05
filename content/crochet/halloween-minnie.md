@@ -1,3 +1,7 @@
+---
+_template: blog_post
+---
+
 +++
 date = 2022-10-17T05:00:00Z
 description = "A new, spooky pattern is available in my shop!"

@@ -1,3 +1,7 @@
+---
+_template: blog_post
+---
+
 +++
 date = ""
 description = "It's ok to not make everything from scratch, but some box mixes taste like box mix."

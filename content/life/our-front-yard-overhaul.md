@@ -1,3 +1,7 @@
+---
+_template: blog_post
+---
+
 +++
 date = 2021-06-17T05:00:00Z
 description = "So, so many rocks. Just way too many."

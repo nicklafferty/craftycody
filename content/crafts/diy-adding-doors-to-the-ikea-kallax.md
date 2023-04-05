@@ -1,3 +1,7 @@
+---
+_template: blog_post
+---
+
 +++
 date = 2022-03-31T05:00:00Z
 description = "My first official Ikea hack. "

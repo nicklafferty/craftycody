@@ -1,3 +1,7 @@
+---
+_template: blog_post
+---
+
 +++
 date = 2022-09-22T05:00:00Z
 description = "Making my own twirling yarn holder."

@@ -1,3 +1,7 @@
+---
+_template: blog_post
+---
+
 +++
 date = 2022-09-16T05:00:00Z
 description = "Creating a cute souvenir for your memories"

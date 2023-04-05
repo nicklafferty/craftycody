@@ -1,3 +1,7 @@
+---
+_template: blog_post
+---
+
 +++
 date = 2021-10-11T05:00:00Z
 description = "Drilling into brick, troublshooting, and DIY fixes to get your new camera up and running."
