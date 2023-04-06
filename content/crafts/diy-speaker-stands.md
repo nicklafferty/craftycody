@@ -1,3 +1,7 @@
+---
+title: 'DIY: Speaker Stands'
+description: Giving speakers a stylish home with extra storage
+---
 
 +++
 date = ""
