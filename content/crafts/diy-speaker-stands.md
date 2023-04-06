@@ -22,6 +22,8 @@ So excited, in fact, that my enthusiasm for building furniture has been reignite
 
 When it comes to optimizing the audio quality of your home theater or music system, having the right speaker stands can make a world of difference. Not only do they provide a stable and secure platform for your speakers, but they can also help to reduce vibrations and improve sound clarity. However, if you're like me, finding the perfect *anything* for your space and budget can be a challenge. I'll show you how to make your own customized stands that not only meet your specific needs but also add a touch of personal style to your setup- as well as a little bit of added storage! Whether you're an audiophile looking for the perfect acoustic solution or just someone who wants to upgrade their home entertainment system, this guide will walk you through the step-by-step process of building your very own speaker stands.
 
+PS: We're not going to use a single screw with this one.
+
 Let's get started!
 
 ## Supplies:
@@ -85,5 +87,7 @@ I flipped it around and slid the completed shelf where I wanted it, adding a lit
 This step is all sanding and planing. I didn't film a lot of it because it was so time-consuming and I feel like I was sanding after every step. This will be the final plane/sand to make sure everything is level and help make the boards look more flush. Again, feel free to use stainable wood filler to close up any unsightly gaps. I know I did!
 
 ### Step 6:
+
+Almost done! All that's left is to stain or paint your speaker stands. I went with red oak by Minwax so it would match my dining table that's basically in the same room.
 
 ###
