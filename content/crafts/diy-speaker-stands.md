@@ -66,7 +66,7 @@ Take your time to make sure all of your pieces are nice and smooth.
 
 Time to glue and clamp (most) everything together. Let's grab two side pieces as well as a top and a bottom piece. Add some glue to the 45-degree cuts and clamp them together. We're going to make three of these frames. I realized I need a lot more corner clamps during this project. They really help with lining up the 90-degree angles.
 
-Go ahead and glue the shelving boards together along their edges and clamp them.
+Go ahead and glue the two shelving boards together along their edges and clamp them.
 
 When the large frame pieces have dried we're going to drill pilot holes for our dowels to fit into. Use a drill guide so you're able to drill straight into the wood. We'll put two dowels into each corner join. Use the same size drill bit as your dowels, in this case, 3/8-in. Glue the end of the dowel and hammer in with a rubber mallet. You can use a flush-cut saw to trim off the excess dowel after they have dried.
 
@@ -74,7 +74,15 @@ Next, glue and stack the three completed frame pieces on top of each other to ma
 
 ### Step 4:
 
+Once the base of the stands has dried, you can add the spine to the back. Add wood glue to the top and bottom and slide it into place. Clamp down and let dry.
+
+When it has, I added a 3/8-in dowel into the top and bottom using the same technique as the base.
+
+I flipped it around and slid the completed shelf where I wanted it, adding a little wood glue to the spine. This went in very snuggly so I didn't wait to add the dowels along the sides. This time I used 1/4-in dowels because I ran out of the larger size. These holes ended up being easier to drill, but the dowels are more fragile. I added four dowels per side. Be sure to measure where your shelf starts, stops, and where the middle of the boards are.
+
 ### Step 5:
+
+This step is all sanding and planing. I didn't film a lot of it because it was so time-consuming and I feel like I was sanding after every step. This will be the final plane/sand to make sure everything is level and help make the boards look more flush. Again, feel free to use stainable wood filler to close up any unsightly gaps. I know I did!
 
 ### Step 6:
 
