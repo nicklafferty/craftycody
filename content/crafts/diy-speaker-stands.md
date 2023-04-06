@@ -90,4 +90,6 @@ This step is all sanding and planing. I didn't film a lot of it because it was s
 
 Almost done! All that's left is to stain or paint your speaker stands. I went with red oak by Minwax so it would match my dining table that's basically in the same room.
 
+## Finished project
+
 ###
