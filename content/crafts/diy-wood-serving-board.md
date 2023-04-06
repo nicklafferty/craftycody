@@ -1,4 +1,3 @@
-
 +++
 date = 2023-02-10T06:00:00Z
 description = "Making a hefty, IKEA dupe serving platter"
@@ -10,7 +9,7 @@ title = "DIY: Wood Serving Board"
 +++
 {{< youtube U-hKRvv7Qps >}}
 
-*This post may contain affiliate links. I earn a small commission on your purchase, but there are no added costs to you.*
+_This post may contain affiliate links. I earn a small commission on your purchase, but there are no added costs to you._
 
 Whew, it has been a minute!
 
@@ -28,15 +27,15 @@ Let's get started!
 
 ## Supplies:
 
-1. Scrap wood (I used 1x3s, a 1x5, and 2" balusters. Do **NOT** use pressure-treated wood if this is going to be used around/with food.)
-2. [Miter saw](https://amzn.to/3X3vHsV)
-3. [Jig saw](https://amzn.to/3W2R39Q)
-4. [Sander](https://amzn.to/3wWcX3X) and [Dremel](https://amzn.to/3jy3aOr)
-5. [Planer](https://amzn.to/3x25TTc)
-6. [Drill](https://amzn.to/3JKVR0f)
-7. [Spade bits](https://amzn.to/3FtBfWR)
-8. [Liquid Nails](https://amzn.to/3I1Xs0z)
-9. Wood glue
+ 1. Scrap wood (I used 1x3s, a 1x5, and 2" balusters. Do **NOT** use pressure-treated wood if this is going to be used around/with food.)
+ 2. [Miter saw](https://amzn.to/3X3vHsV)
+ 3. [Jig saw](https://amzn.to/3W2R39Q)
+ 4. [Sander](https://amzn.to/3wWcX3X) and [Dremel](https://amzn.to/3jy3aOr)
+ 5. [Planer](https://amzn.to/3x25TTc)
+ 6. [Drill](https://amzn.to/3JKVR0f)
+ 7. [Spade bits](https://amzn.to/3FtBfWR)
+ 8. [Liquid Nails](https://amzn.to/3I1Xs0z)
+ 9. Wood glue
 10. Wood filler (if needed)
 11. [Clamps](https://amzn.to/3ld3IcZ)
 12. Stain/Mineral oil (If you're planning on using this with food in any capacity, be sure to get food-safe varnishes/stains/oils.)
