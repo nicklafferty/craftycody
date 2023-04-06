@@ -1,15 +1,12 @@
----
-title: DIY Serving Board
-description: Making a hefty, IKEA dupe serving platter
-date: 2023-02-10T06:00:00.000Z
-slug: diy-serving-board
-tags:
-- diy
-image: "/uploads/serving-board-diy-header.png"
++++
+date = 2023-02-10T06:00:00Z
+description = "Making a hefty, IKEA dupe serving platter"
+image = "/uploads/serving-board-diy-header.png"
+slug = "diy-serving-board"
+tags = ["diy"]
+title = "DIY: Wood Serving Board"
 
----
-
-
++++
 {{< youtube U-hKRvv7Qps >}}
 
 _This post may contain affiliate links. I earn a small commission on your purchase, but there are no added costs to you._
