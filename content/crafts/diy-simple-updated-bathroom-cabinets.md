@@ -1,3 +1,4 @@
+
 +++
 date = 2021-04-08T05:00:00Z
 description = "The trick to painting cabinets quickly and easily."
