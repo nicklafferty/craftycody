@@ -1,3 +1,4 @@
+
 +++
 date = 2021-12-08T06:00:00Z
 description = "It took me a year, but she's finally finished and ready for the world"

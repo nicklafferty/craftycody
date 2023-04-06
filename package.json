@@ -12,7 +12,8 @@
   "author": "",
   "license": "ISC",
   "dependencies": {
-    "@tinacms/cli": "^1.5.4",
-    "tinacms": "^1.4.4"
+    "@tinacms/cli": "^1.5.5",
+    "tinacms": "^1.4.5",
+    "node": "^14.18"
   }
 }

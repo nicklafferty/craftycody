@@ -1,3 +1,4 @@
+
 +++
 date = 2021-07-28T05:00:00Z
 description = "Sometimes baking soda and vinegar doesn't cut it."
