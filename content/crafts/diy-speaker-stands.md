@@ -92,4 +92,6 @@ Almost done! All that's left is to stain or paint your speaker stands. I went wi
 
 ## Finished project
 
+With just a few basic materials and some simple tools, you can create a customized set of stands that will enhance the audio quality of your home theater or music system. Not only will these stands provide a stable platform for your speakers, but they will also add a personal touch to your setup. Remember to take the time to measure and plan out your design carefully, and don't hesitate to experiment with different materials and finishes to achieve the perfect look and sound for your space. With these tips in mind, you're now ready to create your own DIY speaker stands and enjoy the full potential of your audio system.
+
 ###
