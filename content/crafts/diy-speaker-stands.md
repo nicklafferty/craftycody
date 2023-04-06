@@ -5,29 +5,29 @@ description = "Giving speakers a stylish home with extra storage"
 draft = true
 image = ""
 slug = ""
-tags = ["diy"]
+tags = \["diy"]
 title = "DIY: Speaker Stands"
 
 +++
-We are _finally_ glowing up our living room. Recently, we purchased our first couch that wasn't a hand-me-down and bought accent chairs on a whim. We also got this funky ottoman, but it isn't going to be here for a few weeks. The room is finally getting a personality and I'm really excited about it.
+We are *finally* glowing up our living room. Recently, we purchased our first couch that wasn't a hand-me-down and bought accent chairs on a whim. We also got this funky ottoman, but it isn't going to be here for a few weeks. The room is finally getting a personality and I'm really excited about it.
 
 So excited, in fact, that my enthusiasm for building furniture has been reignited and I've decided to revamp the remaining pieces in our living room to create a cohesive and grown-up look. I'm going to be starting simple with some easy speaker stands.
 
-When it comes to optimizing the audio quality of your home theater or music system, having the right speaker stands can make a world of difference. Not only do they provide a stable and secure platform for your speakers, but they can also help to reduce vibrations and improve sound clarity. However, if you're like me, finding the perfect _anything_ for your space and budget can be a challenge. I'll show you how to make your own customized stands that not only meet your specific needs but also add a touch of personal style to your setup- as well as a little bit of added storage! Whether you're an audiophile looking for the perfect acoustic solution or just someone who wants to upgrade their home entertainment system, this guide will walk you through the step-by-step process of building your very own speaker stands.
+When it comes to optimizing the audio quality of your home theater or music system, having the right speaker stands can make a world of difference. Not only do they provide a stable and secure platform for your speakers, but they can also help to reduce vibrations and improve sound clarity. However, if you're like me, finding the perfect *anything* for your space and budget can be a challenge. I'll show you how to make your own customized stands that not only meet your specific needs but also add a touch of personal style to your setup- as well as a little bit of added storage! Whether you're an audiophile looking for the perfect acoustic solution or just someone who wants to upgrade their home entertainment system, this guide will walk you through the step-by-step process of building your very own speaker stands.
 
 Let's get started!
 
 ## Supplies:
 
- 1. Wood (x4 2x4x92 5/8)
- 2. Miter saw
- 3. Dowels (3/8 in)
- 4. Drill
- 5. Drill guide
- 6. Wood glue
- 7. Wood filler (stainable)
- 8. Clamps/corner clamps
- 9. Sander
+1. Wood (x4 2x4x92 5/8)
+2. Miter saw
+3. Dowels (3/8 in and 1/4 in)
+4. Drill
+5. Drill guide
+6. Wood glue
+7. Wood filler (stainable)
+8. Clamps/corner clamps
+9. Sander
 10. Electric planer
 11. Flush cut saw
 12. Rubber mallet
@@ -41,7 +41,7 @@ The first thing to note is the odd-sized wood I bought. I found the cheapest 2x4
 
 ### Step 1:
 
-We're going to be cutting a _lot_ of wood today. We'll need six pieces at 24-in long and six pieces at 11 1/4-in long. These will make up the sides, top, and bottom of your speaker stand. I used a ruler to measure out all of my pieces and a speed square to draw a straight cut-line on my ruler marks.
+We're going to be cutting a *lot* of wood today. We'll need six pieces at 24-in long and six pieces at 11 1/4-in long. These will make up the sides, top, and bottom of your speaker stand. I used a ruler to measure out all of my pieces and a speed square to draw a straight cut-line on my ruler marks.
 
 The shelf consists of
 
@@ -51,7 +51,7 @@ I cut all of my pieces to length, then pivoted my miter saw to 45 degrees and ma
 
 ### Step 2:
 
-This will be a time-consuming step. We're going to plane and then sand _all_ of our pieces. This wood is kind of cheap so it's gnarly and damaged. The planer will help with broad-strokes smoothing and then sanding afterward will get rid of tiny splinters and debris. I typically keep my hand planer on the first tick after zero so it's only taking a thin layer of wood off after each pass.
+This will be a time-consuming step. We're going to plane and then sand *all* of our pieces. This wood is kind of cheap so it's gnarly and damaged. The planer will help with broad-strokes smoothing and then sanding afterward will get rid of tiny splinters and debris. I typically keep my hand planer on the first tick after zero so it's only taking a thin layer of wood off after each pass.
 
 Take your time to make sure all of your pieces are nice and smooth.
 
@@ -71,4 +71,4 @@ Next, glue and stack the three completed frame pieces on top of each other to ma
 
 ### Step 6:
 
-### 
+###
