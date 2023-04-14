@@ -79,7 +79,7 @@ This step is all sanding and planing. I didn't film a lot of it because it was s
 
 ### Step 6:
 
-Almost done! All that's left is to stain or paint your speaker stands. I went with a transparent black by Minwax.
+Almost done! All that's left is to stain or paint your speaker stands. I went with a transparent black by Minwax. Coat with poly and let dry.
 
 ## Finished project
 
