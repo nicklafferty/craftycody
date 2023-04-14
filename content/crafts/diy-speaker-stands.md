@@ -3,6 +3,7 @@ title: 'DIY: Speaker Stands'
 description: Giving speakers a stylish home with extra storage.
 slug: diy-speaker-stands
 tags:
+  - video
   - diy
 ---
 
