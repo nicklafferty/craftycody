@@ -45,7 +45,7 @@ We're going to be cutting a *lot* of wood today. We'll need six pieces at 24-in 
 
 The shelf consists of two 2x4 pieces each 8 1/4-in long.
 
-The "spine" on the back of the speaker stand will be 20 13/16-in long. Be sure to double-check all of your measurements before cutting.
+The "spine" on the back of the speaker stand will be 20 13/16-in long. Be sure to double-check all of your measurements before cutting. I cut the spine piece after building the frame/base of the stand since I sanded and planed the wood which will alter the measurements.
 
 I cut all of my pieces to length, then pivoted my miter saw to 45 degrees and made the angled cuts into all pieces EXCEPT those used for the shelf and spine. Be sure to cut slowly to minimize chips and splinters.
 
