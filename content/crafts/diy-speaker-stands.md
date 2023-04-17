@@ -11,6 +11,8 @@ image: >-
   header.png
 ---
 
+[https://youtu.be/GIz9e3wIk90](https://youtu.be/GIz9e3wIk90)
+
 We are *finally* glowing up our living room. Recently, we purchased our first couch that wasn't a hand-me-down and bought accent chairs on a whim. We also got this funky ottoman, but it isn't going to be here for a few weeks. The room is finally getting a personality and I'm really excited about it.
 
 So excited, in fact, that my enthusiasm for building furniture has been reignited and I've decided to revamp the remaining pieces in our living room to create a cohesive and grown-up look. I'm going to be starting simple with some easy speaker stands. If you only want to make one of these, they make a great side table too!
