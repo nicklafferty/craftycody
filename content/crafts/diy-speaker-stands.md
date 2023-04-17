@@ -11,7 +11,7 @@ image: >-
   header.png
 ---
 
-<iframe frameborder="0" scrolling="no" marginheight="0" marginwidth="0"width="788.54" height="443" type="text/html" src="https://www.youtube.com/embed/GIz9e3wIk90?autoplay=0&fs=0&iv_load_policy=3&showinfo=0&rel=0&cc_load_policy=0&start=0&end=0&origin=https://youtubeembedcode.com"><div><small><a href="https://youtubeembedcode.com/en">youtubeembedcode.com/en/</a></small></div><div><small><a href="https://snabblån5000.com/lana-6000/">låna 6000</a></small></div><div><small><a href="https://youtubeembedcode.com/de/">youtubeembedcode de</a></small></div><div><small><a href="https://harpangratis.se/">https://harpangratis.se/</a></small></div><div><small><a href="https://youtubeembedcode.com/en">youtubeembedcode en</a></small></div><div><small><a href="https://phase10rules.com/">phase 10 rules pdf</a></small></div><div><small><a href="https://youtubeembedcode.com/pl/">youtubeembedcode pl</a></small></div><div><small><a href="https://xn--snabbln5000-28a.com/">låna 5000 utan uc</a></small></div><div><small><a href="https://youtubeembedcode.com/en">youtubeembedcode.com/en/</a></small></div><div><small><a href="https://xn--sms-ln-direkt-tfb.nu/">https://samla-lån-utan-uc.se/</a></small></div></iframe>
+{{\< youtube GIz9e3wIk90 >}}
 
 We are *finally* glowing up our living room. Recently, we purchased our first couch that wasn't a hand-me-down and bought accent chairs on a whim. We also got this funky ottoman, but it isn't going to be here for a few weeks. The room is finally getting a personality and I'm really excited about it.
 
