@@ -6,6 +6,9 @@ tags:
   - video
   - diy
 date: 2023-04-17T05:00:00.000Z
+image: >-
+  https://assets.tina.io/e08ad554-62d0-49fa-af1e-455b9897cf21/speaker stands
+  header.png
 ---
 
 We are *finally* glowing up our living room. Recently, we purchased our first couch that wasn't a hand-me-down and bought accent chairs on a whim. We also got this funky ottoman, but it isn't going to be here for a few weeks. The room is finally getting a personality and I'm really excited about it.
