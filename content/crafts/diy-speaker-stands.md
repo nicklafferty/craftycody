@@ -5,6 +5,7 @@ slug: diy-speaker-stands
 tags:
   - video
   - diy
+date: 2023-04-17T05:00:00.000Z
 ---
 
 We are *finally* glowing up our living room. Recently, we purchased our first couch that wasn't a hand-me-down and bought accent chairs on a whim. We also got this funky ottoman, but it isn't going to be here for a few weeks. The room is finally getting a personality and I'm really excited about it.
